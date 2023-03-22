@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 84/110 [**<**]({{site.baseurl}}/miles/transcript/page83) [1]({{site.baseurl}}/miles/transcript/index) ... [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) **84** [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page85)
 
+[郭文贵2019年1月15日视频 20190115_1两天前！我出去见朋友！CCP很多人跟踪我！他们这种做法一定会受到美国的法律的严惩]({{site.baseurl}}/miles/transcript/2019/01/20190115-53478530)
+
+[郭文贵2019年1月14日视频 20190114_2试直播设备]({{site.baseurl}}/miles/transcript/2019/01/20190114-53478525)
+
+[郭文贵2019年1月14日视频 20190114_1你们知道我昨天去见的是谁吗]({{site.baseurl}}/miles/transcript/2019/01/20190114-53478520)
+
 [郭文贵2019年1月13日视频 20190113_2看看我的新車 多酷]({{site.baseurl}}/miles/transcript/2019/01/20190113-53478517)
 
 [郭文贵2019年1月13日视频 20190113_1班農已確定參加春晚爆料, Absolutely]({{site.baseurl}}/miles/transcript/2019/01/20190113-53478510)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年12月31日视频 20181231_1明天2019年1月1日纽约时间上午10点整，北京时间晚上11点整，卡丽熙將采访郭文贵]({{site.baseurl}}/miles/transcript/2018/12/20181231-53478467)
 
 [郭文贵2018年12月30日视频 20181230_1川普总统将向CCP要求中国人必须有宗教的自由．信仰的自由！]({{site.baseurl}}/miles/transcript/2018/12/20181230-53478465)
-
-[郭文贵2018年12月29日谈马建案 20181229接受路德先生的访谈，谈马建案与2019年爆料计划和中国私人企业家的命运]({{site.baseurl}}/miles/transcript/2018/12/20181229-53481507)
-
-[郭文贵2018年12月28日视频 20181228_1昨天晚上两位老领导打电话给我让我当俊杰说我身边有千军万马在等命令随时灭我我好怕怕哦]({{site.baseurl}}/miles/transcript/2018/12/20181228-53478461)
-
-[郭文贵2018年12月27日视频 20181227 原马健副部长所谓的被判无期徒刑是中共“以黑治国”“以警治国”最好的证明！郭文贵将不惜一切代价为马健先生及绝大多数被残害的共产党员争取公平！真相！还他们自由！]({{site.baseurl}}/miles/transcript/2018/12/20181227-53481471)
 
 
 ## 頁面 84/110 [**<**]({{site.baseurl}}/miles/transcript/page83) [1]({{site.baseurl}}/miles/transcript/index) ... [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) **84** [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page85)

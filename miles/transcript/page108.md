@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 108/110 [**<**]({{site.baseurl}}/miles/transcript/page107) [1]({{site.baseurl}}/miles/transcript/index) ... [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) **108** [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page109)
 
+[郭文贵2017年6月11日视频 20170611]({{site.baseurl}}/miles/transcript/2017/06/20170611-53483871)
+
+[郭文贵2017年6月10日第一次直播 20170610_1有关海南航空的公告的回复]({{site.baseurl}}/miles/transcript/2017/06/20170610-53483866)
+
+[郭文贵2017年6月10日第二次直播 20170610_2]({{site.baseurl}}/miles/transcript/2017/06/20170610-53483861)
+
 [郭文贵2017年6月8日直播 20170608_1明鏡專訪郭文貴對盤古案的期待 60分]({{site.baseurl}}/miles/transcript/2017/06/20170608-53482753)
 
 [郭文贵2017年6月7日视频 20170607推特报平安]({{site.baseurl}}/miles/transcript/2017/06/20170607-53483780)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年5月17日视频 20170517家庭国家和社会的关系]({{site.baseurl}}/miles/transcript/2017/05/20170517-53483913)
 
 [郭文贵2017年5月16日视频 20170516]({{site.baseurl}}/miles/transcript/2017/05/20170516-53483891)
-
-[郭文贵2017年5月15日视频 20170515_1]({{site.baseurl}}/miles/transcript/2017/05/20170515-53483877)
-
-[郭文贵2017年5月15日视频 20170515_2報平安 2被骇后再开！]({{site.baseurl}}/miles/transcript/2017/05/20170515-53483772)
-
-[郭文贵2017年5月13日视频 20170513]({{site.baseurl}}/miles/transcript/2017/05/20170513-53483867)
 
 
 ## 頁面 108/110 [**<**]({{site.baseurl}}/miles/transcript/page107) [1]({{site.baseurl}}/miles/transcript/index) ... [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) **108** [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page109)

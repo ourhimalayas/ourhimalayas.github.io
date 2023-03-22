@@ -41,6 +41,10 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年10月13日视频 20191013传播香港真相，反对暴力，中共启动大量沉默力量挑拨离间战友, 美国将严加製裁， 只有灭掉共产党人类才有未来]({{site.baseurl}}/miles/transcript/2019/10/20191013-53483324)
 
+[2019年10月12日郭文贵先生船上直播跟战友分享夜景，香港人权法案，反共灭共之势无人能阻挡全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191012-53909193)
+
+[2019年10月12日郭文贵先生船上直播跟战友分享夜景，香港人权法案，反共灭共之势无人能阻挡全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191012-53909141)
+
 [2019年10月12日 中美达成的初步协议 对爆料革命无影响，但绝对是最糟糕；香港同胞最受影响；灭共要靠我们自己！ 全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191012-53903476)
 
 [郭文贵2019年10月12日视频 20191012中美达成的初步协议 对爆料革命无影响，但绝对是最糟糕；香港同胞最受影响；灭共要靠我们自己！]({{site.baseurl}}/miles/transcript/2019/10/20191012-53483319)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年10月12日视频 20191012_4 郭文贵先生船上直播跟战友分享夜景，香港人权法案，反共灭共之势无人能阻挡]({{site.baseurl}}/miles/transcript/2019/10/20191012-53479064)
 
 [郭文贵2019年10月12日视频 20191012_3与战友们分SNOW吃酸奶的片刻… …一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/10/20191012-53479056)
-
-[郭文贵2019年10月12日视频 20191012_2我太太刚刚为我组装的太空母舰……一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/10/20191012-53479049)
-
-[2019年10月10日文贵大直播全文字版：报平安直播，台湾双十国庆 关注王岐山美国双十会谈中共诡计是否会得逞]({{site.baseurl}}/miles/transcript/2019/10/20191010-53900627)
 
 
 ## 頁面 66/110 [**<**]({{site.baseurl}}/miles/transcript/page65) [1]({{site.baseurl}}/miles/transcript/index) ... [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) **66** [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page67)

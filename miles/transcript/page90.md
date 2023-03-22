@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 90/110 [**<**]({{site.baseurl}}/miles/transcript/page89) [1]({{site.baseurl}}/miles/transcript/index) ... [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) **90** [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page91)
 
+[郭文贵2018年9月22日视频 20180922_4文貴周末為家人做魚肉丸 用趕麵杖趕魚肉]({{site.baseurl}}/miles/transcript/2018/09/20180922-53478295)
+
+[郭文贵2018年9月22日视频 20180922_3文貴周末為家人做魚肉丸]({{site.baseurl}}/miles/transcript/2018/09/20180922-53478290)
+
+[郭文贵2018年9月22日视频 20180922_2Snow在偷吃他女朋友的飯]({{site.baseurl}}/miles/transcript/2018/09/20180922-53478287)
+
 [郭文贵2018年9月21日视频 20180921_2文贵为忙碌了一周的同事切莲花西瓜……大家开心极了……从未见过！]({{site.baseurl}}/miles/transcript/2018/09/20180921-53478283)
 
 [郭文贵2018年9月21日视频 20180921_1文贵请战友们帮忙]({{site.baseurl}}/miles/transcript/2018/09/20180921-53478280)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年9月11日视频 20180911_3願美國不會再有911]({{site.baseurl}}/miles/transcript/2018/09/20180911-53478225)
 
 [郭文贵2018年9月11日视频 20180911_2文贵在船上与大家听音乐，并承诺给中国老兵捐两亿美元。]({{site.baseurl}}/miles/transcript/2018/09/20180911-53478221)
-
-[郭文贵2018年9月10日第二次直播 20180910_2马云辞职的真正的目的与动机漫天过海！]({{site.baseurl}}/miles/transcript/2018/09/20180910-53482559)
-
-[郭文贵2018年9月10日第一次直播 20180910_1马云辞职的真正原因]({{site.baseurl}}/miles/transcript/2018/09/20180910-53482536)
-
-[郭文贵2018年9月10日直播 20180910_3文贵在雨中建议所有的战友们观看"斯大林之死"这部电影]({{site.baseurl}}/miles/transcript/2018/09/20180910-53478215)
 
 
 ## 頁面 90/110 [**<**]({{site.baseurl}}/miles/transcript/page89) [1]({{site.baseurl}}/miles/transcript/index) ... [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) **90** [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page91)

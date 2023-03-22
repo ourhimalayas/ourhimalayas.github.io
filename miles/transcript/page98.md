@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 98/110 [**<**]({{site.baseurl}}/miles/transcript/page97) [1]({{site.baseurl}}/miles/transcript/index) ... [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) **98** [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page99)
 
+[郭文贵2018年3月20日第一次直播 20180320_1今天我们完成了对．谣言．诽谤．威胁．文贵的陈军先生．袁健斌先生．林宇丹女士(美猴王)三个人的控告！我们绝不会忘掉一个帮助我文贵的任何一个恩人！也不会放过一个伤害我们的坏人！]({{site.baseurl}}/miles/transcript/2018/03/20180320-53481833)
+
+[郭文贵2018年3月18日视频 20180318再谈如何掏肛盗国贼]({{site.baseurl}}/miles/transcript/2018/03/20180318-53481807)
+
+[郭文贵2018年3月17日视频 20180317谈王岐山当选副主席郭七条不变，喜马拉雅法治中国目标不变]({{site.baseurl}}/miles/transcript/2018/03/20180317-53481951)
+
 [郭文贵2018年3月16日第一次直播 20180316_1如何感恩．并享受．砸郭运动！王岐山到底是总理还是监察委主任．副主席？一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/03/20180316-53483695)
 
 [郭文贵2018年3月16日第二次直播 20180316_2推特拉黑了谁？如何用智慧铲灭盗国贼！]({{site.baseurl}}/miles/transcript/2018/03/20180316-53483690)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年3月4日报平安视频 20180304_3文贵呼吁所有的援郭的战友们以家庭安全．正常生活为重……全球一致行动！]({{site.baseurl}}/miles/transcript/2018/03/20180304-53481371)
 
 [郭文贵2018年3月4日第一次直播 20180304_1这是3月4日录制的第二个视频！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/03/20180304-53481301)
-
-[郭文贵2018年3月4日第二次直播 20180304_2这是3月4号的视频！]({{site.baseurl}}/miles/transcript/2018/03/20180304-53481270)
-
-[郭文贵2018年3月3日视频 20180303出其不意 ,会师挺郭后援会成员! 场面感人!!!]({{site.baseurl}}/miles/transcript/2018/03/20180303-53477358)
-
-[郭文贵2018年3月2日直播 20180302_1尊敬的战友们好：文贵从元宵节太太喝醉．谈谈，轮回报应．同时再谈谈盗国贼的未来……我衷心祝福援郭会的兄弟姐妹，今天的全球联合大游行战友们平平安安！顺顺利利！????????????????????????]({{site.baseurl}}/miles/transcript/2018/03/20180302-53477293)
 
 
 ## 頁面 98/110 [**<**]({{site.baseurl}}/miles/transcript/page97) [1]({{site.baseurl}}/miles/transcript/index) ... [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) **98** [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page99)

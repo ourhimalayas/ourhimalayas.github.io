@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 83/110 [**<**]({{site.baseurl}}/miles/transcript/page82) [1]({{site.baseurl}}/miles/transcript/index) ... [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) **83** [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page84)
 
+[郭文贵2019年2月3日视频 20190203_1除夕前一天报平安]({{site.baseurl}}/miles/transcript/2019/02/20190203-53478571)
+
+[郭文贵2019年2月2日视频 20190202_1委内瑞拉的局势变化正是未來中國變局最好的樣板！和3月20号习近平先生的访问梵蒂冈！川金会川习会！]({{site.baseurl}}/miles/transcript/2019/02/20190202-53478572)
+
+[郭文贵2019年2月1日视频 20190201_1昨天刘鹤跟川普团队谈判后的自己的感受！ 王健被自己的生殖器戳死]({{site.baseurl}}/miles/transcript/2019/02/20190201-53478567)
+
 [郭文贵2019年1月31日视频 20190131_1昨天的中美貿易談判一定會宣布有了最好的結果 但實際上是最壞的結果 收到北韓來的許多信息]({{site.baseurl}}/miles/transcript/2019/01/20190131-53478562)
 
 [郭文贵2019年1月30日视频 20190130_2文贵先生测试秘密工具直播]({{site.baseurl}}/miles/transcript/2019/01/20190130-53478558)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年1月16日视频第二部分 20190116_2王健被谋杀之密有了重大进展。吴征还有博讯, 马蕊强奸案有了重大的实质性的证据证明吴征被CCP控制]({{site.baseurl}}/miles/transcript/2019/01/20190116-53481722)
 
 [郭文贵2019年1月16日视频第一部分 20190116_1报平安直播，因春晚收到了国内盗国贼各方的威胁，以及接下来将对盗国贼子女海外资产的一系列行动，慈善基金可能将成为第一个有回报的慈善基金]({{site.baseurl}}/miles/transcript/2019/01/20190116-53481715)
-
-[郭文贵2019年1月15日视频 20190115_1两天前！我出去见朋友！CCP很多人跟踪我！他们这种做法一定会受到美国的法律的严惩]({{site.baseurl}}/miles/transcript/2019/01/20190115-53478530)
-
-[郭文贵2019年1月14日视频 20190114_2试直播设备]({{site.baseurl}}/miles/transcript/2019/01/20190114-53478525)
-
-[郭文贵2019年1月14日视频 20190114_1你们知道我昨天去见的是谁吗]({{site.baseurl}}/miles/transcript/2019/01/20190114-53478520)
 
 
 ## 頁面 83/110 [**<**]({{site.baseurl}}/miles/transcript/page82) [1]({{site.baseurl}}/miles/transcript/index) ... [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) **83** [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page84)

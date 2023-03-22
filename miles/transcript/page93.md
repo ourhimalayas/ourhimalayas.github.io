@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 93/110 [**<**]({{site.baseurl}}/miles/transcript/page92) [1]({{site.baseurl}}/miles/transcript/index) ... [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) **93** [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page94)
 
+[郭文贵2018年8月8日直播 20180808_1想念战友]({{site.baseurl}}/miles/transcript/2018/08/20180808-53478106)
+
+[郭文贵2018年8月7日视频 20180807王健被杀死前曾接触过其他国家情报部门．并通过香港中间人与文贵有联系！]({{site.baseurl}}/miles/transcript/2018/08/20180807-53482465)
+
+[郭文贵2018年8月7日直播 20180807_2今天太有成就感了 馬上要喝點酒]({{site.baseurl}}/miles/transcript/2018/08/20180807-53478104)
+
 [郭文贵2018年8月7日视频 20180807_3今天太有成就感了，喝茅台吃羊排奖励自己！]({{site.baseurl}}/miles/transcript/2018/08/20180807-53477230)
 
 [郭文贵2018年8月6日视频 20180806文贵致王健夫人及兄王伟先生的提示！法国这个与王健一起最后晚餐的女人！]({{site.baseurl}}/miles/transcript/2018/08/20180806-53482450)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年7月8日视频 20180708在船上报平安]({{site.baseurl}}/miles/transcript/2018/07/20180708-53477214)
 
 [郭文贵2018年7月6日视频 20180706王健不是正常死亡！真相既将大白于天下！很可能是王歧山干的！]({{site.baseurl}}/miles/transcript/2018/07/20180706-53482380)
-
-[郭文贵2018年7月4日直播 20180704_1郭文贵先生在群里对王健突然丧命的评价]({{site.baseurl}}/miles/transcript/2018/07/20180704-53478031)
-
-[郭文贵2018年7月2日直播 20180702_2路德访谈约翰小哥時文貴之講話]({{site.baseurl}}/miles/transcript/2018/07/20180702-53478026)
-
-[郭文贵2018年6月30日直播 20180630_2谈中国股市与经济！]({{site.baseurl}}/miles/transcript/2018/06/20180630-53478020)
 
 
 ## 頁面 93/110 [**<**]({{site.baseurl}}/miles/transcript/page92) [1]({{site.baseurl}}/miles/transcript/index) ... [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) **93** [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page94)

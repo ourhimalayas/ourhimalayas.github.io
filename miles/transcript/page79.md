@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 79/110 [**<**]({{site.baseurl}}/miles/transcript/page78) [1]({{site.baseurl}}/miles/transcript/index) ... [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) **79** [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page80)
 
+[郭文贵2019年5月19日视频 第二部分 20190519_2郭文贵先生哈德遜河直播（1） Pt4 Miles Kwok live broadcast on Hudson River.]({{site.baseurl}}/miles/transcript/2019/05/20190519-53482615)
+
+[郭文贵2019年5月19日视频 第一部分 20190519_1Pt2 Miles Kwok live broadcast on Hudson River.]({{site.baseurl}}/miles/transcript/2019/05/20190519-53482608)
+
+[郭文贵2019年5月19日视频 20190519_4昨天平板撐做了32分鐘 今天只做了25分鐘]({{site.baseurl}}/miles/transcript/2019/05/20190519-53478719)
+
 [郭文贵2019年5月18日 20190518爆料王建之死原视频！世界上谁都没有]({{site.baseurl}}/miles/transcript/2019/05/20190518-53482602)
 
 [郭文贵2019年5月16日视频 20190516_2川普回到紐約 將宴請誰呢 大家都猜是七哥]({{site.baseurl}}/miles/transcript/2019/05/20190516-53478716)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年5月3日视频 20190503_3希望＂政经关不了＂永远都不被关！文贵将和你联系！与您连线直播！只要有利于台湾和台湾人民的事我都愿意干]({{site.baseurl}}/miles/transcript/2019/05/20190503-53478688)
 
 [郭文贵2019年5月3日视频 20190503_2与战友分享日本拉面]({{site.baseurl}}/miles/transcript/2019/05/20190503-53478684)
-
-[郭文贵2019年5月2日视频 20190502霍尔木兹海峡决定灭共是否成功 毛泽东，邓小平，妈祖．给我托梦了．人民大会堂委内瑞拉，台湾香港要出大事儿．郭台铭的梦是假的，哈哈哈哈，一切都是刚刚开始。]({{site.baseurl}}/miles/transcript/2019/05/20190502-53482466)
-
-[郭文贵2019年5月1日委内瑞拉革命 20190501从委内瑞拉革命，我们可以得到如何保护台湾和香港快速灭共的最佳办法，什么是尿脸党！]({{site.baseurl}}/miles/transcript/2019/05/20190501-53482461)
-
-[郭文贵2019年4月30日视频 20190430Miles reporting safety, ROL Foundation’s iphone incident]({{site.baseurl}}/miles/transcript/2019/04/20190430-53482452)
 
 
 ## 頁面 79/110 [**<**]({{site.baseurl}}/miles/transcript/page78) [1]({{site.baseurl}}/miles/transcript/index) ... [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) **79** [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page80)

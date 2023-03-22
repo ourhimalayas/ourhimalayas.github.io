@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 92/110 [**<**]({{site.baseurl}}/miles/transcript/page91) [1]({{site.baseurl}}/miles/transcript/index) ... [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) **92** [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page93)
 
+[郭文贵2018年8月20日视频 20180820_2Snow小视频]({{site.baseurl}}/miles/transcript/2018/08/20180820-53478160)
+
+[郭文贵2018年8月19日直播 20180819_1紧急会议前苍促视频报平安]({{site.baseurl}}/miles/transcript/2018/08/20180819-53478178)
+
+[郭文贵2018年8月18日直播 20180818_1文贵推特被封,请战友不要关闭推特 王健事件相关人员受到盗国贼威胁]({{site.baseurl}}/miles/transcript/2018/08/20180818-53478174)
+
 [郭文贵2018年8月18日视频 20180818_2Snow今天要去与女朋友约会了]({{site.baseurl}}/miles/transcript/2018/08/20180818-53477255)
 
 [郭文贵2018年8月17日 20180817郭文贵曾经经历的中国主持人名星被强迫变态玩弄的血恤的7夕节！]({{site.baseurl}}/miles/transcript/2018/08/20180817-53483668)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年8月8日直播 20180808_3感恩珍惜推特这个平台]({{site.baseurl}}/miles/transcript/2018/08/20180808-53478114)
 
 [郭文贵2018年8月8日直播 20180808_2与国内来的女朋友海边兜风️️️]({{site.baseurl}}/miles/transcript/2018/08/20180808-53478109)
-
-[郭文贵2018年8月8日直播 20180808_1想念战友]({{site.baseurl}}/miles/transcript/2018/08/20180808-53478106)
-
-[郭文贵2018年8月7日视频 20180807王健被杀死前曾接触过其他国家情报部门．并通过香港中间人与文贵有联系！]({{site.baseurl}}/miles/transcript/2018/08/20180807-53482465)
-
-[郭文贵2018年8月7日直播 20180807_2今天太有成就感了 馬上要喝點酒]({{site.baseurl}}/miles/transcript/2018/08/20180807-53478104)
 
 
 ## 頁面 92/110 [**<**]({{site.baseurl}}/miles/transcript/page91) [1]({{site.baseurl}}/miles/transcript/index) ... [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) **92** [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page93)

@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 77/110 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page78)
 
+[2019年6月20日郭文贵先生直播全文字版：谈王毅讲的潘多拉盒子是什么意思]({{site.baseurl}}/miles/transcript/2019/06/20190620-53545783)
+
+[郭文贵2019年6月20日视频 20190620王毅讲的潘多拉盒子是什么意思]({{site.baseurl}}/miles/transcript/2019/06/20190620-53482793)
+
+[2019年6月18日文贵纽约时间晚上8点直播全文字版：关于香港21日再次上街]({{site.baseurl}}/miles/transcript/2019/06/20190618-53544051)
+
 [郭文贵2019年6月18日视频 20190618关于6月21日的再次示威行动]({{site.baseurl}}/miles/transcript/2019/06/20190618-53482788)
 
 [香港时间2019年6月17日文贵先生上午直播全文字版： Hong Kong Live 《战友同行》]({{site.baseurl}}/miles/transcript/2019/06/20190617-53557443)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年6月11日视频 20190611_1郭文贵先生直播连线香港]({{site.baseurl}}/miles/transcript/2019/06/20190611-53479036)
 
 [郭文贵2019年6月10日视频 20190610文贵报平安再谈，上天送给我的几个巨大的礼物？]({{site.baseurl}}/miles/transcript/2019/06/20190610-53482533)
-
-[郭文贵2019年6月10日视频 20190610_3细思小哥在喜马拉雅大使馆与小庄、文贵和班农直播]({{site.baseurl}}/miles/transcript/2019/06/20190610-53478730)
-
-[郭文贵2019年6月10日视频 20190610_2与文贵，班农直播，连线Crystal西行小宝等参加游行的战友们 “细思翻译爷爷上线”]({{site.baseurl}}/miles/transcript/2019/06/20190610-53478704)
-
-[郭文贵2019年6月9日直播 20190609_3班农先生．与郭文贵和龚小夏女士．直播香港百万人抗议大游行9小时直播]({{site.baseurl}}/miles/transcript/2019/06/20190609-53482310)
 
 
 ## 頁面 77/110 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page78)
