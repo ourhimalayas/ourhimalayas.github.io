@@ -18,7 +18,7 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguo 3/23/2023 1:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2caeuueb30)
+[@milesguo 3/23/2023 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2cadeabfa1)
 
 2023-3-22《鸡血王喜币大作战》507期嘉宾：野兽 恺叔
 
