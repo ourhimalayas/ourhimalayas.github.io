@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 75/110 [**<**]({{site.baseurl}}/miles/transcript/page74) [1]({{site.baseurl}}/miles/transcript/index) ... [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) **75** [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page76)
 
+[郭文贵2019年7月17日视频 20190717_2两架超级飞机和我们的SNOW一起起飞……文贵又进山啦……这几天我会很少上网]({{site.baseurl}}/miles/transcript/2019/07/20190717-53478815)
+
+[郭文贵2019年7月17日视频 20190717_1回答很多战友们关于郭战装的几个小问题]({{site.baseurl}}/miles/transcript/2019/07/20190717-53478811)
+
+[郭文贵2019年7月16日视频 20190716_1香港会有什么紧急情况发生？一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/07/20190716-53478808)
+
 [2019年7月15日直播全文字版：盘古大观在7月14日被北京高院公告······]({{site.baseurl}}/miles/transcript/2019/07/20190715-53626565)
 
 [郭文贵2019年7月15日视频 20190715盘古大观在7月14号被北京高院公告……将以实际价格的10％被拍卖……实际的背后的黑手就是江泽民．和江志成．孟建柱和孙力军……王岐山！这就是过去两周他们要栽赃文贵]({{site.baseurl}}/miles/transcript/2019/07/20190715-53482817)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年7月7日第二次直播 20190707_2王岐山又出手 王健“活该死”；及香港抗议将引发的CCP灭亡第一战的意义]({{site.baseurl}}/miles/transcript/2019/07/20190707-53482857)
 
 [郭文贵2019年7月7日视频 20190707_4Snow2]({{site.baseurl}}/miles/transcript/2019/07/20190707-53478781)
-
-[郭文贵2019年7月7日视频 20190707_3Snow1]({{site.baseurl}}/miles/transcript/2019/07/20190707-53478779)
-
-[2019年7月6日直播全文字版：与彭文正先生连线——灭共保台]({{site.baseurl}}/miles/transcript/2019/07/20190706-53576461)
-
-[郭文贵2019年7月6日连线彭文正 20190706Miles live with Dennis Peng - Destroying the CCP to protect Taiwan...]({{site.baseurl}}/miles/transcript/2019/07/20190706-53482844)
 
 
 ## 頁面 75/110 [**<**]({{site.baseurl}}/miles/transcript/page74) [1]({{site.baseurl}}/miles/transcript/index) ... [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) **75** [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page76)

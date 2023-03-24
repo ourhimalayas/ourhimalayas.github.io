@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 109/110 [**<**]({{site.baseurl}}/miles/transcript/page108) [1]({{site.baseurl}}/miles/transcript/index) ... [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) **109** [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page110)
 
+[郭文贵2017年5月18日第一次直播 20170518_1郭文贵的紧急联络人]({{site.baseurl}}/miles/transcript/2017/05/20170518-53483744)
+
+[郭文贵2017年5月17日视频 20170517家庭国家和社会的关系]({{site.baseurl}}/miles/transcript/2017/05/20170517-53483913)
+
+[郭文贵2017年5月16日视频 20170516]({{site.baseurl}}/miles/transcript/2017/05/20170516-53483891)
+
 [郭文贵2017年5月15日视频 20170515_1]({{site.baseurl}}/miles/transcript/2017/05/20170515-53483877)
 
 [郭文贵2017年5月15日视频 20170515_2報平安 2被骇后再开！]({{site.baseurl}}/miles/transcript/2017/05/20170515-53483772)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年5月1日与刘彦平的通话一 20170501_1]({{site.baseurl}}/miles/transcript/2017/05/20170501-53483939)
 
 [郭文贵2017年4月29日第三次直播 20170429_3推友关注过15万感谢视频]({{site.baseurl}}/miles/transcript/2017/04/20170429-53483747)
-
-[郭文贵2017年4月29日第二次直播 20170429_2过十四万感谢视频]({{site.baseurl}}/miles/transcript/2017/04/20170429-53483741)
-
-[郭文贵2017年4月29日第一次直播 20170429_1对13万推友的视频感谢]({{site.baseurl}}/miles/transcript/2017/04/20170429-53483734)
-
-[郭文贵2017年4月28日 20170428接受BBC采访的视频Miles Kwok was Interviewed by BBC on April 28th, 2017]({{site.baseurl}}/miles/transcript/2017/04/20170428-53484096)
 
 
 ## 頁面 109/110 [**<**]({{site.baseurl}}/miles/transcript/page108) [1]({{site.baseurl}}/miles/transcript/index) ... [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) **109** [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page110)

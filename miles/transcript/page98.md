@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 98/110 [**<**]({{site.baseurl}}/miles/transcript/page97) [1]({{site.baseurl}}/miles/transcript/index) ... [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) **98** [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page99)
 
+[郭文贵2018年3月21日视频 20180321谈江曾两家是如何以65%的利息放高利贷的]({{site.baseurl}}/miles/transcript/2018/03/20180321-53481917)
+
+[郭文贵2018年3月21日直播 20180321_2报平安短视频]({{site.baseurl}}/miles/transcript/2018/03/20180321-53477363)
+
+[郭文贵2018年3月20日第二次直播 20180320_2谈盗国贼靠吴征能依法治国实现中国梦吗]({{site.baseurl}}/miles/transcript/2018/03/20180320-53481862)
+
 [郭文贵2018年3月20日第一次直播 20180320_1今天我们完成了对．谣言．诽谤．威胁．文贵的陈军先生．袁健斌先生．林宇丹女士(美猴王)三个人的控告！我们绝不会忘掉一个帮助我文贵的任何一个恩人！也不会放过一个伤害我们的坏人！]({{site.baseurl}}/miles/transcript/2018/03/20180320-53481833)
 
 [郭文贵2018年3月18日视频 20180318再谈如何掏肛盗国贼]({{site.baseurl}}/miles/transcript/2018/03/20180318-53481807)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年3月8日直播 20180308_1修宪的本质和盗国有什么区别？以黑治国与2018两会什么关系？]({{site.baseurl}}/miles/transcript/2018/03/20180308-53477307)
 
 [郭文贵2018年3月7日报平安视频 20180307修宪是为了人民吗？当然不是．修宪的本质是恐惧！]({{site.baseurl}}/miles/transcript/2018/03/20180307-53481491)
-
-[郭文贵2018年3月5日直播 2018030517号后的两会你们会看到一个完全不一样的让你们惊讶的结果]({{site.baseurl}}/miles/transcript/2018/03/20180305-53477298)
-
-[郭文贵2018年3月4日报平安视频 20180304_3文贵呼吁所有的援郭的战友们以家庭安全．正常生活为重……全球一致行动！]({{site.baseurl}}/miles/transcript/2018/03/20180304-53481371)
-
-[郭文贵2018年3月4日第一次直播 20180304_1这是3月4日录制的第二个视频！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/03/20180304-53481301)
 
 
 ## 頁面 98/110 [**<**]({{site.baseurl}}/miles/transcript/page97) [1]({{site.baseurl}}/miles/transcript/index) ... [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) **98** [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page99)

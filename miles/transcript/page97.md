@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 97/110 [**<**]({{site.baseurl}}/miles/transcript/page96) [1]({{site.baseurl}}/miles/transcript/index) ... [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) **97** [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page98)
 
+[郭文贵2018年4月12日直播 20180412_2内涵段子是中国民主法治自由的新纪元！]({{site.baseurl}}/miles/transcript/2018/04/20180412-53477466)
+
+[郭文贵2018年4月12日直播 20180412_1在华盛顿的两天行程，夏夜良会不会在自己的家庭旅馆里按摄像头！]({{site.baseurl}}/miles/transcript/2018/04/20180412-53477439)
+
+[郭文贵2018年4月10日视频 20180410文贵谈见宝胜．与到底该不该反习！]({{site.baseurl}}/miles/transcript/2018/04/20180410-53482268)
+
 [郭文贵2018年4月9日视频 20180409尊敬的战友们好：文贵为什么在华盛顿！]({{site.baseurl}}/miles/transcript/2018/04/20180409-53482244)
 
 [郭文贵2018年4月7日第二次直播 20180407_2吴晓辉与胡舒立-海航．是你么逻辑上的关系！]({{site.baseurl}}/miles/transcript/2018/04/20180407-53483681)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年3月26日第二次直播 20180326_2谈他们为什么让一个女人裸站几个小时]({{site.baseurl}}/miles/transcript/2018/03/20180326-53481970)
 
 [郭文贵2018年3月24日视频 20180324报平安短视频]({{site.baseurl}}/miles/transcript/2018/03/20180324-53481957)
-
-[郭文贵2018年3月21日视频 20180321谈江曾两家是如何以65%的利息放高利贷的]({{site.baseurl}}/miles/transcript/2018/03/20180321-53481917)
-
-[郭文贵2018年3月21日直播 20180321_2报平安短视频]({{site.baseurl}}/miles/transcript/2018/03/20180321-53477363)
-
-[郭文贵2018年3月20日第二次直播 20180320_2谈盗国贼靠吴征能依法治国实现中国梦吗]({{site.baseurl}}/miles/transcript/2018/03/20180320-53481862)
 
 
 ## 頁面 97/110 [**<**]({{site.baseurl}}/miles/transcript/page96) [1]({{site.baseurl}}/miles/transcript/index) ... [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) **97** [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page98)

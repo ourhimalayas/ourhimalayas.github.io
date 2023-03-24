@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 69/110 [**<**]({{site.baseurl}}/miles/transcript/page68) [1]({{site.baseurl}}/miles/transcript/index) ... [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) **69** [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page70)
 
+[2019年9月22日文贵大直播全文字版：CCP突发三大战役挑战全球，妄图共产天下，垂死挣扎！]({{site.baseurl}}/miles/transcript/2019/09/20190922-53861830)
+
+[郭文贵2019年9月22日直播 20190922CCP突发三大战役挑战全球，妄图共产天下，垂死挣扎！]({{site.baseurl}}/miles/transcript/2019/09/20190922-53483142)
+
+[2019年9月20日郭先生报平安感谢战友们的担心全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190920-53848055)
+
 [郭文贵2019年9月20日视频 20190920感谢战友们的担心，文贵为什么这两天没直播。香港最艰难时期是十月后，请香港战友加倍小心！]({{site.baseurl}}/miles/transcript/2019/09/20190920-53483149)
 
 [2019年9月17日文贵报平安全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190917-53852069)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年9月9日 文贵、班农先生谈：川普会什么时候决定脱钩，马云离开阿里以后的结局和美国到底是否值得中国人民依靠全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190909-53878272)
 
 [2019年9月9日直播为什么香港的富豪被威胁他们隐藏海外资产共产党可以没收全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190909-53835153)
-
-[郭文贵2019年9月9日第一次直播 20190909_1路德访谈文贵、班农先生：川普会什么时候决定脱钩？马云离开阿里以后的结局？美国到底是否值得中国人民依靠？]({{site.baseurl}}/miles/transcript/2019/09/20190909-53483061)
-
-[郭文贵2019年9月9日第二次直播 20190909_2尊敬的战友们好！你们健身了吗？你们传播香港危机的真相了吗？为什么香港的富豪．被威胁他们隐蔽海外资产共产党可以没收！昨天香港的金融市场再次地被共产党用电脑控制，这意味着什么？]({{site.baseurl}}/miles/transcript/2019/09/20190909-53483052)
-
-[2019年9月8日 美国国会山开山灭共助港，李小加港交所期货交易内幕，中共如何用通货膨胀奴役中国人民全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190908-53835472)
 
 
 ## 頁面 69/110 [**<**]({{site.baseurl}}/miles/transcript/page68) [1]({{site.baseurl}}/miles/transcript/index) ... [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) **69** [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page70)

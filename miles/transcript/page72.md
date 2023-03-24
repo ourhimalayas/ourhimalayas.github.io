@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 72/110 [**<**]({{site.baseurl}}/miles/transcript/page71) [1]({{site.baseurl}}/miles/transcript/index) ... [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) **72** [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page73)
 
+[2019年8月14日《文贵大直播》全文字版：谈美国已秘密调查中共安插在香港警队中的PLA 操纵美国股市]({{site.baseurl}}/miles/transcript/2019/08/20190814-53741165)
+
+[郭文贵2019年8月14日视频 20190814Miles Kwok letting everyone know he's safe. USA has secretly investigated the presence...]({{site.baseurl}}/miles/transcript/2019/08/20190814-53483035)
+
+[2019年8月13日《文贵大直播》全文字版：谈未来的48小时对香港所有上街抗议的同胞极为重要]({{site.baseurl}}/miles/transcript/2019/08/20190813-53741214)
+
 [郭文贵2019年8月13日视频 20190813关于香港情况]({{site.baseurl}}/miles/transcript/2019/08/20190813-53483027)
 
 [2019年8月12日文贵大直播全文字版：报平安 和在车上直播合集：香港人现在的遭遇和共产党在香港的镇压]({{site.baseurl}}/miles/transcript/2019/08/20190812-53795616)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年8月4日视频 20190804_1香港要出随时出大事！传统媒体界转向爆料革命？]({{site.baseurl}}/miles/transcript/2019/08/20190804-53478894)
 
 [2019年8月3日文贵大直播全文字版：关注香港即将发生的大事]({{site.baseurl}}/miles/transcript/2019/08/20190803-53707154)
-
-[郭文贵2019年8月3日视频 20190803关于起诉华尔街日报]({{site.baseurl}}/miles/transcript/2019/08/20190803-53482943)
-
-[郭文贵2019年8月3日视频 20190803_2-當共產黨說不幹甚麼的時候 就是他想幹甚麼的時候]({{site.baseurl}}/miles/transcript/2019/08/20190803-53478890)
-
-[郭文贵2019年8月2日视频 20190802_1]({{site.baseurl}}/miles/transcript/2019/08/20190802-53478885)
 
 
 ## 頁面 72/110 [**<**]({{site.baseurl}}/miles/transcript/page71) [1]({{site.baseurl}}/miles/transcript/index) ... [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) **72** [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page73)

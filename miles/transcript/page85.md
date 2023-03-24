@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 85/110 [**<**]({{site.baseurl}}/miles/transcript/page84) [1]({{site.baseurl}}/miles/transcript/index) ... [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) **85** [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page86)
 
+[郭文贵2019年1月1日视频 20190101_2以法灭共开始倒计时]({{site.baseurl}}/miles/transcript/2019/01/20190101-53478469)
+
+[郭文贵2018年12月31日视频 20181231_1明天2019年1月1日纽约时间上午10点整，北京时间晚上11点整，卡丽熙將采访郭文贵]({{site.baseurl}}/miles/transcript/2018/12/20181231-53478467)
+
+[郭文贵2018年12月30日视频 20181230_1川普总统将向CCP要求中国人必须有宗教的自由．信仰的自由！]({{site.baseurl}}/miles/transcript/2018/12/20181230-53478465)
+
 [郭文贵2018年12月29日谈马建案 20181229接受路德先生的访谈，谈马建案与2019年爆料计划和中国私人企业家的命运]({{site.baseurl}}/miles/transcript/2018/12/20181229-53481507)
 
 [郭文贵2018年12月28日视频 20181228_1昨天晚上两位老领导打电话给我让我当俊杰说我身边有千军万马在等命令随时灭我我好怕怕哦]({{site.baseurl}}/miles/transcript/2018/12/20181228-53478461)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年12月9日视频 20181209量震床上功夫和G20中美峰會的真相，孟晚舟女士在加拿大被抓與華為公司的背后真相，張首晟先生是自殺還是被殺。]({{site.baseurl}}/miles/transcript/2018/12/20181209-53479444)
 
 [郭文贵2018年12月08日视频 20181208船上跟大家聊聊天,.张首晟绝不会自杀!]({{site.baseurl}}/miles/transcript/2018/12/20181208-53478471)
-
-[郭文贵2018年12月7日视频 20181207_1文贵现在会捞鱼了]({{site.baseurl}}/miles/transcript/2018/12/20181207-53478556)
-
-[郭文贵2018年12月4日视频 20181204_1正在研究設計的郭戰友領帶是如何的特別]({{site.baseurl}}/miles/transcript/2018/12/20181204-53478554)
-
-[郭文贵2018年12月2日视频 20181202杨澜找钥匙和G20会议的背后真相，开棺验王健的尸，谈谈王岐山，孟建柱，吴征。]({{site.baseurl}}/miles/transcript/2018/12/20181202-53477141)
 
 
 ## 頁面 85/110 [**<**]({{site.baseurl}}/miles/transcript/page84) [1]({{site.baseurl}}/miles/transcript/index) ... [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) **85** [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page86)

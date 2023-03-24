@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 87/110 [**<**]({{site.baseurl}}/miles/transcript/page86) [1]({{site.baseurl}}/miles/transcript/index) ... [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) **87** [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page88)
 
+[郭文贵2018年11月15日视频 20181115_3]({{site.baseurl}}/miles/transcript/2018/11/20181115-53478397)
+
+[郭文贵2018年11月15日视频 20181115_2]({{site.baseurl}}/miles/transcript/2018/11/20181115-53478395)
+
+[郭文贵2018年11月14日视频 20181114王健之死真相新聞發布會為什麼可能從11月19日延後一天改為11月20日]({{site.baseurl}}/miles/transcript/2018/11/20181114-53481110)
+
 [郭文贵2018年11月13日视频 20181113民營企業家不能再成為共產黨的尿壺！]({{site.baseurl}}/miles/transcript/2018/11/20181113-53480659)
 
 [郭文贵2018年11月10日视频 20181110_1距离王健发布会还有9天 文贵海上吃火锅给大家报平安(政事小哥版)]({{site.baseurl}}/miles/transcript/2018/11/20181110-53478393)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年10月23日视频 20181023_4這幾天阿裡巴巴及騰訊的股票 港幣人民幣匯率 期指的變化怎麼回事]({{site.baseurl}}/miles/transcript/2018/10/20181023-53478335)
 
 [郭文贵2018年10月23日视频 20181023_3給大家講一個猥瑣的驢子夏的笑話]({{site.baseurl}}/miles/transcript/2018/10/20181023-53478333)
-
-[郭文贵2018年10月23日视频 20181023_2昨晚澳門的一個朋友突然出現在我家 嚇死我了]({{site.baseurl}}/miles/transcript/2018/10/20181023-53478330)
-
-[郭文贵2018年10月23日视频 20181023_1Snow今天美容了 也做過了體檢 非常健康]({{site.baseurl}}/miles/transcript/2018/10/20181023-53478328)
-
-[郭文贵2018年10月22日视频 20181022_2打中CCP鏢靶兩次 贏得第一]({{site.baseurl}}/miles/transcript/2018/10/20181022-53478325)
 
 
 ## 頁面 87/110 [**<**]({{site.baseurl}}/miles/transcript/page86) [1]({{site.baseurl}}/miles/transcript/index) ... [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) **87** [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page88)

@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 90/110 [**<**]({{site.baseurl}}/miles/transcript/page89) [1]({{site.baseurl}}/miles/transcript/index) ... [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) **90** [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page91)
 
+[郭文贵2018年9月23日视频 20180923_2Snow攜女友隨文貴搭機飛往鄰國參加重要會議]({{site.baseurl}}/miles/transcript/2018/09/20180923-53478298)
+
+[郭文贵2018年9月23日视频 20180923_1天下所有人都能中秋快樂 團圓]({{site.baseurl}}/miles/transcript/2018/09/20180923-53478297)
+
+[郭文贵2018年9月22日视频 20180922香港．台湾．上海．股市．汇市……可能发生天翻地覆的变化！]({{site.baseurl}}/miles/transcript/2018/09/20180922-53482637)
+
 [郭文贵2018年9月22日视频 20180922_4文貴周末為家人做魚肉丸 用趕麵杖趕魚肉]({{site.baseurl}}/miles/transcript/2018/09/20180922-53478295)
 
 [郭文贵2018年9月22日视频 20180922_3文貴周末為家人做魚肉丸]({{site.baseurl}}/miles/transcript/2018/09/20180922-53478290)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年9月12日第二次直播 20180912_2文贵先生進Sara Discord聊天室前]({{site.baseurl}}/miles/transcript/2018/09/20180912-53478251)
 
 [郭文贵2018年9月12日第四次直播 20180912_4谈今天去川普家，川普的办公室和餐厅完全模仿白宫；川普的厨师居然从裕达国贸出来的；当年在中南海的时候，习近平还在门外瞎转悠；李友答应帮助胡舒立生个孩子]({{site.baseurl}}/miles/transcript/2018/09/20180912-53478246)
-
-[郭文贵2018年9月11日视频 20180911文贵在船上与大家听音乐，并承诺给中国老兵捐两亿美元。]({{site.baseurl}}/miles/transcript/2018/09/20180911-53482567)
-
-[郭文贵2018年9月11日视频 20180911_3願美國不會再有911]({{site.baseurl}}/miles/transcript/2018/09/20180911-53478225)
-
-[郭文贵2018年9月11日视频 20180911_2文贵在船上与大家听音乐，并承诺给中国老兵捐两亿美元。]({{site.baseurl}}/miles/transcript/2018/09/20180911-53478221)
 
 
 ## 頁面 90/110 [**<**]({{site.baseurl}}/miles/transcript/page89) [1]({{site.baseurl}}/miles/transcript/index) ... [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) **90** [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page91)

@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 99/110 [**<**]({{site.baseurl}}/miles/transcript/page98) [1]({{site.baseurl}}/miles/transcript/index) ... [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) **99** [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page100)
 
+[郭文贵2018年3月5日直播 2018030517号后的两会你们会看到一个完全不一样的让你们惊讶的结果]({{site.baseurl}}/miles/transcript/2018/03/20180305-53477298)
+
+[郭文贵2018年3月4日报平安视频 20180304_3文贵呼吁所有的援郭的战友们以家庭安全．正常生活为重……全球一致行动！]({{site.baseurl}}/miles/transcript/2018/03/20180304-53481371)
+
+[郭文贵2018年3月4日第一次直播 20180304_1这是3月4日录制的第二个视频！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/03/20180304-53481301)
+
 [郭文贵2018年3月4日第二次直播 20180304_2这是3月4号的视频！]({{site.baseurl}}/miles/transcript/2018/03/20180304-53481270)
 
 [郭文贵2018年3月3日视频 20180303出其不意 ,会师挺郭后援会成员! 场面感人!!!]({{site.baseurl}}/miles/transcript/2018/03/20180303-53477358)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年2月12日 20180212_2首次在郭媒体直播放博讯拿一删帖证据,对陈军最后一次说明,网友互动中有猛料第二段]({{site.baseurl}}/miles/transcript/2018/02/20180212-53481375)
 
 [郭文贵2018年2月12日视频 20180212_3 三小时版本郭文贵首次在郭媒体上直播！放出博讯拿钱删帖证据！对陈军做最后一次说明！大量网友互动内中有猛料！]({{site.baseurl}}/miles/transcript/2018/02/20180212-53477343)
-
-[郭文贵2018年2月11日 20180211_1为什么这么多战友支持文贵]({{site.baseurl}}/miles/transcript/2018/02/20180211-53484076)
-
-[郭文贵2018年2月11日视频 20180211_2郭文贵安保有漏洞，是谁向上海局报告的？]({{site.baseurl}}/miles/transcript/2018/02/20180211-53477153)
-
-[郭文贵2018年2月10日第六次直播 20180210_6朋友和民主骗子，伪君子陈军，到底想干什么？]({{site.baseurl}}/miles/transcript/2018/02/20180210-53484030)
 
 
 ## 頁面 99/110 [**<**]({{site.baseurl}}/miles/transcript/page98) [1]({{site.baseurl}}/miles/transcript/index) ... [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) **99** [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page100)

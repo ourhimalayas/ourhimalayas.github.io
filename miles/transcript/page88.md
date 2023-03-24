@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 88/110 [**<**]({{site.baseurl}}/miles/transcript/page87) [1]({{site.baseurl}}/miles/transcript/index) ... [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) **88** [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page89)
 
+[郭文贵2018年10月23日视频 20181023_2昨晚澳門的一個朋友突然出現在我家 嚇死我了]({{site.baseurl}}/miles/transcript/2018/10/20181023-53478330)
+
+[郭文贵2018年10月23日视频 20181023_1Snow今天美容了 也做過了體檢 非常健康]({{site.baseurl}}/miles/transcript/2018/10/20181023-53478328)
+
+[郭文贵2018年10月22日视频 20181022_2打中CCP鏢靶兩次 贏得第一]({{site.baseurl}}/miles/transcript/2018/10/20181022-53478325)
+
 [郭文贵2018年10月22日视频 20181022_1加林槍射擊CCP]({{site.baseurl}}/miles/transcript/2018/10/20181022-53478324)
 
 [郭文贵2018年10月21日 20181021_1澳門鄭曉松的被殺是因為孟宏偉 這是又一次的黑吃黑]({{site.baseurl}}/miles/transcript/2018/10/20181021-53483707)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年10月10日视频 20181010_2这个来自黎巴嫩的马黑地是AMAC飞机装修公司的主席！他与UBS银行孟宏伟．海航一起共同策划了这起骇人听闻的诈骗抢劫AMAC，CEO Muhiddin案！]({{site.baseurl}}/miles/transcript/2018/10/20181010-53477453)
 
 [郭文贵2018年10月9日instagram直播 20181009CCP如果攻击台湾美国会不会出兵为什么说港币和人民币会垮掉．保护台湾香港极为重要！]({{site.baseurl}}/miles/transcript/2018/10/20181009-53482837)
-
-[郭文贵2018年10月9日视频 20181009_2ccp如果攻击台湾美国会不会出兵为什么说港币和人民币会垮掉．保护台湾香港极为重要！]({{site.baseurl}}/miles/transcript/2018/10/20181009-53477442)
-
-[郭文贵2018年10月8日视频 20181008_2与黑水公司朋友射击]({{site.baseurl}}/miles/transcript/2018/10/20181008-53478122)
-
-[郭文贵2018年10月8日视频 20181008_1与黑水公司朋友射击]({{site.baseurl}}/miles/transcript/2018/10/20181008-53478121)
 
 
 ## 頁面 88/110 [**<**]({{site.baseurl}}/miles/transcript/page87) [1]({{site.baseurl}}/miles/transcript/index) ... [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) **88** [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page89)

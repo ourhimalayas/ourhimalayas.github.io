@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 77/110 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page78)
 
+[2019年6月23日郭文贵先生直播全文字版：念从心起，力量无比；念念不忘，必有回响]({{site.baseurl}}/miles/transcript/2019/06/20190623-53545815)
+
+[郭文贵2019年6月23日视频 20190623聊聊细丝小哥和庄列宏先生这＂两只黑手＂路德先生直播中发生的紧急事件。念从心起 力量无比 念念不忘 必有回响]({{site.baseurl}}/miles/transcript/2019/06/20190623-53482704)
+
+[2019年6月22日文贵直播全文字版：中共如何和塔利班共同反恐]({{site.baseurl}}/miles/transcript/2019/06/20190622-53542530)
+
 [2019年6月20日郭文贵先生直播全文字版：谈王毅讲的潘多拉盒子是什么意思]({{site.baseurl}}/miles/transcript/2019/06/20190620-53545783)
 
 [郭文贵2019年6月20日视频 20190620王毅讲的潘多拉盒子是什么意思]({{site.baseurl}}/miles/transcript/2019/06/20190620-53482793)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年6月12日视频 20190612_2细思喜马拉雅与文贵，班农直播，关注香港游行！（下）]({{site.baseurl}}/miles/transcript/2019/06/20190612-53479066)
 
 [郭文贵2019年6月12日视频 20190612_1细思喜马拉雅与文贵，班农直播，关注香港游行！（上）]({{site.baseurl}}/miles/transcript/2019/06/20190612-53479060)
-
-[郭文贵2019年6月12日视频 20190612_6香港战友在前线]({{site.baseurl}}/miles/transcript/2019/06/20190612-53478087)
-
-[郭文贵2019年6月11日视频 20190611_1郭文贵先生直播连线香港]({{site.baseurl}}/miles/transcript/2019/06/20190611-53479036)
-
-[郭文贵2019年6月10日视频 20190610文贵报平安再谈，上天送给我的几个巨大的礼物？]({{site.baseurl}}/miles/transcript/2019/06/20190610-53482533)
 
 
 ## 頁面 77/110 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page78)

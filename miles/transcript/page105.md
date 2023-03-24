@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 105/110 [**<**]({{site.baseurl}}/miles/transcript/page104) [1]({{site.baseurl}}/miles/transcript/index) ... [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) **105** [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page106)
 
+[郭文贵2017年9月6日视频 20170906王岐山．孟建柱．孙力军．傅政华．如何对待女人！]({{site.baseurl}}/miles/transcript/2017/09/20170906-53483863)
+
+[郭文贵2017年9月5日直播 20170905_1新领导孙力军副部长有了大决定]({{site.baseurl}}/miles/transcript/2017/09/20170905-53482795)
+
+[郭文贵2017年9月4日关于鲍彤先生 20170904关于鲍彤先生痛心我与老领导见面的音频，几个问题得澄清！]({{site.baseurl}}/miles/transcript/2017/09/20170904-53483954)
+
 [郭文贵2017年9月3日直播 20170903_1直播怀疑刘呈杰姐姐刚死。三段视频，被骇四次]({{site.baseurl}}/miles/transcript/2017/09/20170903-53482789)
 
 [郭文贵2017年9月2日 20170902爆孟建柱孙力军盗国淫法阴谋杀人灭口，盗国系列:第二季第二集]({{site.baseurl}}/miles/transcript/2017/09/20170902-53483943)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年8月22日直播 20170822_2]({{site.baseurl}}/miles/transcript/2017/08/20170822-53482776)
 
 [郭文贵2017年8月21日视频 20170821盗国贼害怕了，用假女助理推特、假音频攻击文贵。’’今后10天不爆料，估计是在等国内的回应，否则孟建柱政法系就是下一波被爆料的对象]({{site.baseurl}}/miles/transcript/2017/08/20170821-53484299)
-
-[郭文贵2017年8月20日直播 20170820_1推特四段小视频合集]({{site.baseurl}}/miles/transcript/2017/08/20170820-53482774)
-
-[郭文贵2017年8月19日视频 20170819健身报平安小视频：既兴奋又难过。大战在即！和平革命！]({{site.baseurl}}/miles/transcript/2017/08/20170819-53483784)
-
-[郭文贵2017年8月18日明镜专访第五期 20170818]({{site.baseurl}}/miles/transcript/2017/08/20170818-53484121)
 
 
 ## 頁面 105/110 [**<**]({{site.baseurl}}/miles/transcript/page104) [1]({{site.baseurl}}/miles/transcript/index) ... [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) **105** [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page106)

@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 94/110 [**<**]({{site.baseurl}}/miles/transcript/page93) [1]({{site.baseurl}}/miles/transcript/index) ... [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) **94** [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page95)
 
+[郭文贵2018年7月9日视频 20180709王健拍照死．孟的张明鹏院长被抓．709案件国际高度关注！代表着什么？]({{site.baseurl}}/miles/transcript/2018/07/20180709-53482390)
+
+[郭文贵2018年7月8日视频 20180708在船上报平安]({{site.baseurl}}/miles/transcript/2018/07/20180708-53477214)
+
+[郭文贵2018年7月6日视频 20180706王健不是正常死亡！真相既将大白于天下！很可能是王歧山干的！]({{site.baseurl}}/miles/transcript/2018/07/20180706-53482380)
+
 [郭文贵2018年7月4日直播 20180704_1郭文贵先生在群里对王健突然丧命的评价]({{site.baseurl}}/miles/transcript/2018/07/20180704-53478031)
 
 [郭文贵2018年7月2日直播 20180702_2路德访谈约翰小哥時文貴之講話]({{site.baseurl}}/miles/transcript/2018/07/20180702-53478026)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年6月5日直播 20180605_2 看了万润南先生的视频后的感想！]({{site.baseurl}}/miles/transcript/2018/06/20180605-53477847)
 
 [郭文贵2018年6月5日直播 20180605_1拉斯维加斯的会议出钱者．A级通缉犯成水炎的过去与现在！]({{site.baseurl}}/miles/transcript/2018/06/20180605-53477838)
-
-[郭文贵2018年6月4日直播 20180604_1红冰与习近平拍女人屁股．砖拍李克强全是吹象乂……！]({{site.baseurl}}/miles/transcript/2018/06/20180604-53477829)
-
-[郭文贵2018年6月3日直播 20180603_1文贵先生来到聊天室(51:53起)和网友共同热议六四！文贵先生爆料范冰冰已经到了洛杉矶，上面领导打招呼尽快离开。]({{site.baseurl}}/miles/transcript/2018/06/20180603-53477823)
-
-[郭文贵2018年6月2日 20180602接受安红女士．丘岳首先生釆访．纪念六四．及袁红冰．郭宝胜．赖建平的盗骗之劣术！]({{site.baseurl}}/miles/transcript/2018/06/20180602-53483787)
 
 
 ## 頁面 94/110 [**<**]({{site.baseurl}}/miles/transcript/page93) [1]({{site.baseurl}}/miles/transcript/index) ... [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) **94** [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page95)

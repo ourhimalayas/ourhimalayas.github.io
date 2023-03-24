@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 96/110 [**<**]({{site.baseurl}}/miles/transcript/page95) [1]({{site.baseurl}}/miles/transcript/index) ... [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) **96** [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page97)
 
+[郭文贵2018年5月1日直播 20180501_1我们中华名族遇到魔鬼了。]({{site.baseurl}}/miles/transcript/2018/05/20180501-53477762)
+
+[郭文贵2018年4月29日直播 20180429_2文贵与战友聊天！]({{site.baseurl}}/miles/transcript/2018/04/20180429-53477742)
+
+[郭文贵2018年4月29日直播 20180429_1谈谈对于爆料协调中心的态度，和最近发生的一些事情。]({{site.baseurl}}/miles/transcript/2018/04/20180429-53477712)
+
 [郭文贵2018年4月28日视频 20180428金正恩是我们学习的坏榜样]({{site.baseurl}}/miles/transcript/2018/04/20180428-53482334)
 
 [郭文贵2018年4月26日视频 20180426在西香格里拉酒店被抓嫖娼两位歌星是谁？]({{site.baseurl}}/miles/transcript/2018/04/20180426-53482330)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年4月13日视频 20180413_1谈为什么要爆杨洁篪的料]({{site.baseurl}}/miles/transcript/2018/04/20180413-53482275)
 
 [郭文贵2018年4月13日直播 20180413_2跟战友分享下美景，不聊贸易战，南海军演，王岐山访美和杨洁篪]({{site.baseurl}}/miles/transcript/2018/04/20180413-53477526)
-
-[郭文贵2018年4月12日直播 20180412_2内涵段子是中国民主法治自由的新纪元！]({{site.baseurl}}/miles/transcript/2018/04/20180412-53477466)
-
-[郭文贵2018年4月12日直播 20180412_1在华盛顿的两天行程，夏夜良会不会在自己的家庭旅馆里按摄像头！]({{site.baseurl}}/miles/transcript/2018/04/20180412-53477439)
-
-[郭文贵2018年4月10日视频 20180410文贵谈见宝胜．与到底该不该反习！]({{site.baseurl}}/miles/transcript/2018/04/20180410-53482268)
 
 
 ## 頁面 96/110 [**<**]({{site.baseurl}}/miles/transcript/page95) [1]({{site.baseurl}}/miles/transcript/index) ... [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) **96** [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page97)

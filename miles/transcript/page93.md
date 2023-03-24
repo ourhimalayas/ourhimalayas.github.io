@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 93/110 [**<**]({{site.baseurl}}/miles/transcript/page92) [1]({{site.baseurl}}/miles/transcript/index) ... [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) **93** [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page94)
 
+[郭文贵2018年8月8日直播 20180808_4盗国贼为了掩盖杀王建的罪恶接下来将有以下的行动]({{site.baseurl}}/miles/transcript/2018/08/20180808-53478118)
+
+[郭文贵2018年8月8日直播 20180808_3感恩珍惜推特这个平台]({{site.baseurl}}/miles/transcript/2018/08/20180808-53478114)
+
+[郭文贵2018年8月8日直播 20180808_2与国内来的女朋友海边兜风️️️]({{site.baseurl}}/miles/transcript/2018/08/20180808-53478109)
+
 [郭文贵2018年8月8日直播 20180808_1想念战友]({{site.baseurl}}/miles/transcript/2018/08/20180808-53478106)
 
 [郭文贵2018年8月7日视频 20180807王健被杀死前曾接触过其他国家情报部门．并通过香港中间人与文贵有联系！]({{site.baseurl}}/miles/transcript/2018/08/20180807-53482465)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年7月17日路德访谈 20180717_4高清版 王健在法国普罗旺斯是怎么被王歧山杀死的！]({{site.baseurl}}/miles/transcript/2018/07/20180717-53478371)
 
 [郭文贵2018年7月10日视频 20180710王岐山设计王健可能用诈死．被杀事件使海航重组．将盗国财富合法化！王岐山已经开始出大招了！]({{site.baseurl}}/miles/transcript/2018/07/20180710-53482405)
-
-[郭文贵2018年7月9日视频 20180709王健拍照死．孟的张明鹏院长被抓．709案件国际高度关注！代表着什么？]({{site.baseurl}}/miles/transcript/2018/07/20180709-53482390)
-
-[郭文贵2018年7月8日视频 20180708在船上报平安]({{site.baseurl}}/miles/transcript/2018/07/20180708-53477214)
-
-[郭文贵2018年7月6日视频 20180706王健不是正常死亡！真相既将大白于天下！很可能是王歧山干的！]({{site.baseurl}}/miles/transcript/2018/07/20180706-53482380)
 
 
 ## 頁面 93/110 [**<**]({{site.baseurl}}/miles/transcript/page92) [1]({{site.baseurl}}/miles/transcript/index) ... [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) **93** [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page94)

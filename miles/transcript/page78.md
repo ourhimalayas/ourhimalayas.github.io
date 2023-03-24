@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 78/110 [**<**]({{site.baseurl}}/miles/transcript/page77) [1]({{site.baseurl}}/miles/transcript/index) ... [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) **78** [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page79)
 
+[郭文贵2019年6月12日视频 20190612_6香港战友在前线]({{site.baseurl}}/miles/transcript/2019/06/20190612-53478087)
+
+[郭文贵2019年6月11日视频 20190611_1郭文贵先生直播连线香港]({{site.baseurl}}/miles/transcript/2019/06/20190611-53479036)
+
+[郭文贵2019年6月10日视频 20190610文贵报平安再谈，上天送给我的几个巨大的礼物？]({{site.baseurl}}/miles/transcript/2019/06/20190610-53482533)
+
 [郭文贵2019年6月10日视频 20190610_3细思小哥在喜马拉雅大使馆与小庄、文贵和班农直播]({{site.baseurl}}/miles/transcript/2019/06/20190610-53478730)
 
 [郭文贵2019年6月10日视频 20190610_2与文贵，班农直播，连线Crystal西行小宝等参加游行的战友们 “细思翻译爷爷上线”]({{site.baseurl}}/miles/transcript/2019/06/20190610-53478704)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年5月23日直播 20190523鲁仁达先生与文贵在线互访直播]({{site.baseurl}}/miles/transcript/2019/05/20190523-53482675)
 
 [郭文贵2019年5月23日直播 20190523_2郭文贵先生与鲁任达先生直播 不完整高清版]({{site.baseurl}}/miles/transcript/2019/05/20190523-53478088)
-
-[郭文贵2019年5月21日视频 20190521_1天哪！中共的天机又来了！还要延续三十年控制中国]({{site.baseurl}}/miles/transcript/2019/05/20190521-53478724)
-
-[郭文贵2019年5月20日视频 20190520接下来．我们中国及香港的经济．金融．将一塌糊涂．远超出大家的想象]({{site.baseurl}}/miles/transcript/2019/05/20190520-53482631)
-
-[郭文贵2019年5月19日视频 第三部分 20190519_3Pt5 Miles Kwok live broadcast on Hudson River.]({{site.baseurl}}/miles/transcript/2019/05/20190519-53482626)
 
 
 ## 頁面 78/110 [**<**]({{site.baseurl}}/miles/transcript/page77) [1]({{site.baseurl}}/miles/transcript/index) ... [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) **78** [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page79)

@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 89/110 [**<**]({{site.baseurl}}/miles/transcript/page88) [1]({{site.baseurl}}/miles/transcript/index) ... [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) **89** [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page90)
 
+[郭文贵2018年10月9日视频 20181009_2ccp如果攻击台湾美国会不会出兵为什么说港币和人民币会垮掉．保护台湾香港极为重要！]({{site.baseurl}}/miles/transcript/2018/10/20181009-53477442)
+
+[郭文贵2018年10月8日视频 20181008_2与黑水公司朋友射击]({{site.baseurl}}/miles/transcript/2018/10/20181008-53478122)
+
+[郭文贵2018年10月8日视频 20181008_1与黑水公司朋友射击]({{site.baseurl}}/miles/transcript/2018/10/20181008-53478121)
+
 [郭文贵2018年10月6日 20181006文贵与班农接受著名对冲基金经理采访,讲述中共政治黑幕和孟宏伟失踪事件]({{site.baseurl}}/miles/transcript/2018/10/20181006-53482777)
 
 [郭文贵2018年10月6日视频 20181006_5]({{site.baseurl}}/miles/transcript/2018/10/20181006-53478334)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年9月26日视频 20180926_1Snow: 搞幾個娘兒們算啥腐敗啊]({{site.baseurl}}/miles/transcript/2018/09/20180926-53478304)
 
 [郭文贵2018年9月24日视频 20180924_1]({{site.baseurl}}/miles/transcript/2018/09/20180924-53478301)
-
-[郭文贵2018年9月23日视频 20180923_2Snow攜女友隨文貴搭機飛往鄰國參加重要會議]({{site.baseurl}}/miles/transcript/2018/09/20180923-53478298)
-
-[郭文贵2018年9月23日视频 20180923_1天下所有人都能中秋快樂 團圓]({{site.baseurl}}/miles/transcript/2018/09/20180923-53478297)
-
-[郭文贵2018年9月22日视频 20180922香港．台湾．上海．股市．汇市……可能发生天翻地覆的变化！]({{site.baseurl}}/miles/transcript/2018/09/20180922-53482637)
 
 
 ## 頁面 89/110 [**<**]({{site.baseurl}}/miles/transcript/page88) [1]({{site.baseurl}}/miles/transcript/index) ... [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) **89** [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page90)

@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 80/110 [**<**]({{site.baseurl}}/miles/transcript/page79) [1]({{site.baseurl}}/miles/transcript/index) ... [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) **80** [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page81)
 
+[郭文贵2019年5月3日视频 20190503_4文贵在做平板称时的视频做得不标准，希望战友们不要秀文贵这样的做共28分钟。]({{site.baseurl}}/miles/transcript/2019/05/20190503-53478694)
+
+[郭文贵2019年5月3日视频 20190503_3希望＂政经关不了＂永远都不被关！文贵将和你联系！与您连线直播！只要有利于台湾和台湾人民的事我都愿意干]({{site.baseurl}}/miles/transcript/2019/05/20190503-53478688)
+
+[郭文贵2019年5月3日视频 20190503_2与战友分享日本拉面]({{site.baseurl}}/miles/transcript/2019/05/20190503-53478684)
+
 [郭文贵2019年5月2日视频 20190502霍尔木兹海峡决定灭共是否成功 毛泽东，邓小平，妈祖．给我托梦了．人民大会堂委内瑞拉，台湾香港要出大事儿．郭台铭的梦是假的，哈哈哈哈，一切都是刚刚开始。]({{site.baseurl}}/miles/transcript/2019/05/20190502-53482466)
 
 [郭文贵2019年5月1日委内瑞拉革命 20190501从委内瑞拉革命，我们可以得到如何保护台湾和香港快速灭共的最佳办法，什么是尿脸党！]({{site.baseurl}}/miles/transcript/2019/05/20190501-53482461)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年4月17日视频 20190417_3戰友第一次參觀喜馬拉雅大使館(下)]({{site.baseurl}}/miles/transcript/2019/04/20190417-53478630)
 
 [郭文贵2019年4月17日视频 20190417_2戰友第一次參觀喜馬拉雅大使館(上)]({{site.baseurl}}/miles/transcript/2019/04/20190417-53478618)
-
-[郭文贵2019年4月17日视频 20190417_1在喜馬拉雅大使館試衛星WIFI]({{site.baseurl}}/miles/transcript/2019/04/20190417-53478602)
-
-[郭文贵2019年4月16日 20190416简单谈谈维基解密解密的信息 搜集李嘉诚10个人信息的进展]({{site.baseurl}}/miles/transcript/2019/04/20190416-53482312)
-
-[郭文贵2019年4月16日视频 20190416_220分钟左右文贵将在郭媒体直播报平安！不爆料就是谈谈，昨天让大家搜集李嘉诚10个人信息的进展！和简单谈谈维基解密解密的信息]({{site.baseurl}}/miles/transcript/2019/04/20190416-53478594)
 
 
 ## 頁面 80/110 [**<**]({{site.baseurl}}/miles/transcript/page79) [1]({{site.baseurl}}/miles/transcript/index) ... [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) **80** [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page81)

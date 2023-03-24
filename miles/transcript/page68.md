@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 68/110 [**<**]({{site.baseurl}}/miles/transcript/page67) [1]({{site.baseurl}}/miles/transcript/index) ... [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) **68** [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page69)
 
+[2019年10月1日 郭文贵先生开篇演讲 全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191001-53871718)
+
+[2019年10月1日郭文贵先生与班农先生连线各地战友，传播香港抗议现场、解读国际重大事件，揭露中共十一国庆真相！（上）全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191001-53896553)
+
+[郭文贵2019年10月1日 20191001_1郭文贵先生与班农先生连线各地战友，传播香港抗议现场、解读国际重大事件，揭露中共十一国庆真相！]({{site.baseurl}}/miles/transcript/2019/10/20191001-53483277)
+
 [郭文贵2019年10月1日 20191001_3]({{site.baseurl}}/miles/transcript/2019/10/20191001-53478048)
 
 [郭文贵2019年10月1日 20191001_2郭文贵先生与班农先生连线各地战友，传播香港抗议现场、解读国际重大事件，揭露中共十一国庆真相！]({{site.baseurl}}/miles/transcript/2019/10/20191001-53477486)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年9月23日 郭文贵先生与班农先生直播 全文字版 中共全面实施“驭民五术”，国庆军演民不聊生；应对中共“三大战役”，美国只会打口炮么？]({{site.baseurl}}/miles/transcript/2019/09/20190923-53864255)
 
 [郭文贵2019年9月23日视频 20190923_1(無侵權版, 原版已被CCTV裡的雞舉報刪除)中共全面实施“驭民五术”，国庆军演民不聊生。应对中共“三大战役”，美国只会打口炮么？美国武力介入香港问题的可能性有多大？]({{site.baseurl}}/miles/transcript/2019/09/20190923-53479011)
-
-[2019年9月22日文贵大直播全文字版：CCP突发三大战役挑战全球，妄图共产天下，垂死挣扎！]({{site.baseurl}}/miles/transcript/2019/09/20190922-53861830)
-
-[郭文贵2019年9月22日直播 20190922CCP突发三大战役挑战全球，妄图共产天下，垂死挣扎！]({{site.baseurl}}/miles/transcript/2019/09/20190922-53483142)
-
-[2019年9月20日郭先生报平安感谢战友们的担心全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190920-53848055)
 
 
 ## 頁面 68/110 [**<**]({{site.baseurl}}/miles/transcript/page67) [1]({{site.baseurl}}/miles/transcript/index) ... [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) **68** [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page69)

@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 71/110 [**<**]({{site.baseurl}}/miles/transcript/page70) [1]({{site.baseurl}}/miles/transcript/index) ... [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) **71** [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page72)
 
+[2019年08月28日文贵大直播全文字版：解放军军车 装甲车已经开进香港香港已经进入紧急状态]({{site.baseurl}}/miles/transcript/2019/08/20190828-53797352)
+
+[2019年8月28日文贵大直播全文字版：解读香港《戒严法》就是可以随时征用你 随时把你的家人抓起来 随时没收你的所有财产]({{site.baseurl}}/miles/transcript/2019/08/20190828-53797308)
+
+[2019年8月28日文贵大直播全文字版：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？从王雁平女士的案子看中国女人的女权危机……一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/08/20190828-53795560)
+
 [郭文贵2019年8月28日视频 20190828解放军军车 装甲车已经开进香港香港已经进入紧急状态]({{site.baseurl}}/miles/transcript/2019/08/20190828-53482985)
 
 [郭文贵2019年8月28日视频 20190828_2从王雁平女士的案子看中国女人的女权危机……一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/08/20190828-53478935)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年8月15日文贵大直播全文字版：报平安直播]({{site.baseurl}}/miles/transcript/2019/08/20190815-53795582)
 
 [郭文贵2019年8月15日视频 20190815Greetings honored friends! Have you done any workout? Have you spreaded the truth of...]({{site.baseurl}}/miles/transcript/2019/08/20190815-53483042)
-
-[2019年8月14日《文贵大直播》全文字版：谈美国已秘密调查中共安插在香港警队中的PLA 操纵美国股市]({{site.baseurl}}/miles/transcript/2019/08/20190814-53741165)
-
-[郭文贵2019年8月14日视频 20190814Miles Kwok letting everyone know he's safe. USA has secretly investigated the presence...]({{site.baseurl}}/miles/transcript/2019/08/20190814-53483035)
-
-[2019年8月13日《文贵大直播》全文字版：谈未来的48小时对香港所有上街抗议的同胞极为重要]({{site.baseurl}}/miles/transcript/2019/08/20190813-53741214)
 
 
 ## 頁面 71/110 [**<**]({{site.baseurl}}/miles/transcript/page70) [1]({{site.baseurl}}/miles/transcript/index) ... [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) **71** [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page72)

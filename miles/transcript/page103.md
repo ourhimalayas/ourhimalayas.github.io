@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 103/110 [**<**]({{site.baseurl}}/miles/transcript/page102) [1]({{site.baseurl}}/miles/transcript/index) ... [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) **103** [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page104)
 
+[郭文贵2017年10月31日第二次直播 20171031_2关于郭文贵家人再次被捕被判]({{site.baseurl}}/miles/transcript/2017/10/20171031-53484025)
+
+[郭文贵2017年10月27日视频 20171027]({{site.baseurl}}/miles/transcript/2017/10/20171027-53484022)
+
+[郭文贵2017年10月26日第一次直播 20171026_1十九大后爆料计划]({{site.baseurl}}/miles/transcript/2017/10/20171026-53484019)
+
 [郭文贵2017年10月26日第二次直播 20171026_2]({{site.baseurl}}/miles/transcript/2017/10/20171026-53484010)
 
 [郭文贵2017年10月26日视频 20171026_3直播公告]({{site.baseurl}}/miles/transcript/2017/10/20171026-53476952)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年9月29日视频 20170929北京老领导说信息梗阻 吴征杨澜来纽约了]({{site.baseurl}}/miles/transcript/2017/09/20170929-53483601)
 
 [郭文贵2017年9月28日视频 20170928国内封网，放出曲龙，游虎给虎看！]({{site.baseurl}}/miles/transcript/2017/09/20170928-53483600)
-
-[郭文贵2017年9月27日视频 20170927不要开会，不要搞募捐，要行动！]({{site.baseurl}}/miles/transcript/2017/09/20170927-53483597)
-
-[郭文贵2017年9月26日 20170926任何一个同胞都应该听的视频这是 2017年5月26日 与刘彦平书记在纽约两次开会后——经孙立军要求我去华盛顿去见面，这是我们语音沟通的一部分。]({{site.baseurl}}/miles/transcript/2017/09/20170926-53484009)
-
-[郭文贵2017年9月26日视频 20170926_2酒店警告不准看郭视频 断网还要断电吗？]({{site.baseurl}}/miles/transcript/2017/09/20170926-53483592)
 
 
 ## 頁面 103/110 [**<**]({{site.baseurl}}/miles/transcript/page102) [1]({{site.baseurl}}/miles/transcript/index) ... [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) **103** [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page104)

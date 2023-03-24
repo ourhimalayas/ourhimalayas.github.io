@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 106/110 [**<**]({{site.baseurl}}/miles/transcript/page105) [1]({{site.baseurl}}/miles/transcript/index) ... [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) **106** [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page107)
 
+[郭文贵2017年8月20日直播 20170820_1推特四段小视频合集]({{site.baseurl}}/miles/transcript/2017/08/20170820-53482774)
+
+[郭文贵2017年8月19日视频 20170819健身报平安小视频：既兴奋又难过。大战在即！和平革命！]({{site.baseurl}}/miles/transcript/2017/08/20170819-53483784)
+
+[郭文贵2017年8月18日明镜专访第五期 20170818]({{site.baseurl}}/miles/transcript/2017/08/20170818-53484121)
+
 [郭文贵2017年8月17日视频 20170817 香港女合伙人被孟建柱下令绑架回深圳．昨晚上自杀未遂而送医！盗国贼们，8.18见！]({{site.baseurl}}/miles/transcript/2017/08/20170817-53483788)
 
 [郭文贵2017年8月16日视频 20170816北戴河会议发生了一个重要事件，盗国贼极力掩盖。]({{site.baseurl}}/miles/transcript/2017/08/20170816-53483498)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年8月1日视频 20170801露点报平安,海上钓鱼,请君入瓮,后发制人]({{site.baseurl}}/miles/transcript/2017/08/20170801-53483520)
 
 [郭文贵2017年7月27日 20170727王岐山的真姚庆到底怕什么]({{site.baseurl}}/miles/transcript/2017/07/20170727-53483819)
-
-[郭文贵2017年7月26日 20170726贯君的6000亿原来去了这里！刘呈杰他爹原来是他！]({{site.baseurl}}/miles/transcript/2017/07/20170726-53483808)
-
-[郭文贵2017年7月25日 20170725王岐山、贯君的6000亿海航股权去哪了？]({{site.baseurl}}/miles/transcript/2017/07/20170725-53483792)
-
-[郭文贵2017年7月24日第二次直播 20170724_2呼吁推友不要冲动]({{site.baseurl}}/miles/transcript/2017/07/20170724-53484151)
 
 
 ## 頁面 106/110 [**<**]({{site.baseurl}}/miles/transcript/page105) [1]({{site.baseurl}}/miles/transcript/index) ... [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) **106** [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page107)
