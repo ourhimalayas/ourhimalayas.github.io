@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguo 3/24/2023 6:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ceebd4330)
+
+2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第九十三场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/24/2023 6:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2cejbn63a4)
 
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第九十三场）
@@ -60,11 +68,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguo 3/24/2023 6:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ceebd4330)
+[@milesguo 3/24/2023 7:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2cehk6e127)
 
-2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第九十三场）
+03/23/2023 Nicole: We are not the victims of Miles Guo, we are the victims of SEC,DOJ, and the FBI which is totally weaponized by the CCP to persecute Chinese dissidents. The different treatments of Mr. Miles Guo and Huawei CFO Men...
 
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/03/24/07/16fcc1e6-ba07-c0e0-f99a-005e5032ec12/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ title: 郭先生的GETTR
 ---
 
 [@milesguo 3/23/2023 9:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2cdbk67198)
-
-2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第九十二场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/23/2023 8:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2cdlxu7f99)
 
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第九十二场）
 
