@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguo 3/24/2023 8:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2cf8cse84b)
+
+2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第九十三场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/24/2023 8:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2cevc94778)
 
 03/17/2023 Ava Chen from New Federal State of China: We are not victims of Mr. Miles Guo, we are the victims of the SEC. SEC simply accepted the false claims of the CCP agents and froze all the money of the GTV investors, who are a...
@@ -100,7 +108,7 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguo 3/24/2023 8:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2cf8cse84b)
+[@milesguo 3/24/2023 10:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2cfe4x305c)
 
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第九十三场）
 
@@ -163,14 +171,6 @@ title: 郭先生的GETTR
 ---
 
 [@milesguo 3/24/2023 12:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ce83f23f2)
-
-2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第九十二场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/23/2023 11:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2cdgas1d46)
 
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第九十二场）
 
