@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguo 3/24/2023 4:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2cg5xo85db)
+
+2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第119场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/24/2023 3:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2cfy7tcafe)
 
 2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第113场）
@@ -80,7 +88,7 @@ No.2🥈 on Singapore🇸🇬 Pop Songs Chart
 
 ---
 
-[@milesguo 3/24/2023 4:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2cg5xo85db)
+[@milesguo 3/24/2023 5:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2cgf9f7b55)
 
 2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第119场）
 
@@ -165,14 +173,6 @@ No.2🥈 on Singapore🇸🇬 Pop Songs Chart
 ---
 
 [@milesguo 3/24/2023 6:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ceebd4330)
-
-2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第九十三场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/24/2023 6:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2cejbn63a4)
 
 2023.03.23 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第九十三场）
 
