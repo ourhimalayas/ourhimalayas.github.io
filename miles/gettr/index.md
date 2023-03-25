@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@milesguo 3/25/2023 12:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ciflx7e49)
+
+2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第123场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/25/2023 10:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2cifcp4333)
 
 2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第123场）
@@ -157,14 +165,6 @@ Super-May线上直播音乐会 第四十八期：微风细雨
 ---
 
 [@milesguo 3/24/2023 10:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2cgvvwe3a7)
-
-2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第122场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/24/2023 9:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2cgt8se458)
 
 2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第122场）
 
