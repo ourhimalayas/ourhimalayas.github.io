@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 81/110 [**<**]({{site.baseurl}}/miles/transcript/page80) [1]({{site.baseurl}}/miles/transcript/index) ... [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) **81** [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page82)
 
+[郭文贵2019年4月17日视频 20190417_2戰友第一次參觀喜馬拉雅大使館(上)]({{site.baseurl}}/miles/transcript/2019/04/20190417-53478618)
+
 [郭文贵2019年4月17日视频 20190417_1在喜馬拉雅大使館試衛星WIFI]({{site.baseurl}}/miles/transcript/2019/04/20190417-53478602)
 
 [郭文贵2019年4月16日 20190416简单谈谈维基解密解密的信息 搜集李嘉诚10个人信息的进展]({{site.baseurl}}/miles/transcript/2019/04/20190416-53482312)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年3月29日浴火重生 20190329超人归来]({{site.baseurl}}/miles/transcript/2019/03/20190329-53482196)
 
 [郭文贵2019年3月7日视频 20190307_1文贵报平安视频。因为母亲住院，近期文贵会很少发视频和回答战友们的私信。谢谢大家的理解。]({{site.baseurl}}/miles/transcript/2019/03/20190307-53478651)
-
-[郭文贵2019年3月5日 20190305为什么在两会上说，金正恩拯救了中国？]({{site.baseurl}}/miles/transcript/2019/03/20190305-53482172)
 
 
 ## 頁面 81/110 [**<**]({{site.baseurl}}/miles/transcript/page80) [1]({{site.baseurl}}/miles/transcript/index) ... [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) **81** [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page82)

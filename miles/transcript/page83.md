@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 83/110 [**<**]({{site.baseurl}}/miles/transcript/page82) [1]({{site.baseurl}}/miles/transcript/index) ... [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) **83** [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page84)
 
+[郭文贵2019年2月5日视频 20190205_1文贵先生、SARA、路德给大家拜年直播]({{site.baseurl}}/miles/transcript/2019/02/20190205-53478592)
+
 [郭文贵2019年2月4日英文 20190204_1除夕爆料春晚 达赖喇嘛尊者]({{site.baseurl}}/miles/transcript/2019/02/20190204-53482158)
 
 [郭文贵2019年2月4日中文 20190204_2除夕去共赢正道爆料春晚]({{site.baseurl}}/miles/transcript/2019/02/20190204-53482129)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年1月18日第一次直播 20190118_1告诉大家赚几千亿美元的秘诀]({{site.baseurl}}/miles/transcript/2019/01/20190118-53481748)
 
 [郭文贵2019年1月18日第二次直播 20190118_2关于政事小哥！因为受共产党对家人的迫害威胁，不得不离开过爆料革命！这更加坚定了摧毁流氓CCp的决心！以实际行动为战友报仇！一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/01/20190118-53481736)
-
-[郭文贵2019年1月17日第一次直播 20190117_1中美贸易谈判崩裂意味着什么????文贵在这里向你们报告一下！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/01/20190117-53483689)
 
 
 ## 頁面 83/110 [**<**]({{site.baseurl}}/miles/transcript/page82) [1]({{site.baseurl}}/miles/transcript/index) ... [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) **83** [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page84)

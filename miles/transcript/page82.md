@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 82/110 [**<**]({{site.baseurl}}/miles/transcript/page81) [1]({{site.baseurl}}/miles/transcript/index) ... [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) **82** [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page83)
 
+[郭文贵2019年3月5日 20190305为什么在两会上说，金正恩拯救了中国？]({{site.baseurl}}/miles/transcript/2019/03/20190305-53482172)
+
 [郭文贵2019年3月4日 20190304文贵谈10亿欧元支票怎么来的！北京正在进行的两会为什么说2019的64民主全民运动即将来临……]({{site.baseurl}}/miles/transcript/2019/03/20190304-53482161)
 
 [郭文贵2019年3月3日视频 20190303金正恩为什么直接回朝鲜为什么要枪毙．偷拍金正恩视频的中国人吗？]({{site.baseurl}}/miles/transcript/2019/03/20190303-53482155)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年2月7日视频 20190207_2感谢所有关心snow 的战友们！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/02/20190207-53478596)
 
 [郭文贵2019年2月6日 20190206文贵、班农、凯琳 回答战友们对春晚爆料的问题]({{site.baseurl}}/miles/transcript/2019/02/20190206-53482187)
-
-[郭文贵2019年2月5日视频 20190205_1文贵先生、SARA、路德给大家拜年直播]({{site.baseurl}}/miles/transcript/2019/02/20190205-53478592)
 
 
 ## 頁面 82/110 [**<**]({{site.baseurl}}/miles/transcript/page81) [1]({{site.baseurl}}/miles/transcript/index) ... [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) **82** [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page83)

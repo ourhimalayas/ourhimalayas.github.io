@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 105/110 [**<**]({{site.baseurl}}/miles/transcript/page104) [1]({{site.baseurl}}/miles/transcript/index) ... [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) **105** [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page106)
 
+[郭文贵2017年9月7日视频 20170907是孙力军．孟建柱．傅政华．王岐山．的凶恶．促使文贵决定美国政治屁护！]({{site.baseurl}}/miles/transcript/2017/09/20170907-53483961)
+
 [郭文贵2017年9月6日视频 20170906王岐山．孟建柱．孙力军．傅政华．如何对待女人！]({{site.baseurl}}/miles/transcript/2017/09/20170906-53483863)
 
 [郭文贵2017年9月5日直播 20170905_1新领导孙力军副部长有了大决定]({{site.baseurl}}/miles/transcript/2017/09/20170905-53482795)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年8月22日第二次直播 20170822盗国贼组织上百特务来美，用‘蓝金黄’计划对付文贵及知名推友。很多人及家人会被威胁。]({{site.baseurl}}/miles/transcript/2017/08/20170822-53484311)
 
 [郭文贵2017年8月22日直播 20170822_2]({{site.baseurl}}/miles/transcript/2017/08/20170822-53482776)
-
-[郭文贵2017年8月21日视频 20170821盗国贼害怕了，用假女助理推特、假音频攻击文贵。’’今后10天不爆料，估计是在等国内的回应，否则孟建柱政法系就是下一波被爆料的对象]({{site.baseurl}}/miles/transcript/2017/08/20170821-53484299)
 
 
 ## 頁面 105/110 [**<**]({{site.baseurl}}/miles/transcript/page104) [1]({{site.baseurl}}/miles/transcript/index) ... [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) **105** [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page106)

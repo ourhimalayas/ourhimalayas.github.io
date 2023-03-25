@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 76/110 [**<**]({{site.baseurl}}/miles/transcript/page75) [1]({{site.baseurl}}/miles/transcript/index) ... [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) **76** [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page77)
 
+[郭文贵2019年7月7日视频 20190707_4Snow2]({{site.baseurl}}/miles/transcript/2019/07/20190707-53478781)
+
 [郭文贵2019年7月7日视频 20190707_3Snow1]({{site.baseurl}}/miles/transcript/2019/07/20190707-53478779)
 
 [2019年7月6日直播全文字版：与彭文正先生连线——灭共保台]({{site.baseurl}}/miles/transcript/2019/07/20190706-53576461)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年6月26日视频 20190626谈香港游行的中共黑手，东南西北四方围剿中共正在收网]({{site.baseurl}}/miles/transcript/2019/06/20190626-53482733)
 
 [2019年6月25日郭文贵先生直播全文字版：从香港的成功抗议行动，和近几天共产党的统一宣传口径，让我们看到了过去两年爆料革命所面临的挑战！]({{site.baseurl}}/miles/transcript/2019/06/20190625-53545804)
-
-[郭文贵2019年6月25日视频 20190625从香港的成功抗议行动！和近几天共产党的统一宣传口径！让我们看到了过去两年爆料革命所面临的挑战和！但是我们赢了过去的两年……以法灭共．以美灭共……郭七条．是我们最核心的战略！]({{site.baseurl}}/miles/transcript/2019/06/20190625-53482714)
 
 
 ## 頁面 76/110 [**<**]({{site.baseurl}}/miles/transcript/page75) [1]({{site.baseurl}}/miles/transcript/index) ... [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) **76** [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page77)

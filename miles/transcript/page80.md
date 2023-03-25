@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 80/110 [**<**]({{site.baseurl}}/miles/transcript/page79) [1]({{site.baseurl}}/miles/transcript/index) ... [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) **80** [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page81)
 
+[郭文贵2019年5月3日视频 201905032017年的5月3号和2018年的5月3号都发生了哪些重大事件，文贵与大家分享一些过去没有讲过的事情]({{site.baseurl}}/miles/transcript/2019/05/20190503-53482476)
+
 [郭文贵2019年5月3日视频 20190503_4文贵在做平板称时的视频做得不标准，希望战友们不要秀文贵这样的做共28分钟。]({{site.baseurl}}/miles/transcript/2019/05/20190503-53478694)
 
 [郭文贵2019年5月3日视频 20190503_3希望＂政经关不了＂永远都不被关！文贵将和你联系！与您连线直播！只要有利于台湾和台湾人民的事我都愿意干]({{site.baseurl}}/miles/transcript/2019/05/20190503-53478688)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年4月18日视频 20190418_2正在准备20号上午9点的直播！]({{site.baseurl}}/miles/transcript/2019/04/20190418-53478632)
 
 [郭文贵2019年4月17日视频 20190417_3戰友第一次參觀喜馬拉雅大使館(下)]({{site.baseurl}}/miles/transcript/2019/04/20190417-53478630)
-
-[郭文贵2019年4月17日视频 20190417_2戰友第一次參觀喜馬拉雅大使館(上)]({{site.baseurl}}/miles/transcript/2019/04/20190417-53478618)
 
 
 ## 頁面 80/110 [**<**]({{site.baseurl}}/miles/transcript/page79) [1]({{site.baseurl}}/miles/transcript/index) ... [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) **80** [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page81)

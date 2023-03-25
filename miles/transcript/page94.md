@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 94/110 [**<**]({{site.baseurl}}/miles/transcript/page93) [1]({{site.baseurl}}/miles/transcript/index) ... [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) **94** [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page95)
 
+[郭文贵2018年7月10日视频 20180710王岐山设计王健可能用诈死．被杀事件使海航重组．将盗国财富合法化！王岐山已经开始出大招了！]({{site.baseurl}}/miles/transcript/2018/07/20180710-53482405)
+
 [郭文贵2018年7月9日视频 20180709王健拍照死．孟的张明鹏院长被抓．709案件国际高度关注！代表着什么？]({{site.baseurl}}/miles/transcript/2018/07/20180709-53482390)
 
 [郭文贵2018年7月8日视频 20180708在船上报平安]({{site.baseurl}}/miles/transcript/2018/07/20180708-53477214)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年6月10日直播 20180610_2文贵爆料第一階段启蒙期结束．正在准备第二階段．定点爆破！]({{site.baseurl}}/miles/transcript/2018/06/20180610-53477865)
 
 [郭文贵2018年6月5日直播 20180605_2 看了万润南先生的视频后的感想！]({{site.baseurl}}/miles/transcript/2018/06/20180605-53477847)
-
-[郭文贵2018年6月5日直播 20180605_1拉斯维加斯的会议出钱者．A级通缉犯成水炎的过去与现在！]({{site.baseurl}}/miles/transcript/2018/06/20180605-53477838)
 
 
 ## 頁面 94/110 [**<**]({{site.baseurl}}/miles/transcript/page93) [1]({{site.baseurl}}/miles/transcript/index) ... [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) **94** [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page95)

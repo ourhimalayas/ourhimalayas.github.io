@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 109/110 [**<**]({{site.baseurl}}/miles/transcript/page108) [1]({{site.baseurl}}/miles/transcript/index) ... [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) **109** [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page110)
 
+[郭文贵2017年5月18日第二次直播 20170518_2意外状况下的沟通方式]({{site.baseurl}}/miles/transcript/2017/05/20170518-53483925)
+
 [郭文贵2017年5月18日第一次直播 20170518_1郭文贵的紧急联络人]({{site.baseurl}}/miles/transcript/2017/05/20170518-53483744)
 
 [郭文贵2017年5月17日视频 20170517家庭国家和社会的关系]({{site.baseurl}}/miles/transcript/2017/05/20170517-53483913)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年5月1日与刘彦平的通话二 20170501_2想了解南普陀会议吗？想了解江家将到底有什么样的影响力吗？想了解真正令计划犯等如何在中南海．人民大会堂．主席专机上搞女人吗？想知道薄熙来他们怎么杀人吗？想知道文贵前几天爆料的]({{site.baseurl}}/miles/transcript/2017/05/20170501-53483944)
 
 [郭文贵2017年5月1日与刘彦平的通话一 20170501_1]({{site.baseurl}}/miles/transcript/2017/05/20170501-53483939)
-
-[郭文贵2017年4月29日第三次直播 20170429_3推友关注过15万感谢视频]({{site.baseurl}}/miles/transcript/2017/04/20170429-53483747)
 
 
 ## 頁面 109/110 [**<**]({{site.baseurl}}/miles/transcript/page108) [1]({{site.baseurl}}/miles/transcript/index) ... [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) **109** [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page110)

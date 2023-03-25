@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 84/110 [**<**]({{site.baseurl}}/miles/transcript/page83) [1]({{site.baseurl}}/miles/transcript/index) ... [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) **84** [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page85)
 
+[郭文贵2019年1月17日第一次直播 20190117_1中美贸易谈判崩裂意味着什么????文贵在这里向你们报告一下！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/01/20190117-53483689)
+
 [郭文贵2019年1月17日第二次直播 20190117_2尊敬的战友们好，你们健身了吗！文贵向你们报告出席华盛顿一系列的活动和几个重大的采访]({{site.baseurl}}/miles/transcript/2019/01/20190117-53481727)
 
 [郭文贵2019年1月16日视频第二部分 20190116_2王健被谋杀之密有了重大进展。吴征还有博讯, 马蕊强奸案有了重大的实质性的证据证明吴征被CCP控制]({{site.baseurl}}/miles/transcript/2019/01/20190116-53481722)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年1月2日视频 20190102_2风中的Snow]({{site.baseurl}}/miles/transcript/2019/01/20190102-53478475)
 
 [郭文贵2019年1月2日视频 20190102_1乔布斯与他带有神秘色彩的设计的游艇太牛了]({{site.baseurl}}/miles/transcript/2019/01/20190102-53478472)
-
-[郭文贵2019年1月1日视频 20190101接受木兰访谈的卡丽熙，什么时候放91号文件，刘承杰他爹到底是谁，共产党会怎样灭亡，2019我们做什么。]({{site.baseurl}}/miles/transcript/2019/01/20190101-53481562)
 
 
 ## 頁面 84/110 [**<**]({{site.baseurl}}/miles/transcript/page83) [1]({{site.baseurl}}/miles/transcript/index) ... [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) **84** [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page85)

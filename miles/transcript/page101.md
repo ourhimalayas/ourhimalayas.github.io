@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 101/110 [**<**]({{site.baseurl}}/miles/transcript/page100) [1]({{site.baseurl}}/miles/transcript/index) ... [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) **101** [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page102)
 
+[郭文贵2018年2月1日 20180201_2 很快将爆光何频身边的陈军, 曾计划谋杀文贵]({{site.baseurl}}/miles/transcript/2018/02/20180201-53481354)
+
 [郭文贵2018年1月31日视频 20180131尊敬的战友们好！文贵现在回答很多战友问题．是否可以参与文贵看春晚的节目！]({{site.baseurl}}/miles/transcript/2018/01/20180131-53483948)
 
 [郭文贵2018年1月30日第一次直播 20180130_1关于盲流子爆料]({{site.baseurl}}/miles/transcript/2018/01/20180130-53484204)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年12月12日 20171212文贵给即将在大连被冤审的员工及家人的誓言；谈小平妻子失踪，法新社采访，华涌及乱运8分子]({{site.baseurl}}/miles/transcript/2017/12/20171212-53483946)
 
 [郭文贵2017年12月9日 20171209纽约下大雪了！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2017/12/20171209-53483940)
-
-[郭文贵2017年12月8日视频 20171208一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2017/12/20171208-53483937)
 
 
 ## 頁面 101/110 [**<**]({{site.baseurl}}/miles/transcript/page100) [1]({{site.baseurl}}/miles/transcript/index) ... [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) **101** [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page102)

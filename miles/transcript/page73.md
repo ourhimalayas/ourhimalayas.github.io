@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 73/110 [**<**]({{site.baseurl}}/miles/transcript/page72) [1]({{site.baseurl}}/miles/transcript/index) ... [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) **73** [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page74)
 
+[2019年8月3日文贵大直播全文字版：关注香港即将发生的大事]({{site.baseurl}}/miles/transcript/2019/08/20190803-53707154)
+
 [郭文贵2019年8月3日视频 20190803关于起诉华尔街日报]({{site.baseurl}}/miles/transcript/2019/08/20190803-53482943)
 
 [郭文贵2019年8月3日视频 20190803_2-當共產黨說不幹甚麼的時候 就是他想幹甚麼的時候]({{site.baseurl}}/miles/transcript/2019/08/20190803-53478890)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分]({{site.baseurl}}/miles/transcript/2019/07/20190727-53715422)
 
 [2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分]({{site.baseurl}}/miles/transcript/2019/07/20190727-53715404)
-
-[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分]({{site.baseurl}}/miles/transcript/2019/07/20190727-53715389)
 
 
 ## 頁面 73/110 [**<**]({{site.baseurl}}/miles/transcript/page72) [1]({{site.baseurl}}/miles/transcript/index) ... [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) **73** [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page74)

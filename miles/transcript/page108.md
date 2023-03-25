@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 108/110 [**<**]({{site.baseurl}}/miles/transcript/page107) [1]({{site.baseurl}}/miles/transcript/index) ... [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) **108** [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page109)
 
+[郭文贵2017年6月22日视频 20170622推特报平安视频……一切都是刚刚开始！✊️✊️✊️✊️]({{site.baseurl}}/miles/transcript/2017/06/20170622-53483527)
+
 [郭文贵2017年6月19日视频 20170619再让子弹飞一会儿！]({{site.baseurl}}/miles/transcript/2017/06/20170619-53483786)
 
 [郭文贵2017年6月16日明镜专访第三期 20170616]({{site.baseurl}}/miles/transcript/2017/06/20170616-53484293)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年5月20日第一次直播 20170520在香港是否存在执法黑屋]({{site.baseurl}}/miles/transcript/2017/05/20170520-53483761)
 
 [郭文贵2017年5月19日 20170519感恩推友关心 呼吁推友冷静]({{site.baseurl}}/miles/transcript/2017/05/20170519-53483759)
-
-[郭文贵2017年5月18日第二次直播 20170518_2意外状况下的沟通方式]({{site.baseurl}}/miles/transcript/2017/05/20170518-53483925)
 
 
 ## 頁面 108/110 [**<**]({{site.baseurl}}/miles/transcript/page107) [1]({{site.baseurl}}/miles/transcript/index) ... [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) **108** [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page109)

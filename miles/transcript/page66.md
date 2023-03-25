@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 66/110 [**<**]({{site.baseurl}}/miles/transcript/page65) [1]({{site.baseurl}}/miles/transcript/index) ... [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) **66** [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page67)
 
+[郭文贵2019年10月23日视频 20191023中共将低头认错秋后算账解决香港问题弱化彭斯副总统演讲，灭共是赚大钱的生意！王岐山危险了！]({{site.baseurl}}/miles/transcript/2019/10/20191023-53483226)
+
 [郭文贵2019年10月23日视频 20191023_3 (漏網視頻)喜馬拉雅大使管正在酝酿一场世纪灭共风暴]({{site.baseurl}}/miles/transcript/2019/10/20191023-53479084)
 
 [郭文贵2019年10月23日视频 20191023_2Snow練習走伸展台]({{site.baseurl}}/miles/transcript/2019/10/20191023-53479080)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年10月12日郭文贵先生船上直播跟战友分享夜景，香港人权法案，反共灭共之势无人能阻挡全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191012-53909141)
 
 [2019年10月12日 中美达成的初步协议 对爆料革命无影响，但绝对是最糟糕；香港同胞最受影响；灭共要靠我们自己！ 全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191012-53903476)
-
-[郭文贵2019年10月12日视频 20191012中美达成的初步协议 对爆料革命无影响，但绝对是最糟糕；香港同胞最受影响；灭共要靠我们自己！]({{site.baseurl}}/miles/transcript/2019/10/20191012-53483319)
 
 
 ## 頁面 66/110 [**<**]({{site.baseurl}}/miles/transcript/page65) [1]({{site.baseurl}}/miles/transcript/index) ... [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) **66** [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page67)

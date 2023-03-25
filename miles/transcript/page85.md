@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 85/110 [**<**]({{site.baseurl}}/miles/transcript/page84) [1]({{site.baseurl}}/miles/transcript/index) ... [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) **85** [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page86)
 
+[郭文贵2019年1月1日视频 20190101接受木兰访谈的卡丽熙，什么时候放91号文件，刘承杰他爹到底是谁，共产党会怎样灭亡，2019我们做什么。]({{site.baseurl}}/miles/transcript/2019/01/20190101-53481562)
+
 [郭文贵2019年1月1日视频 20190101_2以法灭共开始倒计时]({{site.baseurl}}/miles/transcript/2019/01/20190101-53478469)
 
 [郭文贵2018年12月31日视频 20181231_1明天2019年1月1日纽约时间上午10点整，北京时间晚上11点整，卡丽熙將采访郭文贵]({{site.baseurl}}/miles/transcript/2018/12/20181231-53478467)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年12月10日视频 20181210_2大连刘乐国因为通过李友案件掌握了中南海的高官的很多证据被释放．他能活多久？]({{site.baseurl}}/miles/transcript/2018/12/20181210-53478559)
 
 [郭文贵2018年12月9日视频 20181209量震床上功夫和G20中美峰會的真相，孟晚舟女士在加拿大被抓與華為公司的背后真相，張首晟先生是自殺還是被殺。]({{site.baseurl}}/miles/transcript/2018/12/20181209-53479444)
-
-[郭文贵2018年12月08日视频 20181208船上跟大家聊聊天,.张首晟绝不会自杀!]({{site.baseurl}}/miles/transcript/2018/12/20181208-53478471)
 
 
 ## 頁面 85/110 [**<**]({{site.baseurl}}/miles/transcript/page84) [1]({{site.baseurl}}/miles/transcript/index) ... [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) **85** [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page86)

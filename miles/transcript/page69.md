@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 69/110 [**<**]({{site.baseurl}}/miles/transcript/page68) [1]({{site.baseurl}}/miles/transcript/index) ... [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) **69** [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page70)
 
+[郭文贵2019年9月23日视频 20190923_1(無侵權版, 原版已被CCTV裡的雞舉報刪除)中共全面实施“驭民五术”，国庆军演民不聊生。应对中共“三大战役”，美国只会打口炮么？美国武力介入香港问题的可能性有多大？]({{site.baseurl}}/miles/transcript/2019/09/20190923-53479011)
+
 [2019年9月22日文贵大直播全文字版：CCP突发三大战役挑战全球，妄图共产天下，垂死挣扎！]({{site.baseurl}}/miles/transcript/2019/09/20190922-53861830)
 
 [郭文贵2019年9月22日直播 20190922CCP突发三大战役挑战全球，妄图共产天下，垂死挣扎！]({{site.baseurl}}/miles/transcript/2019/09/20190922-53483142)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年9月10日视频 20190910_1文贵在凌晨6 00先向大家报平安了，昨天路德的晚餐, 加上他兒子弄壞船上的沙發, 至少毀了我十萬美元, TNND, 非叫路德賠不可]({{site.baseurl}}/miles/transcript/2019/09/20190910-53478998)
 
 [2019年9月9日 文贵、班农先生谈：川普会什么时候决定脱钩，马云离开阿里以后的结局和美国到底是否值得中国人民依靠全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190909-53878272)
-
-[2019年9月9日直播为什么香港的富豪被威胁他们隐藏海外资产共产党可以没收全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190909-53835153)
 
 
 ## 頁面 69/110 [**<**]({{site.baseurl}}/miles/transcript/page68) [1]({{site.baseurl}}/miles/transcript/index) ... [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) **69** [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page70)

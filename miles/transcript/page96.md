@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 96/110 [**<**]({{site.baseurl}}/miles/transcript/page95) [1]({{site.baseurl}}/miles/transcript/index) ... [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) **96** [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page97)
 
+[郭文贵2018年5月1日直播 20180501_2 聊聊外国人眼中的国人,真正的投资和股票]({{site.baseurl}}/miles/transcript/2018/05/20180501-53477770)
+
 [郭文贵2018年5月1日直播 20180501_1我们中华名族遇到魔鬼了。]({{site.baseurl}}/miles/transcript/2018/05/20180501-53477762)
 
 [郭文贵2018年4月29日直播 20180429_2文贵与战友聊天！]({{site.baseurl}}/miles/transcript/2018/04/20180429-53477742)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年4月14日视频 20180414谈美国及盟国导弹袭击叙利亚是中国的第二次战略机会还是盗国贼盗国的最大机会]({{site.baseurl}}/miles/transcript/2018/04/20180414-53482280)
 
 [郭文贵2018年4月13日视频 20180413_1谈为什么要爆杨洁篪的料]({{site.baseurl}}/miles/transcript/2018/04/20180413-53482275)
-
-[郭文贵2018年4月13日直播 20180413_2跟战友分享下美景，不聊贸易战，南海军演，王岐山访美和杨洁篪]({{site.baseurl}}/miles/transcript/2018/04/20180413-53477526)
 
 
 ## 頁面 96/110 [**<**]({{site.baseurl}}/miles/transcript/page95) [1]({{site.baseurl}}/miles/transcript/index) ... [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) **96** [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page97)

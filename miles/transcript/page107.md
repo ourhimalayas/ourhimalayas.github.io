@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 107/110 [**<**]({{site.baseurl}}/miles/transcript/page106) [1]({{site.baseurl}}/miles/transcript/index) ... [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) **107** [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page108)
 
+[郭文贵2017年7月27日 20170727王岐山的真姚庆到底怕什么]({{site.baseurl}}/miles/transcript/2017/07/20170727-53483819)
+
 [郭文贵2017年7月26日 20170726贯君的6000亿原来去了这里！刘呈杰他爹原来是他！]({{site.baseurl}}/miles/transcript/2017/07/20170726-53483808)
 
 [郭文贵2017年7月25日 20170725王岐山、贯君的6000亿海航股权去哪了？]({{site.baseurl}}/miles/transcript/2017/07/20170725-53483792)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年6月26日视频 20170626]({{site.baseurl}}/miles/transcript/2017/06/20170626-53483789)
 
 [郭文贵2017年6月24日视频 20170624推特报平安视频. 推文打成了“报仇平安”哈哈O(∩_∩)O]({{site.baseurl}}/miles/transcript/2017/06/20170624-53483526)
-
-[郭文贵2017年6月22日视频 20170622推特报平安视频……一切都是刚刚开始！✊️✊️✊️✊️]({{site.baseurl}}/miles/transcript/2017/06/20170622-53483527)
 
 
 ## 頁面 107/110 [**<**]({{site.baseurl}}/miles/transcript/page106) [1]({{site.baseurl}}/miles/transcript/index) ... [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) **107** [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page108)

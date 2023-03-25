@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 71/110 [**<**]({{site.baseurl}}/miles/transcript/page70) [1]({{site.baseurl}}/miles/transcript/index) ... [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) **71** [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page72)
 
+[郭文贵2019年8月29日视频 20190829_1王雁平起訴亂倫彪案 解放軍進港]({{site.baseurl}}/miles/transcript/2019/08/20190829-53478948)
+
 [2019年08月28日文贵大直播全文字版：解放军军车 装甲车已经开进香港香港已经进入紧急状态]({{site.baseurl}}/miles/transcript/2019/08/20190828-53797352)
 
 [2019年8月28日文贵大直播全文字版：解读香港《戒严法》就是可以随时征用你 随时把你的家人抓起来 随时没收你的所有财产]({{site.baseurl}}/miles/transcript/2019/08/20190828-53797308)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年8月16日视频 20190816尊敬的战友们好．你们传播香港危机的真相了吗？香港反送中运动．已经变成了国际集体反共的运动，战友们和香港同胞们一定要抓住机会，赢得这场前所未有的灭共战争，一切]({{site.baseurl}}/miles/transcript/2019/08/20190816-53483049)
 
 [2019年8月15日文贵大直播全文字版：报平安直播]({{site.baseurl}}/miles/transcript/2019/08/20190815-53795582)
-
-[郭文贵2019年8月15日视频 20190815Greetings honored friends! Have you done any workout? Have you spreaded the truth of...]({{site.baseurl}}/miles/transcript/2019/08/20190815-53483042)
 
 
 ## 頁面 71/110 [**<**]({{site.baseurl}}/miles/transcript/page70) [1]({{site.baseurl}}/miles/transcript/index) ... [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) **71** [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page72)

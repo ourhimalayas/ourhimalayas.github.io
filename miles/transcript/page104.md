@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 104/110 [**<**]({{site.baseurl}}/miles/transcript/page103) [1]({{site.baseurl}}/miles/transcript/index) ... [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) **104** [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) ... [**>**]({{site.baseurl}}/miles/transcript/page105)
 
+[郭文贵2017年9月28日视频 20170928国内封网，放出曲龙，游虎给虎看！]({{site.baseurl}}/miles/transcript/2017/09/20170928-53483600)
+
 [郭文贵2017年9月27日视频 20170927不要开会，不要搞募捐，要行动！]({{site.baseurl}}/miles/transcript/2017/09/20170927-53483597)
 
 [郭文贵2017年9月26日 20170926任何一个同胞都应该听的视频这是 2017年5月26日 与刘彦平书记在纽约两次开会后——经孙立军要求我去华盛顿去见面，这是我们语音沟通的一部分。]({{site.baseurl}}/miles/transcript/2017/09/20170926-53484009)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年9月9日视频 20170909_3船上直播 他们把死人都给搬出来了！]({{site.baseurl}}/miles/transcript/2017/09/20170909-53483564)
 
 [郭文贵2017年9月9日视频 20170909_2分享此时此刻 为今天的直播技术失误道歉]({{site.baseurl}}/miles/transcript/2017/09/20170909-53483562)
-
-[郭文贵2017年9月7日视频 20170907是孙力军．孟建柱．傅政华．王岐山．的凶恶．促使文贵决定美国政治屁护！]({{site.baseurl}}/miles/transcript/2017/09/20170907-53483961)
 
 
 ## 頁面 104/110 [**<**]({{site.baseurl}}/miles/transcript/page103) [1]({{site.baseurl}}/miles/transcript/index) ... [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) **104** [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) ... [**>**]({{site.baseurl}}/miles/transcript/page105)

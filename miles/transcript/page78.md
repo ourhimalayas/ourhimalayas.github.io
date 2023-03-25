@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 78/110 [**<**]({{site.baseurl}}/miles/transcript/page77) [1]({{site.baseurl}}/miles/transcript/index) ... [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) **78** [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page79)
 
+[郭文贵2019年6月12日视频 20190612_1细思喜马拉雅与文贵，班农直播，关注香港游行！（上）]({{site.baseurl}}/miles/transcript/2019/06/20190612-53479060)
+
 [郭文贵2019年6月12日视频 20190612_6香港战友在前线]({{site.baseurl}}/miles/transcript/2019/06/20190612-53478087)
 
 [郭文贵2019年6月11日视频 20190611_1郭文贵先生直播连线香港]({{site.baseurl}}/miles/transcript/2019/06/20190611-53479036)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年5月25日视频 20190525世界秩序新开始就在日本G20会议 G20 summit will mark the beginning of a new US-China game!]({{site.baseurl}}/miles/transcript/2019/05/20190525-53482697)
 
 [郭文贵2019年5月23日直播 20190523鲁仁达先生与文贵在线互访直播]({{site.baseurl}}/miles/transcript/2019/05/20190523-53482675)
-
-[郭文贵2019年5月23日直播 20190523_2郭文贵先生与鲁任达先生直播 不完整高清版]({{site.baseurl}}/miles/transcript/2019/05/20190523-53478088)
 
 
 ## 頁面 78/110 [**<**]({{site.baseurl}}/miles/transcript/page77) [1]({{site.baseurl}}/miles/transcript/index) ... [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) **78** [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page79)

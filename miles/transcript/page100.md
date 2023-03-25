@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 100/110 [**<**]({{site.baseurl}}/miles/transcript/page99) [1]({{site.baseurl}}/miles/transcript/index) ... [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) **100** [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page101)
 
+[郭文贵2018年2月12日视频 20180212_3 三小时版本郭文贵首次在郭媒体上直播！放出博讯拿钱删帖证据！对陈军做最后一次说明！大量网友互动内中有猛料！]({{site.baseurl}}/miles/transcript/2018/02/20180212-53477343)
+
 [郭文贵2018年2月11日 20180211_1为什么这么多战友支持文贵]({{site.baseurl}}/miles/transcript/2018/02/20180211-53484076)
 
 [郭文贵2018年2月11日视频 20180211_2郭文贵安保有漏洞，是谁向上海局报告的？]({{site.baseurl}}/miles/transcript/2018/02/20180211-53477153)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年2月3日视频 20180203陈军、袁建斌欲害文贵之背景；与博讯、明镜、陈小平、何频之关系！]({{site.baseurl}}/miles/transcript/2018/02/20180203-53484037)
 
 [郭文贵2018年2月1日 20180201为什么有假郭媒体网站，诚征春晚节目，请网友踊跃投稿]({{site.baseurl}}/miles/transcript/2018/02/20180201-53484115)
-
-[郭文贵2018年2月1日 20180201_2 很快将爆光何频身边的陈军, 曾计划谋杀文贵]({{site.baseurl}}/miles/transcript/2018/02/20180201-53481354)
 
 
 ## 頁面 100/110 [**<**]({{site.baseurl}}/miles/transcript/page99) [1]({{site.baseurl}}/miles/transcript/index) ... [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) **100** [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page101)

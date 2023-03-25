@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 89/110 [**<**]({{site.baseurl}}/miles/transcript/page88) [1]({{site.baseurl}}/miles/transcript/index) ... [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) **89** [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page90)
 
+[郭文贵2018年10月9日instagram直播 20181009CCP如果攻击台湾美国会不会出兵为什么说港币和人民币会垮掉．保护台湾香港极为重要！]({{site.baseurl}}/miles/transcript/2018/10/20181009-53482837)
+
 [郭文贵2018年10月9日视频 20181009_2ccp如果攻击台湾美国会不会出兵为什么说港币和人民币会垮掉．保护台湾香港极为重要！]({{site.baseurl}}/miles/transcript/2018/10/20181009-53477442)
 
 [郭文贵2018年10月8日视频 20181008_2与黑水公司朋友射击]({{site.baseurl}}/miles/transcript/2018/10/20181008-53478122)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年9月27日视频 20180927_1]({{site.baseurl}}/miles/transcript/2018/09/20180927-53478308)
 
 [郭文贵2018年9月26日视频 20180926_1Snow: 搞幾個娘兒們算啥腐敗啊]({{site.baseurl}}/miles/transcript/2018/09/20180926-53478304)
-
-[郭文贵2018年9月24日视频 20180924_1]({{site.baseurl}}/miles/transcript/2018/09/20180924-53478301)
 
 
 ## 頁面 89/110 [**<**]({{site.baseurl}}/miles/transcript/page88) [1]({{site.baseurl}}/miles/transcript/index) ... [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) **89** [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page90)

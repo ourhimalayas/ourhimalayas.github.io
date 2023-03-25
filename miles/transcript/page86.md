@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 86/110 [**<**]({{site.baseurl}}/miles/transcript/page85) [1]({{site.baseurl}}/miles/transcript/index) ... [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) **86** [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page87)
 
+[郭文贵2018年12月08日视频 20181208船上跟大家聊聊天,.张首晟绝不会自杀!]({{site.baseurl}}/miles/transcript/2018/12/20181208-53478471)
+
 [郭文贵2018年12月7日视频 20181207_1文贵现在会捞鱼了]({{site.baseurl}}/miles/transcript/2018/12/20181207-53478556)
 
 [郭文贵2018年12月4日视频 20181204_1正在研究設計的郭戰友領帶是如何的特別]({{site.baseurl}}/miles/transcript/2018/12/20181204-53478554)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年11月16日视频 20181116_2]({{site.baseurl}}/miles/transcript/2018/11/20181116-53478402)
 
 [郭文贵2018年11月16日视频 20181116_1文贵在皮埃尔酒店现场采访演习搞笑版]({{site.baseurl}}/miles/transcript/2018/11/20181116-53478400)
-
-[郭文贵2018年11月15日视频 20181115发布会定在11月20日，班农主持，美国3大律师所之一Quinn参与的“以法灭共”新时代即将全面开始]({{site.baseurl}}/miles/transcript/2018/11/20181115-53480790)
 
 
 ## 頁面 86/110 [**<**]({{site.baseurl}}/miles/transcript/page85) [1]({{site.baseurl}}/miles/transcript/index) ... [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) **86** [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page87)

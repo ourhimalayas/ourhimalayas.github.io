@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 72/110 [**<**]({{site.baseurl}}/miles/transcript/page71) [1]({{site.baseurl}}/miles/transcript/index) ... [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) **72** [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page73)
 
+[郭文贵2019年8月15日视频 20190815Greetings honored friends! Have you done any workout? Have you spreaded the truth of...]({{site.baseurl}}/miles/transcript/2019/08/20190815-53483042)
+
 [2019年8月14日《文贵大直播》全文字版：谈美国已秘密调查中共安插在香港警队中的PLA 操纵美国股市]({{site.baseurl}}/miles/transcript/2019/08/20190814-53741165)
 
 [郭文贵2019年8月14日视频 20190814Miles Kwok letting everyone know he's safe. USA has secretly investigated the presence...]({{site.baseurl}}/miles/transcript/2019/08/20190814-53483035)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年8月5日视频 20190805香港大劫在即……希望香港的四个不要脸群体．能站在正义的一边帮助上街的孩子们。]({{site.baseurl}}/miles/transcript/2019/08/20190805-53482952)
 
 [郭文贵2019年8月4日视频 20190804_1香港要出随时出大事！传统媒体界转向爆料革命？]({{site.baseurl}}/miles/transcript/2019/08/20190804-53478894)
-
-[2019年8月3日文贵大直播全文字版：关注香港即将发生的大事]({{site.baseurl}}/miles/transcript/2019/08/20190803-53707154)
 
 
 ## 頁面 72/110 [**<**]({{site.baseurl}}/miles/transcript/page71) [1]({{site.baseurl}}/miles/transcript/index) ... [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) **72** [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page73)

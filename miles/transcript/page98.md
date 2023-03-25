@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 98/110 [**<**]({{site.baseurl}}/miles/transcript/page97) [1]({{site.baseurl}}/miles/transcript/index) ... [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) **98** [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page99)
 
+[郭文贵2018年3月24日视频 20180324报平安短视频]({{site.baseurl}}/miles/transcript/2018/03/20180324-53481957)
+
 [郭文贵2018年3月21日视频 20180321谈江曾两家是如何以65%的利息放高利贷的]({{site.baseurl}}/miles/transcript/2018/03/20180321-53481917)
 
 [郭文贵2018年3月21日直播 20180321_2报平安短视频]({{site.baseurl}}/miles/transcript/2018/03/20180321-53477363)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年3月9日视频第二部分 20180309_2谈文贵是不是要反习主席]({{site.baseurl}}/miles/transcript/2018/03/20180309-53481392)
 
 [郭文贵2018年3月8日直播 20180308_1修宪的本质和盗国有什么区别？以黑治国与2018两会什么关系？]({{site.baseurl}}/miles/transcript/2018/03/20180308-53477307)
-
-[郭文贵2018年3月7日报平安视频 20180307修宪是为了人民吗？当然不是．修宪的本质是恐惧！]({{site.baseurl}}/miles/transcript/2018/03/20180307-53481491)
 
 
 ## 頁面 98/110 [**<**]({{site.baseurl}}/miles/transcript/page97) [1]({{site.baseurl}}/miles/transcript/index) ... [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) **98** [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page99)
