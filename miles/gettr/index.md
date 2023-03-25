@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguo 3/25/2023 2:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2cirur52d3)
+
+2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第123场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/25/2023 1:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2cir2x3fff)
 
 2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第123场）
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguo 3/25/2023 2:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2cirur52d3)
+[@nsfcspeaksoffical 3/25/2023 2:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ciqk93a0e)
 
-2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第123场）
+2023.03.25 NFSC SPEAKS SATURDAY WITH JUSTINE BROOKE MURRAY
 
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2023/03/25/13/15629d40-1976-b5cd-fd6f-0c0d780e25fb/64c3b4d1c9bd3565d5aaf0bc64fbbd0a.jpeg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ Super-May线上直播音乐会 第四十八期：微风细雨
 钢琴/歌手：QMAY
 
 <img src="https://media.gettr.com/group3/origin/2023/03/24/23/42f379c7-e5ba-3dc8-6aa8-adb59374dc4e/36e9dbfb51cc5a5dfe7a5748ed66dc5b.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/24/2023 11:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ch3oa4f1b)
-
-2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第122场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
