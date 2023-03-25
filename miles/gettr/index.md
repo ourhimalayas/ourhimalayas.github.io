@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@milesguo 3/25/2023 10:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ciaez61aa)
+[@milesguo 3/24/2023 8:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2cgojeada2)
 
-3/23/2023 According to a recent article published on The Gateway Pundit, when the citizens of the NFSC held a peaceful protest at UMBC, they were harassed by a CCP drone despite that the area is a no-fly zone; then, at the request ...
+2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第123场）
 
-<img src="https://media.gettr.com/group5/getter/2023/03/25/10/33b96fc8-c420-1133-3728-c05f2b9405ae/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,14 @@ title: 郭先生的GETTR
 2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第123场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@milesguo 3/25/2023 10:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ciaez61aa)
+
+3/23/2023 According to a recent article published on The Gateway Pundit, when the citizens of the NFSC held a peaceful protest at UMBC, they were harassed by a CCP drone despite that the area is a no-fly zone; then, at the request ...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/25/10/33b96fc8-c420-1133-3728-c05f2b9405ae/out.jpg" width="506" height="284">
 
 ---
 
@@ -55,14 +63,6 @@ title: 郭先生的GETTR
 2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第123场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/25/2023 5:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2chtiwb1a8)
-
-03/23/2023 In an interview with the FOC Show, Ava Chen discussed Mr. Miles Guo's ongoing legal battles brought against him by the CCP infiltrating the US Department of Justice. Mr. Miles Guo has faced numerous false allegations ove...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/25/05/8d0bf45c-6d78-5c44-4c09-4a785e8640bc/out.jpg" width="506" height="284">
 
 ---
 
