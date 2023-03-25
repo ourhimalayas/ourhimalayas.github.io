@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 87/110 [**<**]({{site.baseurl}}/miles/transcript/page86) [1]({{site.baseurl}}/miles/transcript/index) ... [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) **87** [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page88)
 
+[郭文贵2018年11月17日视频 2018111711月20号的新闻发布会进展报告，遇到了巨大的困难，但是一定会照常进行]({{site.baseurl}}/miles/transcript/2018/11/20181117-53480934)
+
+[郭文贵2018年11月16日视频 20181116_2]({{site.baseurl}}/miles/transcript/2018/11/20181116-53478402)
+
+[郭文贵2018年11月16日视频 20181116_1文贵在皮埃尔酒店现场采访演习搞笑版]({{site.baseurl}}/miles/transcript/2018/11/20181116-53478400)
+
 [郭文贵2018年11月15日视频 20181115发布会定在11月20日，班农主持，美国3大律师所之一Quinn参与的“以法灭共”新时代即将全面开始]({{site.baseurl}}/miles/transcript/2018/11/20181115-53480790)
 
 [郭文贵2018年11月15日视频 20181115_3]({{site.baseurl}}/miles/transcript/2018/11/20181115-53478397)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年10月25日视频 20181025_2]({{site.baseurl}}/miles/transcript/2018/10/20181025-53478342)
 
 [郭文贵2018年10月24日视频 20181024王歧山与马云窜访忽悠以色列????????的现场直播！马云为什么愁眉紧锁！王岐山为自己家族准备的第三条路！]({{site.baseurl}}/miles/transcript/2018/10/20181024-53478376)
-
-[郭文贵2018年10月24日视频 20181024_3]({{site.baseurl}}/miles/transcript/2018/10/20181024-53478340)
-
-[郭文贵2018年10月24日视频 20181024_2太卡1]({{site.baseurl}}/miles/transcript/2018/10/20181024-53478337)
-
-[郭文贵2018年10月23日视频 20181023_4這幾天阿裡巴巴及騰訊的股票 港幣人民幣匯率 期指的變化怎麼回事]({{site.baseurl}}/miles/transcript/2018/10/20181023-53478335)
 
 
 ## 頁面 87/110 [**<**]({{site.baseurl}}/miles/transcript/page86) [1]({{site.baseurl}}/miles/transcript/index) ... [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) **87** [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page88)

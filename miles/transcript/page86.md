@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 86/110 [**<**]({{site.baseurl}}/miles/transcript/page85) [1]({{site.baseurl}}/miles/transcript/index) ... [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) **86** [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page87)
 
+[郭文贵2018年12月10日视频 20181210纠正一下昨天直播时的几个口误！刘乐国因为掌握令计划案北大李友案太多案情]({{site.baseurl}}/miles/transcript/2018/12/20181210-53481218)
+
+[郭文贵2018年12月10日视频 20181210_2大连刘乐国因为通过李友案件掌握了中南海的高官的很多证据被释放．他能活多久？]({{site.baseurl}}/miles/transcript/2018/12/20181210-53478559)
+
+[郭文贵2018年12月9日视频 20181209量震床上功夫和G20中美峰會的真相，孟晚舟女士在加拿大被抓與華為公司的背后真相，張首晟先生是自殺還是被殺。]({{site.baseurl}}/miles/transcript/2018/12/20181209-53479444)
+
 [郭文贵2018年12月08日视频 20181208船上跟大家聊聊天,.张首晟绝不会自杀!]({{site.baseurl}}/miles/transcript/2018/12/20181208-53478471)
 
 [郭文贵2018年12月7日视频 20181207_1文贵现在会捞鱼了]({{site.baseurl}}/miles/transcript/2018/12/20181207-53478556)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年11月19日视频 20181119_1王建之死发布会的前一天受到各方压力]({{site.baseurl}}/miles/transcript/2018/11/20181119-53478418)
 
 [郭文贵2018年11月18日视频 20181118_1]({{site.baseurl}}/miles/transcript/2018/11/20181118-53478407)
-
-[郭文贵2018年11月17日视频 2018111711月20号的新闻发布会进展报告，遇到了巨大的困难，但是一定会照常进行]({{site.baseurl}}/miles/transcript/2018/11/20181117-53480934)
-
-[郭文贵2018年11月16日视频 20181116_2]({{site.baseurl}}/miles/transcript/2018/11/20181116-53478402)
-
-[郭文贵2018年11月16日视频 20181116_1文贵在皮埃尔酒店现场采访演习搞笑版]({{site.baseurl}}/miles/transcript/2018/11/20181116-53478400)
 
 
 ## 頁面 86/110 [**<**]({{site.baseurl}}/miles/transcript/page85) [1]({{site.baseurl}}/miles/transcript/index) ... [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) **86** [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page87)

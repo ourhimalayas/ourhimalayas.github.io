@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 106/110 [**<**]({{site.baseurl}}/miles/transcript/page105) [1]({{site.baseurl}}/miles/transcript/index) ... [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) **106** [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page107)
 
+[郭文贵2017年8月23日视频 20170823]({{site.baseurl}}/miles/transcript/2017/08/20170823-53483528)
+
+[郭文贵2017年8月22日第二次直播 20170822盗国贼组织上百特务来美，用‘蓝金黄’计划对付文贵及知名推友。很多人及家人会被威胁。]({{site.baseurl}}/miles/transcript/2017/08/20170822-53484311)
+
+[郭文贵2017年8月22日直播 20170822_2]({{site.baseurl}}/miles/transcript/2017/08/20170822-53482776)
+
 [郭文贵2017年8月21日视频 20170821盗国贼害怕了，用假女助理推特、假音频攻击文贵。’’今后10天不爆料，估计是在等国内的回应，否则孟建柱政法系就是下一波被爆料的对象]({{site.baseurl}}/miles/transcript/2017/08/20170821-53484299)
 
 [郭文贵2017年8月20日直播 20170820_1推特四段小视频合集]({{site.baseurl}}/miles/transcript/2017/08/20170820-53482774)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年8月3日 20170803关于网上虚假录音和香港警察搜查文贵香港办公室]({{site.baseurl}}/miles/transcript/2017/08/20170803-53483823)
 
 [郭文贵2017年8月2日第一次直播 20170802_1试试网络：拜托推友别给我发黄色视频．下一集的爆料的大概的预报！(1)]({{site.baseurl}}/miles/transcript/2017/08/20170802-53484170)
-
-[郭文贵2017年8月2日第二次直播 20170802_2试试网络：拜托推友别给我发黄色视频．下一集的爆料的大概的预报！(2)]({{site.baseurl}}/miles/transcript/2017/08/20170802-53483988)
-
-[郭文贵2017年8月2日第三次直播 20170802_3报平安小视频及王岐山内部讲话谈强拆，中共恶政太可怕！最应该被强拆的是盗国集团啊]({{site.baseurl}}/miles/transcript/2017/08/20170802-53483518)
-
-[郭文贵2017年8月1日视频 20170801露点报平安,海上钓鱼,请君入瓮,后发制人]({{site.baseurl}}/miles/transcript/2017/08/20170801-53483520)
 
 
 ## 頁面 106/110 [**<**]({{site.baseurl}}/miles/transcript/page105) [1]({{site.baseurl}}/miles/transcript/index) ... [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) **106** [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page107)

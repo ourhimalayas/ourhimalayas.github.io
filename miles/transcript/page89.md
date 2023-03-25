@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 89/110 [**<**]({{site.baseurl}}/miles/transcript/page88) [1]({{site.baseurl}}/miles/transcript/index) ... [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) **89** [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page90)
 
+[郭文贵2018年10月11日视频 20181011_1未来的三周将是文贵艰难的日子！盗国贼开始一系的疯狂抓捕审判我的员工及家人！拍卖公司资产！]({{site.baseurl}}/miles/transcript/2018/10/20181011-53478345)
+
+[郭文贵2018年10月10日视频 20181010江．朱．王．等盗国贼们．正在疯狂的向海外洗钱！党内对国有化私人企业！产生巨大分歧！都在等上面出大事儿！]({{site.baseurl}}/miles/transcript/2018/10/20181010-53482682)
+
+[郭文贵2018年10月10日视频 20181010_2这个来自黎巴嫩的马黑地是AMAC飞机装修公司的主席！他与UBS银行孟宏伟．海航一起共同策划了这起骇人听闻的诈骗抢劫AMAC，CEO Muhiddin案！]({{site.baseurl}}/miles/transcript/2018/10/20181010-53477453)
+
 [郭文贵2018年10月9日instagram直播 20181009CCP如果攻击台湾美国会不会出兵为什么说港币和人民币会垮掉．保护台湾香港极为重要！]({{site.baseurl}}/miles/transcript/2018/10/20181009-53482837)
 
 [郭文贵2018年10月9日视频 20181009_2ccp如果攻击台湾美国会不会出兵为什么说港币和人民币会垮掉．保护台湾香港极为重要！]({{site.baseurl}}/miles/transcript/2018/10/20181009-53477442)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年9月29日视频 20180929_1]({{site.baseurl}}/miles/transcript/2018/09/20180929-53478318)
 
 [郭文贵2018年9月28日视频 20180928文贵在会议结束后返回途中的飞机上，和战友们汇报一下会议的初步概况，一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/09/20180928-53482665)
-
-[郭文贵2018年9月28日视频 20180928_2文贵坐车下山准备回纽约！]({{site.baseurl}}/miles/transcript/2018/09/20180928-53478312)
-
-[郭文贵2018年9月27日视频 20180927_1]({{site.baseurl}}/miles/transcript/2018/09/20180927-53478308)
-
-[郭文贵2018年9月26日视频 20180926_1Snow: 搞幾個娘兒們算啥腐敗啊]({{site.baseurl}}/miles/transcript/2018/09/20180926-53478304)
 
 
 ## 頁面 89/110 [**<**]({{site.baseurl}}/miles/transcript/page88) [1]({{site.baseurl}}/miles/transcript/index) ... [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) **89** [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page90)

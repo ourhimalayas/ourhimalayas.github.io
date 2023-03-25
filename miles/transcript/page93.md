@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 93/110 [**<**]({{site.baseurl}}/miles/transcript/page92) [1]({{site.baseurl}}/miles/transcript/index) ... [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) **93** [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page94)
 
+[郭文贵2018年8月9日直播 20180809_2]({{site.baseurl}}/miles/transcript/2018/08/20180809-53478139)
+
+[郭文贵2018年8月8日直播 20180808_7我将拉黑任何一个挑战喜马拉雅打击盗国贼的推号开足马力全力以赴投入全部精力物力推进爆料革命]({{site.baseurl}}/miles/transcript/2018/08/20180808-53478136)
+
+[郭文贵2018年8月8日直播 20180808_6下一周是给盗国贼反击的时间文贵要准备发布会和刑事案件具体落实一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2018/08/20180808-53478131)
+
 [郭文贵2018年8月8日直播 20180808_5起诉欺民贼以爆料文贵上帝的名义诈骗的郭宝胜只是刚刚开始]({{site.baseurl}}/miles/transcript/2018/08/20180808-53478128)
 
 [郭文贵2018年8月8日直播 20180808_4盗国贼为了掩盖杀王建的罪恶接下来将有以下的行动]({{site.baseurl}}/miles/transcript/2018/08/20180808-53478118)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年7月18日lns直播视频 20180718昨天直播在国内炸了锅，中大使馆威胁国际刑警不要插手，在采取外交行动，普托旺斯的居民都想和文贵合]({{site.baseurl}}/miles/transcript/2018/07/20180718-53482453)
 
 [郭文贵2018年7月17日路德访谈（三）20180717_3郭文贵先生全球直播（第三部分）]({{site.baseurl}}/miles/transcript/2018/07/20180717-53482445)
-
-[郭文贵2018年7月17日路德访谈（二）20180717_2郭文贵先生全球直播（第二部分）]({{site.baseurl}}/miles/transcript/2018/07/20180717-53482435)
-
-[郭文贵2018年7月17日路德访谈（一）20180717_1郭文贵先生全球直播（第一部分）]({{site.baseurl}}/miles/transcript/2018/07/20180717-53482415)
-
-[郭文贵2018年7月17日路德访谈 20180717_4高清版 王健在法国普罗旺斯是怎么被王歧山杀死的！]({{site.baseurl}}/miles/transcript/2018/07/20180717-53478371)
 
 
 ## 頁面 93/110 [**<**]({{site.baseurl}}/miles/transcript/page92) [1]({{site.baseurl}}/miles/transcript/index) ... [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) **93** [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page94)

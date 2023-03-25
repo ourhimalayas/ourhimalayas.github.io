@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 67/110 [**<**]({{site.baseurl}}/miles/transcript/page66) [1]({{site.baseurl}}/miles/transcript/index) ... [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) **67** [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page68)
 
+[2019年10月12日郭文贵先生船上直播跟战友分享夜景，香港人权法案，反共灭共之势无人能阻挡全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191012-53909193)
+
+[2019年10月12日郭文贵先生船上直播跟战友分享夜景，香港人权法案，反共灭共之势无人能阻挡全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191012-53909141)
+
+[2019年10月12日 中美达成的初步协议 对爆料革命无影响，但绝对是最糟糕；香港同胞最受影响；灭共要靠我们自己！ 全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191012-53903476)
+
 [郭文贵2019年10月12日视频 20191012中美达成的初步协议 对爆料革命无影响，但绝对是最糟糕；香港同胞最受影响；灭共要靠我们自己！]({{site.baseurl}}/miles/transcript/2019/10/20191012-53483319)
 
 [郭文贵2019年10月12日视频 20191012_4 郭文贵先生船上直播跟战友分享夜景，香港人权法案，反共灭共之势无人能阻挡]({{site.baseurl}}/miles/transcript/2019/10/20191012-53479064)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年10月5日与郭文贵先生连线直播全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191005-53894082)
 
 [2019年10月4日文贵大直播全文字版：谈香港动用紧急法，出台禁止蒙面条例]({{site.baseurl}}/miles/transcript/2019/10/20191004-53885249)
-
-[郭文贵2019年10月4日 20191004谈香港动用紧急法，出台禁止蒙面条例]({{site.baseurl}}/miles/transcript/2019/10/20191004-53483221)
-
-[郭文贵2019年10月3日视频 20191003_1香港将实施宵禁令 变相戒严 大抓捕]({{site.baseurl}}/miles/transcript/2019/10/20191003-53479035)
-
-[郭文贵2019年10月2日视频 20191002_1美国CAI通过最高技术 扫描‘十一’军演无人机 发现都是假的]({{site.baseurl}}/miles/transcript/2019/10/20191002-53479029)
 
 
 ## 頁面 67/110 [**<**]({{site.baseurl}}/miles/transcript/page66) [1]({{site.baseurl}}/miles/transcript/index) ... [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) **67** [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page68)

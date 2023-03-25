@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 103/110 [**<**]({{site.baseurl}}/miles/transcript/page102) [1]({{site.baseurl}}/miles/transcript/index) ... [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) **103** [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page104)
 
+[郭文贵2017年11月2日在Livestream试直播 20171102]({{site.baseurl}}/miles/transcript/2017/11/20171102-53484179)
+
+[郭文贵2017年11月1日 20171101“谁抓判文贵的家人？”什么时候报下两个常委的料！]({{site.baseurl}}/miles/transcript/2017/11/20171101-53484028)
+
+[郭文贵2017年11月1日视频 20171101_2征服敌人最好的办法就是将自己的事情做好生活好]({{site.baseurl}}/miles/transcript/2017/11/20171101-53476954)
+
 [郭文贵2017年10月31日第一次直播 20171031_1改變十九大布局後，郭文貴首次接受媒體採訪-新常委中盜國賊是韓正還是栗戰書？是趙樂際還是汪洋？18屆政治局委員劉延東如何成為盜國婊？民生銀行的張宏偉是怎樣成為劉盜國婊的白手套？]({{site.baseurl}}/miles/transcript/2017/10/20171031-53484171)
 
 [郭文贵2017年10月31日第二次直播 20171031_2关于郭文贵家人再次被捕被判]({{site.baseurl}}/miles/transcript/2017/10/20171031-53484025)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年10月4日视频 20171004_2在华盛顿报平安]({{site.baseurl}}/miles/transcript/2017/10/20171004-53483611)
 
 [郭文贵2017年10月2日视频 20171002为拉斯维加斯悲剧受害者祈福]({{site.baseurl}}/miles/transcript/2017/10/20171002-53483608)
-
-[郭文贵2017年10月1日视频 20171001明天请挺郭人士上船]({{site.baseurl}}/miles/transcript/2017/10/20171001-53483606)
-
-[郭文贵2017年9月30日视频 20170930中国驻美大使馆给哈德逊打电话阻止郭的演讲]({{site.baseurl}}/miles/transcript/2017/09/20170930-53483604)
-
-[郭文贵2017年9月29日视频 20170929北京老领导说信息梗阻 吴征杨澜来纽约了]({{site.baseurl}}/miles/transcript/2017/09/20170929-53483601)
 
 
 ## 頁面 103/110 [**<**]({{site.baseurl}}/miles/transcript/page102) [1]({{site.baseurl}}/miles/transcript/index) ... [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) **103** [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page104)

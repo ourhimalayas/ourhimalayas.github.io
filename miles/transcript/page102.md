@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 102/110 [**<**]({{site.baseurl}}/miles/transcript/page101) [1]({{site.baseurl}}/miles/transcript/index) ... [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) **102** [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page103)
 
+[郭文贵2017年12月23日 20171223关于盘古被掠夺、蛆聋等8个伪类的诉讼，以及下一步的爆料计划，文贵向北京再次提出条件]({{site.baseurl}}/miles/transcript/2017/12/20171223-53483967)
+
+[郭文贵2017年12月12日 20171212文贵给即将在大连被冤审的员工及家人的誓言；谈小平妻子失踪，法新社采访，华涌及乱运8分子]({{site.baseurl}}/miles/transcript/2017/12/20171212-53483946)
+
+[郭文贵2017年12月9日 20171209纽约下大雪了！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2017/12/20171209-53483940)
+
 [郭文贵2017年12月8日视频 20171208一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2017/12/20171208-53483937)
 
 [郭文贵2017年12月5日 20171205尊敬的推友们你们健身了吗？]({{site.baseurl}}/miles/transcript/2017/12/20171205-53483933)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年11月8日 20171108twitter再次被封7天后的报平安]({{site.baseurl}}/miles/transcript/2017/11/20171108-53484033)
 
 [郭文贵2017年11月7日接受郭宝胜采访 20171107]({{site.baseurl}}/miles/transcript/2017/11/20171107-53484192)
-
-[郭文贵2017年11月2日在Livestream试直播 20171102]({{site.baseurl}}/miles/transcript/2017/11/20171102-53484179)
-
-[郭文贵2017年11月1日 20171101“谁抓判文贵的家人？”什么时候报下两个常委的料！]({{site.baseurl}}/miles/transcript/2017/11/20171101-53484028)
-
-[郭文贵2017年11月1日视频 20171101_2征服敌人最好的办法就是将自己的事情做好生活好]({{site.baseurl}}/miles/transcript/2017/11/20171101-53476954)
 
 
 ## 頁面 102/110 [**<**]({{site.baseurl}}/miles/transcript/page101) [1]({{site.baseurl}}/miles/transcript/index) ... [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) **102** [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page103)

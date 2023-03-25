@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 97/110 [**<**]({{site.baseurl}}/miles/transcript/page96) [1]({{site.baseurl}}/miles/transcript/index) ... [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) **97** [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page98)
 
+[郭文贵2018年4月16日视频 20180416_2我正在马阿拉哥庄园的对面的海上]({{site.baseurl}}/miles/transcript/2018/04/20180416-53477173)
+
+[郭文贵2018年4月14日视频 20180414谈美国及盟国导弹袭击叙利亚是中国的第二次战略机会还是盗国贼盗国的最大机会]({{site.baseurl}}/miles/transcript/2018/04/20180414-53482280)
+
+[郭文贵2018年4月13日视频 20180413_1谈为什么要爆杨洁篪的料]({{site.baseurl}}/miles/transcript/2018/04/20180413-53482275)
+
 [郭文贵2018年4月13日直播 20180413_2跟战友分享下美景，不聊贸易战，南海军演，王岐山访美和杨洁篪]({{site.baseurl}}/miles/transcript/2018/04/20180413-53477526)
 
 [郭文贵2018年4月12日直播 20180412_2内涵段子是中国民主法治自由的新纪元！]({{site.baseurl}}/miles/transcript/2018/04/20180412-53477466)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年3月28日第一次直播 20180328_1谈香港警察如何黑抓我们的员工和钱]({{site.baseurl}}/miles/transcript/2018/03/20180328-53481918)
 
 [郭文贵2018年3月27日直播 20180327_2不允许任何劵商买卖方正股票为的啥？]({{site.baseurl}}/miles/transcript/2018/03/20180327-53477421)
-
-[郭文贵2018年3月27日直播 20180327_1-海航3月29日要重新洗牌．王岐山要干什么大事]({{site.baseurl}}/miles/transcript/2018/03/20180327-53477386)
-
-[郭文贵2018年3月26日第一次直播 20180326_1不能将爆料变成娱乐]({{site.baseurl}}/miles/transcript/2018/03/20180326-53483687)
-
-[郭文贵2018年3月26日第二次直播 20180326_2谈他们为什么让一个女人裸站几个小时]({{site.baseurl}}/miles/transcript/2018/03/20180326-53481970)
 
 
 ## 頁面 97/110 [**<**]({{site.baseurl}}/miles/transcript/page96) [1]({{site.baseurl}}/miles/transcript/index) ... [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) **97** [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page98)

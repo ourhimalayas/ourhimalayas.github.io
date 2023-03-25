@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 110/110 [**<**]({{site.baseurl}}/miles/transcript/page109) [1]({{site.baseurl}}/miles/transcript/index) ... [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) **110**
 
+[郭文贵2017年5月1日与刘彦平的通话三 20170501_3郭文贵与安全部纪委书记刘彦平的通话三]({{site.baseurl}}/miles/transcript/2017/05/20170501-53484029)
+
+[郭文贵2017年5月1日与刘彦平的通话二 20170501_2想了解南普陀会议吗？想了解江家将到底有什么样的影响力吗？想了解真正令计划犯等如何在中南海．人民大会堂．主席专机上搞女人吗？想知道薄熙来他们怎么杀人吗？想知道文贵前几天爆料的]({{site.baseurl}}/miles/transcript/2017/05/20170501-53483944)
+
+[郭文贵2017年5月1日与刘彦平的通话一 20170501_1]({{site.baseurl}}/miles/transcript/2017/05/20170501-53483939)
+
 [郭文贵2017年4月29日第三次直播 20170429_3推友关注过15万感谢视频]({{site.baseurl}}/miles/transcript/2017/04/20170429-53483747)
 
 [郭文贵2017年4月29日第二次直播 20170429_2过十四万感谢视频]({{site.baseurl}}/miles/transcript/2017/04/20170429-53483741)

@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 98/110 [**<**]({{site.baseurl}}/miles/transcript/page97) [1]({{site.baseurl}}/miles/transcript/index) ... [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) **98** [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page99)
 
+[郭文贵2018年3月27日直播 20180327_1-海航3月29日要重新洗牌．王岐山要干什么大事]({{site.baseurl}}/miles/transcript/2018/03/20180327-53477386)
+
+[郭文贵2018年3月26日第一次直播 20180326_1不能将爆料变成娱乐]({{site.baseurl}}/miles/transcript/2018/03/20180326-53483687)
+
+[郭文贵2018年3月26日第二次直播 20180326_2谈他们为什么让一个女人裸站几个小时]({{site.baseurl}}/miles/transcript/2018/03/20180326-53481970)
+
 [郭文贵2018年3月24日视频 20180324报平安短视频]({{site.baseurl}}/miles/transcript/2018/03/20180324-53481957)
 
 [郭文贵2018年3月21日视频 20180321谈江曾两家是如何以65%的利息放高利贷的]({{site.baseurl}}/miles/transcript/2018/03/20180321-53481917)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年3月11日报平安视频 20180311谈5.1共振看法及昨天发错误文件和陈军下一步的行动]({{site.baseurl}}/miles/transcript/2018/03/20180311-53481508)
 
 [郭文贵2018年3月11日直播 20180311_2郭文贵要发大财了！有机构想收购郭先生的精子哈哈哈哈]({{site.baseurl}}/miles/transcript/2018/03/20180311-53477316)
-
-[郭文贵2018年3月9日视频第一部分 20180309_1文贵有三急：（担心)马健副部长被心脏病死！陈希部长被出车祸！老领导被脑血管意外死亡！未来一些日子将腥风血雨！]({{site.baseurl}}/miles/transcript/2018/03/20180309-53481506)
-
-[郭文贵2018年3月9日视频第二部分 20180309_2谈文贵是不是要反习主席]({{site.baseurl}}/miles/transcript/2018/03/20180309-53481392)
-
-[郭文贵2018年3月8日直播 20180308_1修宪的本质和盗国有什么区别？以黑治国与2018两会什么关系？]({{site.baseurl}}/miles/transcript/2018/03/20180308-53477307)
 
 
 ## 頁面 98/110 [**<**]({{site.baseurl}}/miles/transcript/page97) [1]({{site.baseurl}}/miles/transcript/index) ... [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) **98** [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page99)

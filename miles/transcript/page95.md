@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 95/110 [**<**]({{site.baseurl}}/miles/transcript/page94) [1]({{site.baseurl}}/miles/transcript/index) ... [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) **95** [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page96)
 
+[郭文贵2018年6月10日 20180610玉岐山孟建柱命不久了！马航真相一定会公布！(一)]({{site.baseurl}}/miles/transcript/2018/06/20180610-53483801)
+
+[郭文贵2018年6月10日直播 20180610_2文贵爆料第一階段启蒙期结束．正在准备第二階段．定点爆破！]({{site.baseurl}}/miles/transcript/2018/06/20180610-53477865)
+
+[郭文贵2018年6月5日直播 20180605_2 看了万润南先生的视频后的感想！]({{site.baseurl}}/miles/transcript/2018/06/20180605-53477847)
+
 [郭文贵2018年6月5日直播 20180605_1拉斯维加斯的会议出钱者．A级通缉犯成水炎的过去与现在！]({{site.baseurl}}/miles/transcript/2018/06/20180605-53477838)
 
 [郭文贵2018年6月4日直播 20180604_1红冰与习近平拍女人屁股．砖拍李克强全是吹象乂……！]({{site.baseurl}}/miles/transcript/2018/06/20180604-53477829)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年5月5日视频第二部分 20180505_2陈氏兄弟及盟相关机密文件内幕]({{site.baseurl}}/miles/transcript/2018/05/20180505-53483665)
 
 [郭文贵2018年5月5日视频 20180505_4连线路德访谈：揭露陈氏兄弟、专员以及机密文件更多相关内幕]({{site.baseurl}}/miles/transcript/2018/05/20180505-53482384)
-
-[郭文贵2018年5月3日视频 20180503推墙卫星准备就绪即将发射大家耐心等待]({{site.baseurl}}/miles/transcript/2018/05/20180503-53477181)
-
-[郭文贵2018年5月2日视频 20180502Instagram 直播 《战友同行》]({{site.baseurl}}/miles/transcript/2018/05/20180502-53482342)
-
-[郭文贵2018年5月1日直播 20180501_3郭文贵先生突然进入聊天室，回答网友问答，谈北京盘古双龙戏珠的龙脉设计的内幕]({{site.baseurl}}/miles/transcript/2018/05/20180501-53477786)
 
 
 ## 頁面 95/110 [**<**]({{site.baseurl}}/miles/transcript/page94) [1]({{site.baseurl}}/miles/transcript/index) ... [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) **95** [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page96)

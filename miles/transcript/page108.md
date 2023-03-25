@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 108/110 [**<**]({{site.baseurl}}/miles/transcript/page107) [1]({{site.baseurl}}/miles/transcript/index) ... [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) **108** [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page109)
 
+[郭文贵2017年6月27日 20170627应推友们的要求和狗狗snow的视频]({{site.baseurl}}/miles/transcript/2017/06/20170627-53483791)
+
+[郭文贵2017年6月26日视频 20170626]({{site.baseurl}}/miles/transcript/2017/06/20170626-53483789)
+
+[郭文贵2017年6月24日视频 20170624推特报平安视频. 推文打成了“报仇平安”哈哈O(∩_∩)O]({{site.baseurl}}/miles/transcript/2017/06/20170624-53483526)
+
 [郭文贵2017年6月22日视频 20170622推特报平安视频……一切都是刚刚开始！✊️✊️✊️✊️]({{site.baseurl}}/miles/transcript/2017/06/20170622-53483527)
 
 [郭文贵2017年6月19日视频 20170619再让子弹飞一会儿！]({{site.baseurl}}/miles/transcript/2017/06/20170619-53483786)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年5月21日第一次直播 20170521_1]({{site.baseurl}}/miles/transcript/2017/05/20170521-53483996)
 
 [郭文贵2017年5月21日第三次直播 20170521_3]({{site.baseurl}}/miles/transcript/2017/05/20170521-53483794)
-
-[郭文贵2017年5月21日第二次直播 20170521_2]({{site.baseurl}}/miles/transcript/2017/05/20170521-53483778)
-
-[郭文贵2017年5月20日第一次直播 20170520在香港是否存在执法黑屋]({{site.baseurl}}/miles/transcript/2017/05/20170520-53483761)
-
-[郭文贵2017年5月19日 20170519感恩推友关心 呼吁推友冷静]({{site.baseurl}}/miles/transcript/2017/05/20170519-53483759)
 
 
 ## 頁面 108/110 [**<**]({{site.baseurl}}/miles/transcript/page107) [1]({{site.baseurl}}/miles/transcript/index) ... [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) **108** [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page109)

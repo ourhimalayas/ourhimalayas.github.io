@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 105/110 [**<**]({{site.baseurl}}/miles/transcript/page104) [1]({{site.baseurl}}/miles/transcript/index) ... [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) **105** [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page106)
 
+[郭文贵2017年9月9日视频 20170909_4补偿今天直播技术的失败 分享游艇内部]({{site.baseurl}}/miles/transcript/2017/09/20170909-53483567)
+
+[郭文贵2017年9月9日视频 20170909_3船上直播 他们把死人都给搬出来了！]({{site.baseurl}}/miles/transcript/2017/09/20170909-53483564)
+
+[郭文贵2017年9月9日视频 20170909_2分享此时此刻 为今天的直播技术失误道歉]({{site.baseurl}}/miles/transcript/2017/09/20170909-53483562)
+
 [郭文贵2017年9月7日视频 20170907是孙力军．孟建柱．傅政华．王岐山．的凶恶．促使文贵决定美国政治屁护！]({{site.baseurl}}/miles/transcript/2017/09/20170907-53483961)
 
 [郭文贵2017年9月6日视频 20170906王岐山．孟建柱．孙力军．傅政华．如何对待女人！]({{site.baseurl}}/miles/transcript/2017/09/20170906-53483863)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年8月25日视频 20170825_270天的特别之旅]({{site.baseurl}}/miles/transcript/2017/08/20170825-53483540)
 
 [郭文贵2017年8月24日 20170824关于腾彪先生造谣文贵乱伦]({{site.baseurl}}/miles/transcript/2017/08/20170824-53483923)
-
-[郭文贵2017年8月23日视频 20170823]({{site.baseurl}}/miles/transcript/2017/08/20170823-53483528)
-
-[郭文贵2017年8月22日第二次直播 20170822盗国贼组织上百特务来美，用‘蓝金黄’计划对付文贵及知名推友。很多人及家人会被威胁。]({{site.baseurl}}/miles/transcript/2017/08/20170822-53484311)
-
-[郭文贵2017年8月22日直播 20170822_2]({{site.baseurl}}/miles/transcript/2017/08/20170822-53482776)
 
 
 ## 頁面 105/110 [**<**]({{site.baseurl}}/miles/transcript/page104) [1]({{site.baseurl}}/miles/transcript/index) ... [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) **105** [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page106)

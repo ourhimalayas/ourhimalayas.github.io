@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 90/110 [**<**]({{site.baseurl}}/miles/transcript/page89) [1]({{site.baseurl}}/miles/transcript/index) ... [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) **90** [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page91)
 
+[郭文贵2018年9月28日视频 20180928_2文贵坐车下山准备回纽约！]({{site.baseurl}}/miles/transcript/2018/09/20180928-53478312)
+
+[郭文贵2018年9月27日视频 20180927_1]({{site.baseurl}}/miles/transcript/2018/09/20180927-53478308)
+
+[郭文贵2018年9月26日视频 20180926_1Snow: 搞幾個娘兒們算啥腐敗啊]({{site.baseurl}}/miles/transcript/2018/09/20180926-53478304)
+
 [郭文贵2018年9月24日视频 20180924_1]({{site.baseurl}}/miles/transcript/2018/09/20180924-53478301)
 
 [郭文贵2018年9月23日视频 20180923_2Snow攜女友隨文貴搭機飛往鄰國參加重要會議]({{site.baseurl}}/miles/transcript/2018/09/20180923-53478298)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年9月15日直播 20180915_1]({{site.baseurl}}/miles/transcript/2018/09/20180915-53478256)
 
 [郭文贵2018年9月13日直播 20180913_1]({{site.baseurl}}/miles/transcript/2018/09/20180913-53478253)
-
-[郭文贵2018年9月12日第一次直播 20180912_1战友之声聊天室曝光 调查王健的一个团队被盗国贼50万美金买走所有资料；爆料和姬胜德认识过程；文贵先生早年的经历；90年代赖昌星一天赚2个亿人民币；再次承诺2亿美金成立老兵基金！]({{site.baseurl}}/miles/transcript/2018/09/20180912-53482585)
-
-[郭文贵2018年9月12日第三次直播 20180912_3某军委委员家一面墙的翡翠就价值3个亿美金；首次酒后爆文贵先生80年代－90年代起家经历；爆释永信的私生子；戒忍和尚写一个对联受8万元钱故事！]({{site.baseurl}}/miles/transcript/2018/09/20180912-53482571)
-
-[郭文贵2018年9月12日第二次直播 20180912_2文贵先生進Sara Discord聊天室前]({{site.baseurl}}/miles/transcript/2018/09/20180912-53478251)
 
 
 ## 頁面 90/110 [**<**]({{site.baseurl}}/miles/transcript/page89) [1]({{site.baseurl}}/miles/transcript/index) ... [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) **90** [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page91)

@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 107/110 [**<**]({{site.baseurl}}/miles/transcript/page106) [1]({{site.baseurl}}/miles/transcript/index) ... [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) **107** [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page108)
 
+[郭文贵2017年8月2日第二次直播 20170802_2试试网络：拜托推友别给我发黄色视频．下一集的爆料的大概的预报！(2)]({{site.baseurl}}/miles/transcript/2017/08/20170802-53483988)
+
+[郭文贵2017年8月2日第三次直播 20170802_3报平安小视频及王岐山内部讲话谈强拆，中共恶政太可怕！最应该被强拆的是盗国集团啊]({{site.baseurl}}/miles/transcript/2017/08/20170802-53483518)
+
+[郭文贵2017年8月1日视频 20170801露点报平安,海上钓鱼,请君入瓮,后发制人]({{site.baseurl}}/miles/transcript/2017/08/20170801-53483520)
+
 [郭文贵2017年7月27日 20170727王岐山的真姚庆到底怕什么]({{site.baseurl}}/miles/transcript/2017/07/20170727-53483819)
 
 [郭文贵2017年7月26日 20170726贯君的6000亿原来去了这里！刘呈杰他爹原来是他！]({{site.baseurl}}/miles/transcript/2017/07/20170726-53483808)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年6月30日直播 20170630关于王岐山与范冰冰的关系]({{site.baseurl}}/miles/transcript/2017/06/20170630-53483811)
 
 [郭文贵2017年6月28日完整版 20170628]({{site.baseurl}}/miles/transcript/2017/06/20170628-53483804)
-
-[郭文贵2017年6月27日 20170627应推友们的要求和狗狗snow的视频]({{site.baseurl}}/miles/transcript/2017/06/20170627-53483791)
-
-[郭文贵2017年6月26日视频 20170626]({{site.baseurl}}/miles/transcript/2017/06/20170626-53483789)
-
-[郭文贵2017年6月24日视频 20170624推特报平安视频. 推文打成了“报仇平安”哈哈O(∩_∩)O]({{site.baseurl}}/miles/transcript/2017/06/20170624-53483526)
 
 
 ## 頁面 107/110 [**<**]({{site.baseurl}}/miles/transcript/page106) [1]({{site.baseurl}}/miles/transcript/index) ... [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) **107** [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page108)
