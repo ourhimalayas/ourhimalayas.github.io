@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguo 3/25/2023 3:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2cip424f59)
+
+2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第123场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 3/25/2023 2:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ciqk93a0e)
 
 2023.03.25 NFSC SPEAKS SATURDAY WITH JUSTINE BROOKE MURRAY
@@ -26,9 +34,9 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguo 3/25/2023 3:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2cip424f59)
+[@milesguo 3/25/2023 4:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2cjb7qad72)
 
-2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第123场）
+2023.03.25 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第144场）
 
 <img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
@@ -147,14 +155,6 @@ title: 郭先生的GETTR
 ---
 
 [@milesguo 3/25/2023 1:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2chd8w2d96)
-
-2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第122场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/25/2023 12:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ch95g83f7)
 
 2023.03.24 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第122场）
 
