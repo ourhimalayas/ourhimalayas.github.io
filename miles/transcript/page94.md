@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 94/110 [**<**]({{site.baseurl}}/miles/transcript/page93) [1]({{site.baseurl}}/miles/transcript/index) ... [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) **94** [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page95)
 
+[郭文贵2018年7月18日lns直播视频 20180718昨天直播在国内炸了锅，中大使馆威胁国际刑警不要插手，在采取外交行动，普托旺斯的居民都想和文贵合]({{site.baseurl}}/miles/transcript/2018/07/20180718-53482453)
+
+[郭文贵2018年7月17日路德访谈（三）20180717_3郭文贵先生全球直播（第三部分）]({{site.baseurl}}/miles/transcript/2018/07/20180717-53482445)
+
 [郭文贵2018年7月17日路德访谈（二）20180717_2郭文贵先生全球直播（第二部分）]({{site.baseurl}}/miles/transcript/2018/07/20180717-53482435)
 
 [郭文贵2018年7月17日路德访谈（一）20180717_1郭文贵先生全球直播（第一部分）]({{site.baseurl}}/miles/transcript/2018/07/20180717-53482415)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年6月16日直播 20180616_1万分感激网络侠客联盟．正义黑客小哥．大侠保罗先生的拨剑相助．给大家一个真相]({{site.baseurl}}/miles/transcript/2018/06/20180616-53477914)
 
 [郭文贵2018年6月15日直播 20180615_1谈只有中国正道主义可以救中国．只有与西方和平共处才能让中国长治久安！]({{site.baseurl}}/miles/transcript/2018/06/20180615-53477910)
-
-[郭文贵2018年6月13日直播 20180613_1郭战装与什么是习主席的政治轮轴效应！]({{site.baseurl}}/miles/transcript/2018/06/20180613-53477894)
-
-[郭文贵2018年6月11日直播 20180611_1陈峰脑血管病急救．感谢黑客先生．大陆官场热离婚．商场热移民美国！习主席进入官场轮轴灾难区！]({{site.baseurl}}/miles/transcript/2018/06/20180611-53477873)
 
 
 ## 頁面 94/110 [**<**]({{site.baseurl}}/miles/transcript/page93) [1]({{site.baseurl}}/miles/transcript/index) ... [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) **94** [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page95)

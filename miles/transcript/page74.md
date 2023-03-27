@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 74/110 [**<**]({{site.baseurl}}/miles/transcript/page73) [1]({{site.baseurl}}/miles/transcript/index) ... [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) **74** [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page75)
 
+[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分]({{site.baseurl}}/miles/transcript/2019/07/20190727-53715653)
+
+[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分]({{site.baseurl}}/miles/transcript/2019/07/20190727-53715528)
+
 [2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分]({{site.baseurl}}/miles/transcript/2019/07/20190727-53715452)
 
 [2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分]({{site.baseurl}}/miles/transcript/2019/07/20190727-53715422)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年7月23日直播 20190723_3黑客后第二段高清版]({{site.baseurl}}/miles/transcript/2019/07/20190723-53478078)
 
 [2019年7月22日 直播全文字版]({{site.baseurl}}/miles/transcript/2019/07/20190722-53673045)
-
-[2019年7月21日直播全文字版：爆料革命进入全球灭共的新时代]({{site.baseurl}}/miles/transcript/2019/07/20190721-53627486)
-
-[郭文贵2019年7月21日视频 20190721_2喜马拉雅大使馆直播测试版]({{site.baseurl}}/miles/transcript/2019/07/20190721-53478837)
 
 
 ## 頁面 74/110 [**<**]({{site.baseurl}}/miles/transcript/page73) [1]({{site.baseurl}}/miles/transcript/index) ... [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) **74** [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page75)

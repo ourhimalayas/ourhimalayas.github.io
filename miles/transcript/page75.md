@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 75/110 [**<**]({{site.baseurl}}/miles/transcript/page74) [1]({{site.baseurl}}/miles/transcript/index) ... [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) **75** [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page76)
 
+[2019年7月21日直播全文字版：爆料革命进入全球灭共的新时代]({{site.baseurl}}/miles/transcript/2019/07/20190721-53627486)
+
+[郭文贵2019年7月21日视频 20190721_2喜马拉雅大使馆直播测试版]({{site.baseurl}}/miles/transcript/2019/07/20190721-53478837)
+
 [郭文贵2019年7月20日视频 20190720_3SNOW……想回纽约了]({{site.baseurl}}/miles/transcript/2019/07/20190720-53478824)
 
 [郭文贵2019年7月20日视频 20190720_2大家猜猜我这是去哪啦？？？天助我们的大的爆料革命！一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/07/20190720-53478822)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年7月8日视频 20190708文贵是双面间谍？？]({{site.baseurl}}/miles/transcript/2019/07/20190708-53482874)
 
 [郭文贵2019年7月8日视频 20190708_4文贵开两个小会开一个大会的路上．在船上与战友们聊天]({{site.baseurl}}/miles/transcript/2019/07/20190708-53478795)
-
-[郭文贵2019年7月8日视频 20190708_3灭共的路上……幸福的战斗着]({{site.baseurl}}/miles/transcript/2019/07/20190708-53478790)
-
-[郭文贵2019年7月8日视频 20190708_2刚刚完成一个两个小会．现在马上上快船……跨越一个海湾……去另外一个地方开大会，现在正在去见一个牛叉叉的人物……一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/07/20190708-53478788)
 
 
 ## 頁面 75/110 [**<**]({{site.baseurl}}/miles/transcript/page74) [1]({{site.baseurl}}/miles/transcript/index) ... [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) **75** [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page76)

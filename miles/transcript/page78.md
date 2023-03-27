@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 78/110 [**<**]({{site.baseurl}}/miles/transcript/page77) [1]({{site.baseurl}}/miles/transcript/index) ... [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) **78** [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page79)
 
+[郭文贵2019年6月12日与细思直播 20190612如何布局最后部分谈8964监狱风]({{site.baseurl}}/miles/transcript/2019/06/20190612-53482624)
+
+[郭文贵2019年6月12日视频 20190612_5衷心的为香港的所有同胞祈愿 香港的事情还要有一定的时间发展 所有的在香港现场的同胞们朋友们战友们务必注意安全不要低估了C C P的恶魔的凶残本性]({{site.baseurl}}/miles/transcript/2019/06/20190612-53479244)
+
 [郭文贵2019年6月12日视频 20190612_4喜马拉雅连线香港前线战友！5時58分]({{site.baseurl}}/miles/transcript/2019/06/20190612-53479242)
 
 [郭文贵2019年6月12日视频 20190612_3文贵先生直播：最终结果立法推迟3時36分]({{site.baseurl}}/miles/transcript/2019/06/20190612-53479090)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年5月30日视频 20190530_2郭文贵先生和战友们聊天]({{site.baseurl}}/miles/transcript/2019/05/20190530-53478676)
 
 [郭文贵2019年5月30日视频 20190530_1林郑月娥亲自撰写，并要求中共中央在香港实施《遣返万能法》]({{site.baseurl}}/miles/transcript/2019/05/20190530-53478671)
-
-[郭文贵2019年5月27日视频 20190527_1文貴又出來浪了]({{site.baseurl}}/miles/transcript/2019/05/20190527-53478666)
-
-[郭文贵2019年5月26日视频 20190526_12020年6月4日将是新中国的国庆日！]({{site.baseurl}}/miles/transcript/2019/05/20190526-53478727)
 
 
 ## 頁面 78/110 [**<**]({{site.baseurl}}/miles/transcript/page77) [1]({{site.baseurl}}/miles/transcript/index) ... [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) **78** [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page79)

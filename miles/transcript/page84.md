@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 84/110 [**<**]({{site.baseurl}}/miles/transcript/page83) [1]({{site.baseurl}}/miles/transcript/index) ... [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) **84** [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page85)
 
+[郭文贵2019年1月20日视频 20190120王岐山，孟建柱．是如何执行南普陀计划！美国人是如何看待……对待！中国新的发誓我这一系列的奇怪的事情！]({{site.baseurl}}/miles/transcript/2019/01/20190120-53481784)
+
+[郭文贵2019年1月20日视频 20190120_2二分钟短直播，点名战友]({{site.baseurl}}/miles/transcript/2019/01/20190120-53478116)
+
 [郭文贵2019年1月19日视频 20190119文贵报平安视频，中共以假治国、以黑治国到了终结的时候，政事小哥事件在国内影响巨大，这是一个让美国人都恐惧的标志性事件。]({{site.baseurl}}/miles/transcript/2019/01/20190119-53481757)
 
 [郭文贵2019年1月18日第一次直播 20190118_1告诉大家赚几千亿美元的秘诀]({{site.baseurl}}/miles/transcript/2019/01/20190118-53481748)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年1月6日视频 20190106关于战友们关心的法制基金的几个问题的回复！以及文贵对香港，澳门台湾法制沦陷……是被孟建柱．王岐山．孙力军等控制的结果几个观点！]({{site.baseurl}}/miles/transcript/2019/01/20190106-53481603)
 
 [郭文贵2019年1月5日 20190105接受庄烈宏先生美东之声访问。中共敢打台湾吗？什么叫战友？2019文贵爆料的具体战略]({{site.baseurl}}/miles/transcript/2019/01/20190105-53481588)
-
-[郭文贵2019年1月5日视频 20190105_2-保镖告诉我，林宝坚尼为我特制的SUV已经到我的停车场了，我都快忘了这个车了]({{site.baseurl}}/miles/transcript/2019/01/20190105-53478482)
-
-[郭文贵2019年1月4日视频 20190104_1欺民賊們在西方布下的中文媒體的配合CCP的網路大軍太可怕了]({{site.baseurl}}/miles/transcript/2019/01/20190104-53478481)
 
 
 ## 頁面 84/110 [**<**]({{site.baseurl}}/miles/transcript/page83) [1]({{site.baseurl}}/miles/transcript/index) ... [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) **84** [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page85)

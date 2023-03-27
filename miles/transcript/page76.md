@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 76/110 [**<**]({{site.baseurl}}/miles/transcript/page75) [1]({{site.baseurl}}/miles/transcript/index) ... [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) **76** [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page77)
 
+[郭文贵2019年7月8日视频 20190708_3灭共的路上……幸福的战斗着]({{site.baseurl}}/miles/transcript/2019/07/20190708-53478790)
+
+[郭文贵2019年7月8日视频 20190708_2刚刚完成一个两个小会．现在马上上快船……跨越一个海湾……去另外一个地方开大会，现在正在去见一个牛叉叉的人物……一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/07/20190708-53478788)
+
 [2019年7月7日直播全文字版：聊聊我们的郭媒体，王岐山又出手，王健“活该死”及香港抗议将引发的CCP灭亡第一战的意义合集]({{site.baseurl}}/miles/transcript/2019/07/20190707-53575672)
 
 [郭文贵2019年7月7日第一次直播 20190707_1爆料革命当中扮演的重要角色……并希望能给更多战友加入郭媒体……一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/07/20190707-53482865)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年6月29日郭文贵先生直播全文字版：G20有协议，爆料革命大胜]({{site.baseurl}}/miles/transcript/2019/06/20190629-53560626)
 
 [郭文贵2019年6月29日视频 20190629_1战友们的有关G20的失望情绪．就是我们反共的核心力量表现！也是检验谁是真反共的一个特别事件……一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/06/20190629-53478757)
-
-[郭文贵2019年6月28日视频 20190628G20]({{site.baseurl}}/miles/transcript/2019/06/20190628-53482757)
-
-[郭文贵2019年6月27日视频 20190627_1尊敬的战友好！你们健身了吗？你们往身上泼水了吗？一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/06/20190627-53478753)
 
 
 ## 頁面 76/110 [**<**]({{site.baseurl}}/miles/transcript/page75) [1]({{site.baseurl}}/miles/transcript/index) ... [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) **76** [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page77)

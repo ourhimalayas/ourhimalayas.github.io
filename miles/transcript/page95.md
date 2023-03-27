@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 95/110 [**<**]({{site.baseurl}}/miles/transcript/page94) [1]({{site.baseurl}}/miles/transcript/index) ... [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) **95** [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page96)
 
+[郭文贵2018年6月13日直播 20180613_1郭战装与什么是习主席的政治轮轴效应！]({{site.baseurl}}/miles/transcript/2018/06/20180613-53477894)
+
+[郭文贵2018年6月11日直播 20180611_1陈峰脑血管病急救．感谢黑客先生．大陆官场热离婚．商场热移民美国！习主席进入官场轮轴灾难区！]({{site.baseurl}}/miles/transcript/2018/06/20180611-53477873)
+
 [郭文贵2018年6月10日 20180610玉岐山孟建柱命不久了！马航真相一定会公布！(一)]({{site.baseurl}}/miles/transcript/2018/06/20180610-53483801)
 
 [郭文贵2018年6月10日直播 20180610_2文贵爆料第一階段启蒙期结束．正在准备第二階段．定点爆破！]({{site.baseurl}}/miles/transcript/2018/06/20180610-53477865)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年5月5日视频第一部分 20180505_1陈氏兄弟及盟相关机密文件内幕]({{site.baseurl}}/miles/transcript/2018/05/20180505-53483844)
 
 [郭文贵2018年5月5日视频第三部分 20180505_3陈氏兄弟及盟相关机密文件内幕]({{site.baseurl}}/miles/transcript/2018/05/20180505-53483675)
-
-[郭文贵2018年5月5日视频第二部分 20180505_2陈氏兄弟及盟相关机密文件内幕]({{site.baseurl}}/miles/transcript/2018/05/20180505-53483665)
-
-[郭文贵2018年5月5日视频 20180505_4连线路德访谈：揭露陈氏兄弟、专员以及机密文件更多相关内幕]({{site.baseurl}}/miles/transcript/2018/05/20180505-53482384)
 
 
 ## 頁面 95/110 [**<**]({{site.baseurl}}/miles/transcript/page94) [1]({{site.baseurl}}/miles/transcript/index) ... [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) **95** [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page96)

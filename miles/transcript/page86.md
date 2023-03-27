@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 86/110 [**<**]({{site.baseurl}}/miles/transcript/page85) [1]({{site.baseurl}}/miles/transcript/index) ... [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) **86** [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page87)
 
+[郭文贵2018年12月11日视频 20181211_2回到了美麗的藍天白雲的紐約]({{site.baseurl}}/miles/transcript/2018/12/20181211-53478565)
+
+[郭文贵2018年12月11日视频 20181211_1文贵简单的早餐]({{site.baseurl}}/miles/transcript/2018/12/20181211-53478564)
+
 [郭文贵2018年12月10日视频 20181210纠正一下昨天直播时的几个口误！刘乐国因为掌握令计划案北大李友案太多案情]({{site.baseurl}}/miles/transcript/2018/12/20181210-53481218)
 
 [郭文贵2018年12月10日视频 20181210_2大连刘乐国因为通过李友案件掌握了中南海的高官的很多证据被释放．他能活多久？]({{site.baseurl}}/miles/transcript/2018/12/20181210-53478559)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年11月20日视频 20181120_4路德访谈班农、文贵先生：谈谈未来制裁中共王岐山盗国贼的一系列行为]({{site.baseurl}}/miles/transcript/2018/11/20181120-53478527)
 
 [郭文贵2018年11月20日视频 20181120_3(曾宏版)郭文贵2018年11月20日王健之死與海航背後真相信息发布会]({{site.baseurl}}/miles/transcript/2018/11/20181120-53478406)
-
-[郭文贵2018年11月19日视频 20181119_1王建之死发布会的前一天受到各方压力]({{site.baseurl}}/miles/transcript/2018/11/20181119-53478418)
-
-[郭文贵2018年11月18日视频 20181118_1]({{site.baseurl}}/miles/transcript/2018/11/20181118-53478407)
 
 
 ## 頁面 86/110 [**<**]({{site.baseurl}}/miles/transcript/page85) [1]({{site.baseurl}}/miles/transcript/index) ... [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) **86** [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page87)

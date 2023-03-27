@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 69/110 [**<**]({{site.baseurl}}/miles/transcript/page68) [1]({{site.baseurl}}/miles/transcript/index) ... [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) **69** [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page70)
 
+[2019年9月24日文贵大直播全文字版：红烧肉真香，ccp给人民吃瘟猪肉，还把阅兵后的帅哥美女按领导级別分配，美女当小三，帅哥当领导夫人保镖.]({{site.baseurl}}/miles/transcript/2019/09/20190924-53873277)
+
+[郭文贵2019年9月24日第一次直播 20190924_1郭文贵先生和江财神路德三人谈政治经济爱情以及外星人！妄图弹劾总统是好事！]({{site.baseurl}}/miles/transcript/2019/09/20190924-53483185)
+
 [郭文贵2019年9月24日第二次直播 20190924_2红烧肉真香，ccp给人民吃瘟猪肉，还把阅兵后的帅哥美女按领导级別分配，美女当小三，帅哥当领导夫人保镖.]({{site.baseurl}}/miles/transcript/2019/09/20190924-53483163)
 
 [郭文贵2019年9月24日视频 20190924_3直播吃红烧肉，阅兵后美女按需分配]({{site.baseurl}}/miles/transcript/2019/09/20190924-53478066)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年9月12日视频 20190912_2很多战友发私信希望我吃饭直播一下……非常抱歉……由于船上有其他人和马上有很多会要开……我只能录个短的视频]({{site.baseurl}}/miles/transcript/2019/09/20190912-53479005)
 
 [郭文贵2019年9月12日视频 20190912_1过去两天的香港黑警行动的减少……将是香港重大危机爆发开始……请香港朋友们要了解共产党的＂涵养杀术＂务必小心！！！！！]({{site.baseurl}}/miles/transcript/2019/09/20190912-53479002)
-
-[2019年9月11日文贵大直播全文字版：博尔顿离开白宫内幕！全世界各方面灭共人士灭共力量大聚集！]({{site.baseurl}}/miles/transcript/2019/09/20190911-53845263)
-
-[郭文贵2019年9月11日 20190911博尔顿离开白宫内幕！全世界各方面灭共人士灭共力量大聚集！]({{site.baseurl}}/miles/transcript/2019/09/20190911-53483073)
 
 
 ## 頁面 69/110 [**<**]({{site.baseurl}}/miles/transcript/page68) [1]({{site.baseurl}}/miles/transcript/index) ... [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) **69** [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page70)

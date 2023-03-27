@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 102/110 [**<**]({{site.baseurl}}/miles/transcript/page101) [1]({{site.baseurl}}/miles/transcript/index) ... [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) **102** [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page103)
 
+[郭文贵2017年12月30日直播 20171230_1]({{site.baseurl}}/miles/transcript/2017/12/20171230-53482820)
+
+[郭文贵2017年12月25日直播 20171225_1我们拥有世界上最棒的战斗装及战斗工具]({{site.baseurl}}/miles/transcript/2017/12/20171225-53482818)
+
 [郭文贵2017年12月23日 20171223关于盘古被掠夺、蛆聋等8个伪类的诉讼，以及下一步的爆料计划，文贵向北京再次提出条件]({{site.baseurl}}/miles/transcript/2017/12/20171223-53483967)
 
 [郭文贵2017年12月12日 20171212文贵给即将在大连被冤审的员工及家人的誓言；谈小平妻子失踪，法新社采访，华涌及乱运8分子]({{site.baseurl}}/miles/transcript/2017/12/20171212-53483946)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年11月12日第一次直播 20171112_1马阿拉哥庄园 与网友们聊聊天]({{site.baseurl}}/miles/transcript/2017/11/20171112-53483878)
 
 [郭文贵2017年11月10日 20171110酒后试试另一种方式的录播]({{site.baseurl}}/miles/transcript/2017/11/20171110-53484035)
-
-[郭文贵2017年11月8日 20171108twitter再次被封7天后的报平安]({{site.baseurl}}/miles/transcript/2017/11/20171108-53484033)
-
-[郭文贵2017年11月7日接受郭宝胜采访 20171107]({{site.baseurl}}/miles/transcript/2017/11/20171107-53484192)
 
 
 ## 頁面 102/110 [**<**]({{site.baseurl}}/miles/transcript/page101) [1]({{site.baseurl}}/miles/transcript/index) ... [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) **102** [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page103)

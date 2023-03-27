@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 109/110 [**<**]({{site.baseurl}}/miles/transcript/page108) [1]({{site.baseurl}}/miles/transcript/index) ... [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) **109** [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page110)
 
+[郭文贵2017年5月21日第一次直播 20170521_1]({{site.baseurl}}/miles/transcript/2017/05/20170521-53483996)
+
+[郭文贵2017年5月21日第三次直播 20170521_3]({{site.baseurl}}/miles/transcript/2017/05/20170521-53483794)
+
 [郭文贵2017年5月21日第二次直播 20170521_2]({{site.baseurl}}/miles/transcript/2017/05/20170521-53483778)
 
 [郭文贵2017年5月20日第一次直播 20170520在香港是否存在执法黑屋]({{site.baseurl}}/miles/transcript/2017/05/20170520-53483761)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年5月3日视频 20170503_1]({{site.baseurl}}/miles/transcript/2017/05/20170503-53483733)
 
 [郭文贵2017年5月3日第二次直播 20170503_2小狗狗生日礼物]({{site.baseurl}}/miles/transcript/2017/05/20170503-53483724)
-
-[郭文贵2017年5月2日视频 20170502_2推友過15.2萬]({{site.baseurl}}/miles/transcript/2017/05/20170502-53483532)
-
-[郭文贵2017年5月2日与刘彦平的通话 20170502这是文贵首次挂出，我与刘彦平先生在2017年5月1日至2日斗沟通．有关来美国的过程！这些视频将成为西方看中国．看文贵的最好的事实样版！]({{site.baseurl}}/miles/transcript/2017/05/20170502-53482254)
 
 
 ## 頁面 109/110 [**<**]({{site.baseurl}}/miles/transcript/page108) [1]({{site.baseurl}}/miles/transcript/index) ... [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) **109** [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page110)

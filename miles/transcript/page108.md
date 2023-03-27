@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 108/110 [**<**]({{site.baseurl}}/miles/transcript/page107) [1]({{site.baseurl}}/miles/transcript/index) ... [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) **108** [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page109)
 
+[郭文贵2017年6月30日直播 20170630关于王岐山与范冰冰的关系]({{site.baseurl}}/miles/transcript/2017/06/20170630-53483811)
+
+[郭文贵2017年6月28日完整版 20170628]({{site.baseurl}}/miles/transcript/2017/06/20170628-53483804)
+
 [郭文贵2017年6月27日 20170627应推友们的要求和狗狗snow的视频]({{site.baseurl}}/miles/transcript/2017/06/20170627-53483791)
 
 [郭文贵2017年6月26日视频 20170626]({{site.baseurl}}/miles/transcript/2017/06/20170626-53483789)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年5月22日直播 20170522_1回覆潘石屹]({{site.baseurl}}/miles/transcript/2017/05/20170522-53483799)
 
 [郭文贵2017年5月22日直播 20170522_2手机直播回应潘石屹视频]({{site.baseurl}}/miles/transcript/2017/05/20170522-53483764)
-
-[郭文贵2017年5月21日第一次直播 20170521_1]({{site.baseurl}}/miles/transcript/2017/05/20170521-53483996)
-
-[郭文贵2017年5月21日第三次直播 20170521_3]({{site.baseurl}}/miles/transcript/2017/05/20170521-53483794)
 
 
 ## 頁面 108/110 [**<**]({{site.baseurl}}/miles/transcript/page107) [1]({{site.baseurl}}/miles/transcript/index) ... [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) **108** [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page109)

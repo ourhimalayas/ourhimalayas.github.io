@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 70/110 [**<**]({{site.baseurl}}/miles/transcript/page69) [1]({{site.baseurl}}/miles/transcript/index) ... [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) **70** [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page71)
 
+[2019年9月11日文贵大直播全文字版：博尔顿离开白宫内幕！全世界各方面灭共人士灭共力量大聚集！]({{site.baseurl}}/miles/transcript/2019/09/20190911-53845263)
+
+[郭文贵2019年9月11日 20190911博尔顿离开白宫内幕！全世界各方面灭共人士灭共力量大聚集！]({{site.baseurl}}/miles/transcript/2019/09/20190911-53483073)
+
 [郭文贵2019年9月11日视频 20190911_1(前段)博尔顿离开白宫内幕！全世界各方面灭共人士灭共力量大聚集！]({{site.baseurl}}/miles/transcript/2019/09/20190911-53479001)
 
 [郭文贵2019年9月10日视频 20190910_1文贵在凌晨6 00先向大家报平安了，昨天路德的晚餐, 加上他兒子弄壞船上的沙發, 至少毀了我十萬美元, TNND, 非叫路德賠不可]({{site.baseurl}}/miles/transcript/2019/09/20190910-53478998)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年9月2日图桑报平安 20190902]({{site.baseurl}}/miles/transcript/2019/09/20190902-53482993)
 
 [2019年9月1日文贵与班农先生直播习近平与王岐山的攻台计划！全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190901-53839486)
-
-[郭文贵2019年9月1日与班农先生直播 20190901共产党香港之外的另一个威胁全世界的计划]({{site.baseurl}}/miles/transcript/2019/09/20190901-53482988)
-
-[郭文贵2019年8月31日视频 20190831_1文贵与班农先生直播，关注831香港]({{site.baseurl}}/miles/transcript/2019/08/20190831-53478992)
 
 
 ## 頁面 70/110 [**<**]({{site.baseurl}}/miles/transcript/page69) [1]({{site.baseurl}}/miles/transcript/index) ... [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) **70** [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page71)

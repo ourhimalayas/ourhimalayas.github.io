@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 71/110 [**<**]({{site.baseurl}}/miles/transcript/page70) [1]({{site.baseurl}}/miles/transcript/index) ... [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) **71** [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page72)
 
+[郭文贵2019年9月1日与班农先生直播 20190901共产党香港之外的另一个威胁全世界的计划]({{site.baseurl}}/miles/transcript/2019/09/20190901-53482988)
+
+[郭文贵2019年8月31日视频 20190831_1文贵与班农先生直播，关注831香港]({{site.baseurl}}/miles/transcript/2019/08/20190831-53478992)
+
 [2019年8月29日文贵大直播全文字版：中共是恐怖组织白宫已过10万;芬太尼, 假美元是中共3F美国的部分国家行动核心战略]({{site.baseurl}}/miles/transcript/2019/08/20190829-53845136)
 
 [郭文贵2019年8月29日视频 20190829_3马上起飞往華盛頓了……到了再向战友们报告！一切都是刚刚开始！(二)]({{site.baseurl}}/miles/transcript/2019/08/20190829-53478956)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年8月18日视频 20190818从‘818’的170万港人再上街 来看大湾区的吞港计划]({{site.baseurl}}/miles/transcript/2019/08/20190818-53483141)
 
 [2019年8月17号文贵大直播全文字版：回复有关今早直播后，大家发来的私信问题……]({{site.baseurl}}/miles/transcript/2019/08/20190817-53795601)
-
-[郭文贵2019年8月17日 20190817（原声） 班农与文贵先生谈：香港危机 美国即将必须采取的行动]({{site.baseurl}}/miles/transcript/2019/08/20190817-53483079)
-
-[郭文贵2019年8月17日视频 20190817_2回复有关今早直播后，大家发来的私信问题]({{site.baseurl}}/miles/transcript/2019/08/20190817-53478911)
 
 
 ## 頁面 71/110 [**<**]({{site.baseurl}}/miles/transcript/page70) [1]({{site.baseurl}}/miles/transcript/index) ... [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) **71** [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page72)

@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 93/110 [**<**]({{site.baseurl}}/miles/transcript/page92) [1]({{site.baseurl}}/miles/transcript/index) ... [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) **93** [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page94)
 
+[郭文贵2018年8月10日直播 20180810_1尊敬的战友们你们健身了吗！今天我将与刑事律师团开会．关于王健被杀的案件！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/08/20180810-53478143)
+
+[郭文贵2018年8月9日视频 20180809海航集团纽约大楼被白宫查封只是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/08/20180809-53482477)
+
 [郭文贵2018年8月9日直播 20180809_2]({{site.baseurl}}/miles/transcript/2018/08/20180809-53478139)
 
 [郭文贵2018年8月8日直播 20180808_7我将拉黑任何一个挑战喜马拉雅打击盗国贼的推号开足马力全力以赴投入全部精力物力推进爆料革命]({{site.baseurl}}/miles/transcript/2018/08/20180808-53478136)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年7月21日直播 20180721_1老领导又来电话了 王建夫人请保存好手机上的证据]({{site.baseurl}}/miles/transcript/2018/07/20180721-53478049)
 
 [郭文贵2018年7月20日直播 20180720_1文贵携SN0W向所有的战友们问好，一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/07/20180720-53478035)
-
-[郭文贵2018年7月18日lns直播视频 20180718昨天直播在国内炸了锅，中大使馆威胁国际刑警不要插手，在采取外交行动，普托旺斯的居民都想和文贵合]({{site.baseurl}}/miles/transcript/2018/07/20180718-53482453)
-
-[郭文贵2018年7月17日路德访谈（三）20180717_3郭文贵先生全球直播（第三部分）]({{site.baseurl}}/miles/transcript/2018/07/20180717-53482445)
 
 
 ## 頁面 93/110 [**<**]({{site.baseurl}}/miles/transcript/page92) [1]({{site.baseurl}}/miles/transcript/index) ... [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) **93** [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page94)

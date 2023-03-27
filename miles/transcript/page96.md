@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 96/110 [**<**]({{site.baseurl}}/miles/transcript/page95) [1]({{site.baseurl}}/miles/transcript/index) ... [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) **96** [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page97)
 
+[郭文贵2018年5月5日视频第二部分 20180505_2陈氏兄弟及盟相关机密文件内幕]({{site.baseurl}}/miles/transcript/2018/05/20180505-53483665)
+
+[郭文贵2018年5月5日视频 20180505_4连线路德访谈：揭露陈氏兄弟、专员以及机密文件更多相关内幕]({{site.baseurl}}/miles/transcript/2018/05/20180505-53482384)
+
 [郭文贵2018年5月3日视频 20180503推墙卫星准备就绪即将发射大家耐心等待]({{site.baseurl}}/miles/transcript/2018/05/20180503-53477181)
 
 [郭文贵2018年5月2日视频 20180502Instagram 直播 《战友同行》]({{site.baseurl}}/miles/transcript/2018/05/20180502-53482342)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年4月19日第二次直播 20180419_2谈明镜]({{site.baseurl}}/miles/transcript/2018/04/20180419-53482305)
 
 [郭文贵2018年4月19日第四次直播 20180419_4-419VOA断播门一周年回顾 網友提問 & 評何頻的為人]({{site.baseurl}}/miles/transcript/2018/04/20180419-53477677)
-
-[郭文贵2018年4月19日第三次直播 20180419_3VOG断播一周年回顾之——路德提问]({{site.baseurl}}/miles/transcript/2018/04/20180419-53477631)
-
-[郭文贵2018年4月16日在Livestrem 20180416谈墙内方老先生和开放海南夺命岛]({{site.baseurl}}/miles/transcript/2018/04/20180416-53482294)
 
 
 ## 頁面 96/110 [**<**]({{site.baseurl}}/miles/transcript/page95) [1]({{site.baseurl}}/miles/transcript/index) ... [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) **96** [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page97)

@@ -41,17 +41,17 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年10月27日视频 20191027_2此时此刻的纽约．正在下着毛毛雨．和临近秋天的中央公园．以及最现代化的摩天大楼．相应成画．浪漫至极]({{site.baseurl}}/miles/transcript/2019/10/20191027-53479094)
 
+[2019年10月26日文贵大直播全文版：十九大篡朝较量中错综复杂的关系 中南坑风暴一直在酝酿着]({{site.baseurl}}/miles/transcript/2019/10/20191026-53919845)
+
 [郭文贵2019年10月26日 20191026文贵和战友谈北京局势和四中]({{site.baseurl}}/miles/transcript/2019/10/20191026-53483262)
 
 [郭文贵2019年10月26日视频 20191026_2【Joe庄随手拍】郭文贵先生爆料：十九大篡朝较量中错综复杂的关系 中南坑风暴一直在酝酿着]({{site.baseurl}}/miles/transcript/2019/10/20191026-53479093)
 
+[2019年10月25日文贵大直播全文字版：再谈直播彭斯副总统演讲的重大意义]({{site.baseurl}}/miles/transcript/2019/10/20191025-53919805)
+
 [郭文贵2019年10月25日第一次直播 20191025_1跟路德再谈直播彭斯副总统演讲的重大意义]({{site.baseurl}}/miles/transcript/2019/10/20191025-53483258)
 
 [郭文贵2019年10月25日第二次直播 20191025_2直播谈中国同胞39名惨死偷渡英国途中，文贵先生解读彭斯演讲，四中全会党内将人头滚滚]({{site.baseurl}}/miles/transcript/2019/10/20191025-53483249)
-
-[2019年10月24日文贵大直播全文字版：谈彭斯副总统演讲]({{site.baseurl}}/miles/transcript/2019/10/20191024-53916903)
-
-[郭文贵2019年10月24日 20191024谈彭斯副总统演讲]({{site.baseurl}}/miles/transcript/2019/10/20191024-53483231)
 
 
 ## 頁面 65/110 [**<**]({{site.baseurl}}/miles/transcript/page64) [1]({{site.baseurl}}/miles/transcript/index) ... [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) **65** [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page66)

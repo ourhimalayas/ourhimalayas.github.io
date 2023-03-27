@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 80/110 [**<**]({{site.baseurl}}/miles/transcript/page79) [1]({{site.baseurl}}/miles/transcript/index) ... [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) **80** [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page81)
 
+[郭文贵2019年5月6日视频 20190506文贵直播谈谈，为什么川普总统要突然间的停掉，中美贸易协定共产党必须还回属于14亿中国人民的一切财富一切权力！]({{site.baseurl}}/miles/transcript/2019/05/20190506-53482515)
+
+[郭文贵2019年5月6日视频 20190506_2文贵受到snow的严重骚扰……因为文贵马上要参加两个紧急的会议，暂时不能直播]({{site.baseurl}}/miles/transcript/2019/05/20190506-53478701)
+
 [郭文贵2019年5月6日视频 20190506_35.6聊股市]({{site.baseurl}}/miles/transcript/2019/05/20190506-53478091)
 
 [郭文贵2019年5月5日与班农先生对谈 20190505文贵与班农先生就有关中美贸易协议停止！]({{site.baseurl}}/miles/transcript/2019/05/20190505-53482505)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年4月22日视频 20190422_2半小时后，纽约时间上午1000北京时间晚上1000．文贵直播报平安．谈谈对伊朗石油的制裁意味着什么？和盗国贼有什么关系]({{site.baseurl}}/miles/transcript/2019/04/20190422-53478637)
 
 [郭文贵2019年4月21日 20190421文贵为什么要揭穿．李嘉诚．马云．郭台铭．江志诚！]({{site.baseurl}}/miles/transcript/2019/04/20190421-53482358)
-
-[郭文贵2019年4月20日视频 20190420班农先生与文贵谈郭台铭选台湾总统 : Steve Bannon and Miles Guo, a dialogue on Terry Gou’s presidential bid]({{site.baseurl}}/miles/transcript/2019/04/20190420-53482349)
-
-[郭文贵2019年4月19日视频 20190419明早將與班農一起直播, 班農說的話文貴不負責, 因為他可能違反郭七條]({{site.baseurl}}/miles/transcript/2019/04/20190419-53478635)
 
 
 ## 頁面 80/110 [**<**]({{site.baseurl}}/miles/transcript/page79) [1]({{site.baseurl}}/miles/transcript/index) ... [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) **80** [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page81)

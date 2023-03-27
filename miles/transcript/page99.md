@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 99/110 [**<**]({{site.baseurl}}/miles/transcript/page98) [1]({{site.baseurl}}/miles/transcript/index) ... [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) **99** [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page100)
 
+[郭文贵2018年3月11日报平安视频 20180311谈5.1共振看法及昨天发错误文件和陈军下一步的行动]({{site.baseurl}}/miles/transcript/2018/03/20180311-53481508)
+
+[郭文贵2018年3月11日直播 20180311_2郭文贵要发大财了！有机构想收购郭先生的精子哈哈哈哈]({{site.baseurl}}/miles/transcript/2018/03/20180311-53477316)
+
 [郭文贵2018年3月9日视频第一部分 20180309_1文贵有三急：（担心)马健副部长被心脏病死！陈希部长被出车祸！老领导被脑血管意外死亡！未来一些日子将腥风血雨！]({{site.baseurl}}/miles/transcript/2018/03/20180309-53481506)
 
 [郭文贵2018年3月9日视频第二部分 20180309_2谈文贵是不是要反习主席]({{site.baseurl}}/miles/transcript/2018/03/20180309-53481392)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年2月19日直播 20180219_2Snow咋这么可爱呢]({{site.baseurl}}/miles/transcript/2018/02/20180219-53477216)
 
 [郭文贵2018年2月19日直播 20180219_1Snow 也上桌了…… Via：郭媒体]({{site.baseurl}}/miles/transcript/2018/02/20180219-53477210)
-
-[郭文贵2018年2月15日《文贵看春晚》 20180215爆料正式整理]({{site.baseurl}}/miles/transcript/2018/02/20180215-53482204)
-
-[郭文贵2018年2月15日 20180215_2陈军先生不敢面对文贵与他2月18号的辩论，文贵将为辩论准备的有关部分视频播出“陈军是个大骗子”]({{site.baseurl}}/miles/transcript/2018/02/20180215-53481368)
 
 
 ## 頁面 99/110 [**<**]({{site.baseurl}}/miles/transcript/page98) [1]({{site.baseurl}}/miles/transcript/index) ... [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) **99** [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page100)

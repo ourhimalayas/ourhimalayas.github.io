@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 85/110 [**<**]({{site.baseurl}}/miles/transcript/page84) [1]({{site.baseurl}}/miles/transcript/index) ... [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) **85** [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page86)
 
+[郭文贵2019年1月5日视频 20190105_2-保镖告诉我，林宝坚尼为我特制的SUV已经到我的停车场了，我都快忘了这个车了]({{site.baseurl}}/miles/transcript/2019/01/20190105-53478482)
+
+[郭文贵2019年1月4日视频 20190104_1欺民賊們在西方布下的中文媒體的配合CCP的網路大軍太可怕了]({{site.baseurl}}/miles/transcript/2019/01/20190104-53478481)
+
 [郭文贵2019年1月3日视频 20190103_1香港和台湾人民在2019年一定会对CCP全面反击，港台的光明时刻一定会到来]({{site.baseurl}}/miles/transcript/2019/01/20190103-53478477)
 
 [郭文贵2019年1月2日视频 20190102_2风中的Snow]({{site.baseurl}}/miles/transcript/2019/01/20190102-53478475)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年12月14日视频 20181214肖建华的资产被分的差不多了，很快就会消失了]({{site.baseurl}}/miles/transcript/2018/12/20181214-53481390)
 
 [郭文贵2018年12月12日视频 20181212]({{site.baseurl}}/miles/transcript/2018/12/20181212-53481240)
-
-[郭文贵2018年12月11日视频 20181211_2回到了美麗的藍天白雲的紐約]({{site.baseurl}}/miles/transcript/2018/12/20181211-53478565)
-
-[郭文贵2018年12月11日视频 20181211_1文贵简单的早餐]({{site.baseurl}}/miles/transcript/2018/12/20181211-53478564)
 
 
 ## 頁面 85/110 [**<**]({{site.baseurl}}/miles/transcript/page84) [1]({{site.baseurl}}/miles/transcript/index) ... [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) **85** [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page86)

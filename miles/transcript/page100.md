@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 100/110 [**<**]({{site.baseurl}}/miles/transcript/page99) [1]({{site.baseurl}}/miles/transcript/index) ... [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) **100** [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page101)
 
+[郭文贵2018年2月15日《文贵看春晚》 20180215爆料正式整理]({{site.baseurl}}/miles/transcript/2018/02/20180215-53482204)
+
+[郭文贵2018年2月15日 20180215_2陈军先生不敢面对文贵与他2月18号的辩论，文贵将为辩论准备的有关部分视频播出“陈军是个大骗子”]({{site.baseurl}}/miles/transcript/2018/02/20180215-53481368)
+
 [郭文贵2018年2月13日直播 20180213_1郭媒體第一次多方連線試直播]({{site.baseurl}}/miles/transcript/2018/02/20180213-53477202)
 
 [郭文贵2018年2月12日 20180212_1郭文贵首次在郭媒体上直播！放出博讯拿钱删帖证据！对陈军做最后一次说明！大量网友互动内中有猛料！]({{site.baseurl}}/miles/transcript/2018/02/20180212-53484105)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年2月5日第二次直播 20180205_2文贵浅谈，曹长青先生被断访．这是上天赐给我们的又一个礼物！]({{site.baseurl}}/miles/transcript/2018/02/20180205-53484208)
 
 [郭文贵2018年2月5日第三次直播 20180205_3文贵现金悬赏．提供假民运分子利用假证屁文件．欺骗同胞．违法美国法律．给同胞造成伤害和损失证据！希望所有的战友们口口相传共同打击假民运！假政庇！]({{site.baseurl}}/miles/transcript/2018/02/20180205-53484044)
-
-[郭文贵2018年2月5日第一次直播 20180205_1假民运分子利用真正英雄的死亡，和他们付出生命的代价，发财的时代必须结束！我们必须要让这些无人性的伪类们付出代价，一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/02/20180205-53483958)
-
-[郭文贵2018年2月4日视频 20180204谈陈军欲谋害文贵与明镜和何频的关系]({{site.baseurl}}/miles/transcript/2018/02/20180204-53484041)
 
 
 ## 頁面 100/110 [**<**]({{site.baseurl}}/miles/transcript/page99) [1]({{site.baseurl}}/miles/transcript/index) ... [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) **100** [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page101)

@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 105/110 [**<**]({{site.baseurl}}/miles/transcript/page104) [1]({{site.baseurl}}/miles/transcript/index) ... [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) **105** [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page106)
 
+[郭文贵2017年9月9日 20170909说说姚依林与马云，孟建柱，孙立军]({{site.baseurl}}/miles/transcript/2017/09/20170909-53483965)
+
+[郭文贵2017年9月9日视频 20170909_5在船上]({{site.baseurl}}/miles/transcript/2017/09/20170909-53483572)
+
 [郭文贵2017年9月9日视频 20170909_4补偿今天直播技术的失败 分享游艇内部]({{site.baseurl}}/miles/transcript/2017/09/20170909-53483567)
 
 [郭文贵2017年9月9日视频 20170909_3船上直播 他们把死人都给搬出来了！]({{site.baseurl}}/miles/transcript/2017/09/20170909-53483564)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年8月26日视频 20170826老兵通过新加坡发来视频 翻墙软件偷信息 美政府对海航的关注达到我们的目的]({{site.baseurl}}/miles/transcript/2017/08/20170826-53483541)
 
 [郭文贵2017年8月25日做客郭宝胜 20170825宗教与中国政治及社会关系]({{site.baseurl}}/miles/transcript/2017/08/20170825-53484317)
-
-[郭文贵2017年8月25日视频 20170825_270天的特别之旅]({{site.baseurl}}/miles/transcript/2017/08/20170825-53483540)
-
-[郭文贵2017年8月24日 20170824关于腾彪先生造谣文贵乱伦]({{site.baseurl}}/miles/transcript/2017/08/20170824-53483923)
 
 
 ## 頁面 105/110 [**<**]({{site.baseurl}}/miles/transcript/page104) [1]({{site.baseurl}}/miles/transcript/index) ... [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) **105** [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page106)

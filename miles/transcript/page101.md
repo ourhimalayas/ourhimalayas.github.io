@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 101/110 [**<**]({{site.baseurl}}/miles/transcript/page100) [1]({{site.baseurl}}/miles/transcript/index) ... [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) **101** [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page102)
 
+[郭文贵2018年2月5日第一次直播 20180205_1假民运分子利用真正英雄的死亡，和他们付出生命的代价，发财的时代必须结束！我们必须要让这些无人性的伪类们付出代价，一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/02/20180205-53483958)
+
+[郭文贵2018年2月4日视频 20180204谈陈军欲谋害文贵与明镜和何频的关系]({{site.baseurl}}/miles/transcript/2018/02/20180204-53484041)
+
 [郭文贵2018年2月4日直播 20180204_2连线美东 庆祝爆料一周年]({{site.baseurl}}/miles/transcript/2018/02/20180204-53482814)
 
 [郭文贵2018年2月3日视频 20180203陈军、袁建斌欲害文贵之背景；与博讯、明镜、陈小平、何频之关系！]({{site.baseurl}}/miles/transcript/2018/02/20180203-53484037)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年1月3日视频 20180103郭文贵先生遥㊗️澳洲挺郭后援会新年快乐！呼吁放下私心，团结一致，克服恐惧，排除干扰，一起走向喜马拉雅！]({{site.baseurl}}/miles/transcript/2018/01/20180103-53484197)
 
 [郭文贵2018年1月3日视频 20180103_2接受日本媒体采访说日语]({{site.baseurl}}/miles/transcript/2018/01/20180103-53476960)
-
-[郭文贵2017年12月30日直播 20171230_1]({{site.baseurl}}/miles/transcript/2017/12/20171230-53482820)
-
-[郭文贵2017年12月25日直播 20171225_1我们拥有世界上最棒的战斗装及战斗工具]({{site.baseurl}}/miles/transcript/2017/12/20171225-53482818)
 
 
 ## 頁面 101/110 [**<**]({{site.baseurl}}/miles/transcript/page100) [1]({{site.baseurl}}/miles/transcript/index) ... [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) **101** [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page102)

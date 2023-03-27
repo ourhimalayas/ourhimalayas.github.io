@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 88/110 [**<**]({{site.baseurl}}/miles/transcript/page87) [1]({{site.baseurl}}/miles/transcript/index) ... [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) **88** [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page89)
 
+[郭文贵2018年10月25日视频 20181025_2]({{site.baseurl}}/miles/transcript/2018/10/20181025-53478342)
+
+[郭文贵2018年10月24日视频 20181024王歧山与马云窜访忽悠以色列????????的现场直播！马云为什么愁眉紧锁！王岐山为自己家族准备的第三条路！]({{site.baseurl}}/miles/transcript/2018/10/20181024-53478376)
+
 [郭文贵2018年10月24日视频 20181024_3]({{site.baseurl}}/miles/transcript/2018/10/20181024-53478340)
 
 [郭文贵2018年10月24日视频 20181024_2太卡1]({{site.baseurl}}/miles/transcript/2018/10/20181024-53478337)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年10月13日视频 20181013_1]({{site.baseurl}}/miles/transcript/2018/10/20181013-53478350)
 
 [郭文贵2018年10月12日视频 20181012直播1700家中资公司 150家中资银行 等待正义惩罚 中国高官洗钱．藏钱！人民币．港币．A股．港股将崩溃！ 向大家公布美国财政部海外资产控制办公室合规制栽措施！！]({{site.baseurl}}/miles/transcript/2018/10/20181012-53482735)
-
-[郭文贵2018年10月12日视频 20181012_3]({{site.baseurl}}/miles/transcript/2018/10/20181012-53478348)
-
-[郭文贵2018年10月12日视频 20181012_2共产党．王岐山．孟建柱．傳政华．孙力军．的专案组．与大连法院以黑治郭．罚北京政泉控股600亿．＋180亿未收！大约13亿美元！这是一个爆料革命的重大成就！]({{site.baseurl}}/miles/transcript/2018/10/20181012-53478347)
 
 
 ## 頁面 88/110 [**<**]({{site.baseurl}}/miles/transcript/page87) [1]({{site.baseurl}}/miles/transcript/index) ... [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) **88** [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page89)

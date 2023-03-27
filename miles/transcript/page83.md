@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 83/110 [**<**]({{site.baseurl}}/miles/transcript/page82) [1]({{site.baseurl}}/miles/transcript/index) ... [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) **83** [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page84)
 
+[郭文贵2019年2月16日直播 20190216文贵和班农先生关于法治基金和法治公会基金的解读]({{site.baseurl}}/miles/transcript/2019/02/20190216-53482266)
+
+[郭文贵2019年2月7日 20190207文贵、班农、凯琳 回答战友们对春晚爆料的问题]({{site.baseurl}}/miles/transcript/2019/02/20190207-53482228)
+
 [郭文贵2019年2月7日视频 20190207_3Snow 在咬王妓山．孟建柱．孙力军的蛋蛋！]({{site.baseurl}}/miles/transcript/2019/02/20190207-53478598)
 
 [郭文贵2019年2月7日视频 20190207_2感谢所有关心snow 的战友们！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/02/20190207-53478596)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年1月22日视频 20190122_1文贵在战斗途中！正在完成战友希望我完成的任务中！一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/01/20190122-53478534)
 
 [郭文贵2019年1月21日视频 20190121共产党号召学习王阳明的心学是对圣人的巨大侮辱]({{site.baseurl}}/miles/transcript/2019/01/20190121-53481802)
-
-[郭文贵2019年1月20日视频 20190120王岐山，孟建柱．是如何执行南普陀计划！美国人是如何看待……对待！中国新的发誓我这一系列的奇怪的事情！]({{site.baseurl}}/miles/transcript/2019/01/20190120-53481784)
-
-[郭文贵2019年1月20日视频 20190120_2二分钟短直播，点名战友]({{site.baseurl}}/miles/transcript/2019/01/20190120-53478116)
 
 
 ## 頁面 83/110 [**<**]({{site.baseurl}}/miles/transcript/page82) [1]({{site.baseurl}}/miles/transcript/index) ... [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) **83** [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page84)
