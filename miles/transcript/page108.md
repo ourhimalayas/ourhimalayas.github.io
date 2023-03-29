@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 108/110 [**<**]({{site.baseurl}}/miles/transcript/page107) [1]({{site.baseurl}}/miles/transcript/index) ... [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) **108** [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page109)
 
+[郭文贵2017年7月3日第二次直播 20170703_2第二次讲述王岐山和傅政华的威胁]({{site.baseurl}}/miles/transcript/2017/07/20170703-53483853)
+
+[郭文贵2017年7月3日第一次直播 20170703_1王岐山和傅政华将如何毁掉中国]({{site.baseurl}}/miles/transcript/2017/07/20170703-53483830)
+
 [郭文贵2017年7月1日直播 20170701关于王岐山和范冰冰在1808房]({{site.baseurl}}/miles/transcript/2017/07/20170701-53483821)
 
 [郭文贵2017年6月30日直播 20170630关于王岐山与范冰冰的关系]({{site.baseurl}}/miles/transcript/2017/06/20170630-53483811)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年5月25日 20170525回应胡舒立报道 托尼 布萊尔]({{site.baseurl}}/miles/transcript/2017/05/20170525-53483826)
 
 [郭文贵2017年5月24日 20170524呼吁推友不要冲动]({{site.baseurl}}/miles/transcript/2017/05/20170524-53483816)
-
-[郭文贵2017年5月23日视频 20170523]({{site.baseurl}}/miles/transcript/2017/05/20170523-53483802)
-
-[郭文贵2017年5月22日直播 20170522_1回覆潘石屹]({{site.baseurl}}/miles/transcript/2017/05/20170522-53483799)
 
 
 ## 頁面 108/110 [**<**]({{site.baseurl}}/miles/transcript/page107) [1]({{site.baseurl}}/miles/transcript/index) ... [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) **108** [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page109)

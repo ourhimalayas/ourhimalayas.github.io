@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 77/110 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page78)
 
+[郭文贵2019年6月30日视频 20190630_2班农 文贵谈:G20 香港 台湾 北朝鲜]({{site.baseurl}}/miles/transcript/2019/06/20190630-53478759)
+
+[2019年6月29日郭文贵先生直播全文字版：G20有协议，爆料革命大胜]({{site.baseurl}}/miles/transcript/2019/06/20190629-53560626)
+
 [郭文贵2019年6月29日视频 20190629_1战友们的有关G20的失望情绪．就是我们反共的核心力量表现！也是检验谁是真反共的一个特别事件……一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/06/20190629-53478757)
 
 [郭文贵2019年6月28日视频 20190628G20]({{site.baseurl}}/miles/transcript/2019/06/20190628-53482757)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年6月13日第一次直播 20190613_1郭文贵直播喜马拉雅大使馆呼吁关注香港的明天，私家车可以帮助香港人民费用文贵出]({{site.baseurl}}/miles/transcript/2019/06/20190613-53482738)
 
 [郭文贵2019年6月13日第二次直播 20190613_2尊敬的战友们好，你们健身了吗？从香港反送中抗议运动看到了．人心．信仰．虚假．欺骗．各种人性的表演，共产党的邪恶远远超出人们的想象，对14亿同胞和香港人民的威胁和残害程度……]({{site.baseurl}}/miles/transcript/2019/06/20190613-53482630)
-
-[郭文贵2019年6月13日视频 20190613_3班農郭文贵直播]({{site.baseurl}}/miles/transcript/2019/06/20190613-53479249)
-
-[郭文贵2019年6月13日视频 20190613_4]({{site.baseurl}}/miles/transcript/2019/06/20190613-53478747)
 
 
 ## 頁面 77/110 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page78)

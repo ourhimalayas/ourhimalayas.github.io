@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 74/110 [**<**]({{site.baseurl}}/miles/transcript/page73) [1]({{site.baseurl}}/miles/transcript/index) ... [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) **74** [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page75)
 
+[2019年7月28号文贵报平安全文字版]({{site.baseurl}}/miles/transcript/2019/07/20190728-53740505)
+
+[郭文贵2019年7月28日视频 20190728_1双面间谍．文贵，在＂床＂上报平安！]({{site.baseurl}}/miles/transcript/2019/07/20190728-53478848)
+
 [2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分]({{site.baseurl}}/miles/transcript/2019/07/20190727-53715693)
 
 [2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分]({{site.baseurl}}/miles/transcript/2019/07/20190727-53715653)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年7月23日文贵大直播全文字版：李鹏为什么一见人就问89年当时你在哪？]({{site.baseurl}}/miles/transcript/2019/07/20190723-53684192)
 
 [郭文贵2019年7月23日第一次直播 20190723_1李鹏89年在哪里Why did Li Peng always ask whoever he met "Back in 1989, where were you when it ...]({{site.baseurl}}/miles/transcript/2019/07/20190723-53482868)
-
-[郭文贵2019年7月23日第二次直播 20190723_2尊敬的战友们好！你们健身了吗？你们往身上泼水了吗？一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/07/20190723-53482853)
-
-[郭文贵2019年7月23日直播 20190723_3黑客后第二段高清版]({{site.baseurl}}/miles/transcript/2019/07/20190723-53478078)
 
 
 ## 頁面 74/110 [**<**]({{site.baseurl}}/miles/transcript/page73) [1]({{site.baseurl}}/miles/transcript/index) ... [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) **74** [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page75)

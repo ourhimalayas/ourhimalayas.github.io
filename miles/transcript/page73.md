@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 73/110 [**<**]({{site.baseurl}}/miles/transcript/page72) [1]({{site.baseurl}}/miles/transcript/index) ... [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) **73** [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page74)
 
+[2019年8月7日《文贵大直播》全文字版：王岐山和德国前副总理菲利普什么关系]({{site.baseurl}}/miles/transcript/2019/08/20190807-53733539)
+
+[2019年8月7日《文贵大直播》全文字版：王岐山和德国前副总理菲利普什么关系]({{site.baseurl}}/miles/transcript/2019/08/20190807-53733537)
+
 [郭文贵2019年8月7日视频 20190807王岐山和德国前副总理 菲利浦什么关系 PAG太盟投资与海航王岐山什么关系 为什么太盟投资和林郑月娥 菲利浦 陈峰 王岐山走在一起]({{site.baseurl}}/miles/transcript/2019/08/20190807-53482923)
 
 [2019年8月6日《文贵大直播》全文字版： 谈美国将中共定位汇率操纵国的意义]({{site.baseurl}}/miles/transcript/2019/08/20190806-53741143)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年7月29日第一次直播 20190729_1尊敬的战友们好你们健身了吗？你们往身上泼水了吗？为什么在曼哈顿举行的国际经济会议改变了议程？一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/07/20190729-53482905)
 
 [郭文贵2019年7月29日第二次直播 20190729_2香港发生了什么情况 中共在以日计的步伐奔向灭亡]({{site.baseurl}}/miles/transcript/2019/07/20190729-53482904)
-
-[2019年7月28号文贵报平安全文字版]({{site.baseurl}}/miles/transcript/2019/07/20190728-53740505)
-
-[郭文贵2019年7月28日视频 20190728_1双面间谍．文贵，在＂床＂上报平安！]({{site.baseurl}}/miles/transcript/2019/07/20190728-53478848)
 
 
 ## 頁面 73/110 [**<**]({{site.baseurl}}/miles/transcript/page72) [1]({{site.baseurl}}/miles/transcript/index) ... [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) **73** [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page74)

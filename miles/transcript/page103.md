@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 103/110 [**<**]({{site.baseurl}}/miles/transcript/page102) [1]({{site.baseurl}}/miles/transcript/index) ... [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) **103** [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page104)
 
+[郭文贵2017年11月12日第二次直播 20171112_2马阿拉哥庄园 与网友们聊聊天]({{site.baseurl}}/miles/transcript/2017/11/20171112-53484040)
+
+[郭文贵2017年11月12日第一次直播 20171112_1马阿拉哥庄园 与网友们聊聊天]({{site.baseurl}}/miles/transcript/2017/11/20171112-53483878)
+
 [郭文贵2017年11月10日 20171110酒后试试另一种方式的录播]({{site.baseurl}}/miles/transcript/2017/11/20171110-53484035)
 
 [郭文贵2017年11月8日 20171108twitter再次被封7天后的报平安]({{site.baseurl}}/miles/transcript/2017/11/20171108-53484033)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年10月10日视频 20171010博讯造谣胡锦涛温家宝被抓，美国检查官调查吴征经济政治诈骗资料]({{site.baseurl}}/miles/transcript/2017/10/20171010-53476924)
 
 [郭文贵2017年10月8日 20171008吴征杨澜将引爆中美巨大政治丑闻]({{site.baseurl}}/miles/transcript/2017/10/20171008-53484107)
-
-[郭文贵2017年10月7日视频 20171007Snow上镜了]({{site.baseurl}}/miles/transcript/2017/10/20171007-53483616)
-
-[郭文贵2017年10月5日 20171005 郭文贵10月5日全球新聞發布會第02次华盛顿记者会剪輯後英語版官方版]({{site.baseurl}}/miles/transcript/2017/10/20171005-53484102)
 
 
 ## 頁面 103/110 [**<**]({{site.baseurl}}/miles/transcript/page102) [1]({{site.baseurl}}/miles/transcript/index) ... [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) **103** [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page104)
