@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 85/110 [**<**]({{site.baseurl}}/miles/transcript/page84) [1]({{site.baseurl}}/miles/transcript/index) ... [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) **85** [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page86)
 
+[郭文贵2019年1月5日 20190105接受庄烈宏先生美东之声访问。中共敢打台湾吗？什么叫战友？2019文贵爆料的具体战略]({{site.baseurl}}/miles/transcript/2019/01/20190105-53481588)
+
 [郭文贵2019年1月5日视频 20190105_2-保镖告诉我，林宝坚尼为我特制的SUV已经到我的停车场了，我都快忘了这个车了]({{site.baseurl}}/miles/transcript/2019/01/20190105-53478482)
 
 [郭文贵2019年1月4日视频 20190104_1欺民賊們在西方布下的中文媒體的配合CCP的網路大軍太可怕了]({{site.baseurl}}/miles/transcript/2019/01/20190104-53478481)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年12月16日 20181216郭文贵回答战友之声的问题，聊天，怎么看待习江斗。]({{site.baseurl}}/miles/transcript/2018/12/20181216-53481424)
 
 [郭文贵2018年12月14日视频 20181214肖建华的资产被分的差不多了，很快就会消失了]({{site.baseurl}}/miles/transcript/2018/12/20181214-53481390)
-
-[郭文贵2018年12月12日视频 20181212]({{site.baseurl}}/miles/transcript/2018/12/20181212-53481240)
 
 
 ## 頁面 85/110 [**<**]({{site.baseurl}}/miles/transcript/page84) [1]({{site.baseurl}}/miles/transcript/index) ... [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) **85** [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page86)

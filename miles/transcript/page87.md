@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 87/110 [**<**]({{site.baseurl}}/miles/transcript/page86) [1]({{site.baseurl}}/miles/transcript/index) ... [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) **87** [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page88)
 
+[郭文贵2018年11月20日视频 20181120_3(曾宏版)郭文贵2018年11月20日王健之死與海航背後真相信息发布会]({{site.baseurl}}/miles/transcript/2018/11/20181120-53478406)
+
 [郭文贵2018年11月19日视频 20181119_1王建之死发布会的前一天受到各方压力]({{site.baseurl}}/miles/transcript/2018/11/20181119-53478418)
 
 [郭文贵2018年11月18日视频 20181118_1]({{site.baseurl}}/miles/transcript/2018/11/20181118-53478407)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年10月27日视频 20181027_1基金经理Kyle Bass网站被共匪攻击；王健发布会场地被共匪骚扰（提出用N倍价钱来取消发布会）]({{site.baseurl}}/miles/transcript/2018/10/20181027-53478344)
 
 [郭文贵2018年10月26日视频 20181026你们健身了吗！一切都是刚开始！谈港币和人⺠币 的汇率]({{site.baseurl}}/miles/transcript/2018/10/20181026-53479089)
-
-[郭文贵2018年10月25日视频 20181025刚刚在以色列科技创新论坛上的王岐山．马云．言讲为什么状态这么不好！以色列人如何看他们的窜访！]({{site.baseurl}}/miles/transcript/2018/10/20181025-53478699)
 
 
 ## 頁面 87/110 [**<**]({{site.baseurl}}/miles/transcript/page86) [1]({{site.baseurl}}/miles/transcript/index) ... [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) **87** [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page88)

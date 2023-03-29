@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 75/110 [**<**]({{site.baseurl}}/miles/transcript/page74) [1]({{site.baseurl}}/miles/transcript/index) ... [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) **75** [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page76)
 
+[2019年7月22日 直播全文字版]({{site.baseurl}}/miles/transcript/2019/07/20190722-53673045)
+
 [2019年7月21日直播全文字版：爆料革命进入全球灭共的新时代]({{site.baseurl}}/miles/transcript/2019/07/20190721-53627486)
 
 [郭文贵2019年7月21日视频 20190721_2喜马拉雅大使馆直播测试版]({{site.baseurl}}/miles/transcript/2019/07/20190721-53478837)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年7月8日直播全文字版：文贵在船上讲述在长岛买豪宅借战友和我是不是双料间谍和王健之死合集]({{site.baseurl}}/miles/transcript/2019/07/20190708-53578169)
 
 [郭文贵2019年7月8日视频 20190708文贵是双面间谍？？]({{site.baseurl}}/miles/transcript/2019/07/20190708-53482874)
-
-[郭文贵2019年7月8日视频 20190708_4文贵开两个小会开一个大会的路上．在船上与战友们聊天]({{site.baseurl}}/miles/transcript/2019/07/20190708-53478795)
 
 
 ## 頁面 75/110 [**<**]({{site.baseurl}}/miles/transcript/page74) [1]({{site.baseurl}}/miles/transcript/index) ... [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) **75** [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page76)

@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 92/110 [**<**]({{site.baseurl}}/miles/transcript/page91) [1]({{site.baseurl}}/miles/transcript/index) ... [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) **92** [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page93)
 
+[郭文贵2018年8月30日视频 20180830关于王健被杀新闻发布会的地点及一些安排！顺便聊聊川蔡电话的背后的故事！]({{site.baseurl}}/miles/transcript/2018/08/20180830-53482551)
+
 [郭文贵2018年8月30日直播 20180830_3]({{site.baseurl}}/miles/transcript/2018/08/20180830-53478188)
 
 [郭文贵2018年8月30日直播 20180830_2]({{site.baseurl}}/miles/transcript/2018/08/20180830-53478186)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年8月12日 20180812王建被杀刑事案件正在进行中！新闻发布会，在两三周内举行，感谢战友昨天在曼哈顿的热情支持！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/08/20180812-53483720)
 
 [郭文贵2018年8月12日视频 20180812_2在Riek Owes取今年秋季服装（合成版）]({{site.baseurl}}/miles/transcript/2018/08/20180812-53477237)
-
-[郭文贵2018年8月11日直播 20180811_1在与川普总统同一家定制西装店直播]({{site.baseurl}}/miles/transcript/2018/08/20180811-53478146)
 
 
 ## 頁面 92/110 [**<**]({{site.baseurl}}/miles/transcript/page91) [1]({{site.baseurl}}/miles/transcript/index) ... [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) **92** [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page93)

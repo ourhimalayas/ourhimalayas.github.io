@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 73/110 [**<**]({{site.baseurl}}/miles/transcript/page72) [1]({{site.baseurl}}/miles/transcript/index) ... [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) **73** [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page74)
 
+[郭文贵2019年8月7日视频 20190807王岐山和德国前副总理 菲利浦什么关系 PAG太盟投资与海航王岐山什么关系 为什么太盟投资和林郑月娥 菲利浦 陈峰 王岐山走在一起]({{site.baseurl}}/miles/transcript/2019/08/20190807-53482923)
+
 [2019年8月6日《文贵大直播》全文字版： 谈美国将中共定位汇率操纵国的意义]({{site.baseurl}}/miles/transcript/2019/08/20190806-53741143)
 
 [郭文贵2019年8月6日 20190806美国将中共定位汇率操纵国的]({{site.baseurl}}/miles/transcript/2019/08/20190806-53482971)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年7月28号文贵报平安全文字版]({{site.baseurl}}/miles/transcript/2019/07/20190728-53740505)
 
 [郭文贵2019年7月28日视频 20190728_1双面间谍．文贵，在＂床＂上报平安！]({{site.baseurl}}/miles/transcript/2019/07/20190728-53478848)
-
-[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分]({{site.baseurl}}/miles/transcript/2019/07/20190727-53715693)
 
 
 ## 頁面 73/110 [**<**]({{site.baseurl}}/miles/transcript/page72) [1]({{site.baseurl}}/miles/transcript/index) ... [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) **73** [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page74)

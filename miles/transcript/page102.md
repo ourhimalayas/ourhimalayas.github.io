@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 102/110 [**<**]({{site.baseurl}}/miles/transcript/page101) [1]({{site.baseurl}}/miles/transcript/index) ... [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) **102** [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page103)
 
+[郭文贵2018年1月3日视频 20180103_2接受日本媒体采访说日语]({{site.baseurl}}/miles/transcript/2018/01/20180103-53476960)
+
 [郭文贵2017年12月30日直播 20171230_1]({{site.baseurl}}/miles/transcript/2017/12/20171230-53482820)
 
 [郭文贵2017年12月25日直播 20171225_1我们拥有世界上最棒的战斗装及战斗工具]({{site.baseurl}}/miles/transcript/2017/12/20171225-53482818)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年11月12日第二次直播 20171112_2马阿拉哥庄园 与网友们聊聊天]({{site.baseurl}}/miles/transcript/2017/11/20171112-53484040)
 
 [郭文贵2017年11月12日第一次直播 20171112_1马阿拉哥庄园 与网友们聊聊天]({{site.baseurl}}/miles/transcript/2017/11/20171112-53483878)
-
-[郭文贵2017年11月10日 20171110酒后试试另一种方式的录播]({{site.baseurl}}/miles/transcript/2017/11/20171110-53484035)
 
 
 ## 頁面 102/110 [**<**]({{site.baseurl}}/miles/transcript/page101) [1]({{site.baseurl}}/miles/transcript/index) ... [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) **102** [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page103)

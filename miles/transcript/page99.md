@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 99/110 [**<**]({{site.baseurl}}/miles/transcript/page98) [1]({{site.baseurl}}/miles/transcript/index) ... [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) **99** [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page100)
 
+[郭文贵2018年3月12日视频第二部分 20180312_2文贵拜托战友们的新行动．推特拉黑．YouTube 取关不打盗国贼的任何人任何媒体！全力以赴支持自由中国．爆料！支持路上德就是无尚功德！]({{site.baseurl}}/miles/transcript/2018/03/20180312-53481554)
+
 [郭文贵2018年3月11日报平安视频 20180311谈5.1共振看法及昨天发错误文件和陈军下一步的行动]({{site.baseurl}}/miles/transcript/2018/03/20180311-53481508)
 
 [郭文贵2018年3月11日直播 20180311_2郭文贵要发大财了！有机构想收购郭先生的精子哈哈哈哈]({{site.baseurl}}/miles/transcript/2018/03/20180311-53477316)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年2月21日直播 20180221_1被盗国贼宣传的一无是处的美帝国主义！咋这么自然！这么多别墅呢？而且都是私人拥有！ Via：郭媒体]({{site.baseurl}}/miles/transcript/2018/02/20180221-53477220)
 
 [郭文贵2018年2月19日直播 20180219_2Snow咋这么可爱呢]({{site.baseurl}}/miles/transcript/2018/02/20180219-53477216)
-
-[郭文贵2018年2月19日直播 20180219_1Snow 也上桌了…… Via：郭媒体]({{site.baseurl}}/miles/transcript/2018/02/20180219-53477210)
 
 
 ## 頁面 99/110 [**<**]({{site.baseurl}}/miles/transcript/page98) [1]({{site.baseurl}}/miles/transcript/index) ... [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) **99** [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page100)

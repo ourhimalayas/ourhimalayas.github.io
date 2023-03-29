@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 91/110 [**<**]({{site.baseurl}}/miles/transcript/page90) [1]({{site.baseurl}}/miles/transcript/index) ... [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) **91** [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page92)
 
+[郭文贵2018年9月16日视频 20180916_3]({{site.baseurl}}/miles/transcript/2018/09/20180916-53478124)
+
 [郭文贵2018年9月15日直播 20180915_1]({{site.baseurl}}/miles/transcript/2018/09/20180915-53478256)
 
 [郭文贵2018年9月13日直播 20180913_1]({{site.baseurl}}/miles/transcript/2018/09/20180913-53478253)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年9月2日视频 20180902文贵是否 应以停止王健被杀新闻发布会 来换取 员工和哥哥的自由！]({{site.baseurl}}/miles/transcript/2018/09/20180902-53482566)
 
 [郭文贵2018年8月31日直播 20180831_1感谢昨天为盘古公寓和写字楼被非法拍卖而流泪担心我的战友们你们的爱惜担心文贵更加让我精进反盗为战友而战为正义而战一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2018/08/20180831-53478192)
-
-[郭文贵2018年8月30日视频 20180830关于王健被杀新闻发布会的地点及一些安排！顺便聊聊川蔡电话的背后的故事！]({{site.baseurl}}/miles/transcript/2018/08/20180830-53482551)
 
 
 ## 頁面 91/110 [**<**]({{site.baseurl}}/miles/transcript/page90) [1]({{site.baseurl}}/miles/transcript/index) ... [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) **91** [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page92)

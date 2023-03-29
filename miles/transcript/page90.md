@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 90/110 [**<**]({{site.baseurl}}/miles/transcript/page89) [1]({{site.baseurl}}/miles/transcript/index) ... [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) **90** [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page91)
 
+[郭文贵2018年9月30日视频 20180930_1我們恨中共 但是我耽心同胞 耽心我們的國家 他們的大難即將來臨 還不知道死活呢]({{site.baseurl}}/miles/transcript/2018/09/20180930-53478299)
+
 [郭文贵2018年9月29日视频 20180929_1]({{site.baseurl}}/miles/transcript/2018/09/20180929-53478318)
 
 [郭文贵2018年9月28日视频 20180928文贵在会议结束后返回途中的飞机上，和战友们汇报一下会议的初步概况，一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/09/20180928-53482665)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年9月16日视频第二部分 20180916_2我向美国朋友解柝郭七来！为什么不反习！及我有绝对信心中国政权一定会更迭！]({{site.baseurl}}/miles/transcript/2018/09/20180916-53482634)
 
 [郭文贵2018年9月16日视频第一部分 20180916_1我向美国朋友解柝郭七来！为什么不反习！及我有绝对信心中国政权一定会更迭！为什么没有共产党统治的海外华人世界为什么让西方如此看不起与不信任！]({{site.baseurl}}/miles/transcript/2018/09/20180916-53482603)
-
-[郭文贵2018年9月16日视频 20180916_3]({{site.baseurl}}/miles/transcript/2018/09/20180916-53478124)
 
 
 ## 頁面 90/110 [**<**]({{site.baseurl}}/miles/transcript/page89) [1]({{site.baseurl}}/miles/transcript/index) ... [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) **90** [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page91)

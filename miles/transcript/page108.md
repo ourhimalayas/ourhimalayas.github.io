@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 108/110 [**<**]({{site.baseurl}}/miles/transcript/page107) [1]({{site.baseurl}}/miles/transcript/index) ... [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) **108** [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page109)
 
+[郭文贵2017年7月1日直播 20170701关于王岐山和范冰冰在1808房]({{site.baseurl}}/miles/transcript/2017/07/20170701-53483821)
+
 [郭文贵2017年6月30日直播 20170630关于王岐山与范冰冰的关系]({{site.baseurl}}/miles/transcript/2017/06/20170630-53483811)
 
 [郭文贵2017年6月28日完整版 20170628]({{site.baseurl}}/miles/transcript/2017/06/20170628-53483804)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年5月23日视频 20170523]({{site.baseurl}}/miles/transcript/2017/05/20170523-53483802)
 
 [郭文贵2017年5月22日直播 20170522_1回覆潘石屹]({{site.baseurl}}/miles/transcript/2017/05/20170522-53483799)
-
-[郭文贵2017年5月22日直播 20170522_2手机直播回应潘石屹视频]({{site.baseurl}}/miles/transcript/2017/05/20170522-53483764)
 
 
 ## 頁面 108/110 [**<**]({{site.baseurl}}/miles/transcript/page107) [1]({{site.baseurl}}/miles/transcript/index) ... [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) **108** [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page109)

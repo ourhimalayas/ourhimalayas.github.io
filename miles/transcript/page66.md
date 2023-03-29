@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 66/110 [**<**]({{site.baseurl}}/miles/transcript/page65) [1]({{site.baseurl}}/miles/transcript/index) ... [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) **66** [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page67)
 
+[郭文贵2019年10月25日第二次直播 20191025_2直播谈中国同胞39名惨死偷渡英国途中，文贵先生解读彭斯演讲，四中全会党内将人头滚滚]({{site.baseurl}}/miles/transcript/2019/10/20191025-53483249)
+
 [2019年10月24日文贵大直播全文字版：谈彭斯副总统演讲]({{site.baseurl}}/miles/transcript/2019/10/20191024-53916903)
 
 [郭文贵2019年10月24日 20191024谈彭斯副总统演讲]({{site.baseurl}}/miles/transcript/2019/10/20191024-53483231)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年10月14日 郭文贵先生游艇机舱报平安直播 全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191014-53903412)
 
 [郭文贵2019年10月14日视频 20191014游艇机舱报平安直播45分钟版]({{site.baseurl}}/miles/transcript/2019/10/20191014-53483666)
-
-[郭文贵2019年10月14日视频 20191014_2直播吃鸭腿 游艇机舱报平安直播28分钟高清版]({{site.baseurl}}/miles/transcript/2019/10/20191014-53478044)
 
 
 ## 頁面 66/110 [**<**]({{site.baseurl}}/miles/transcript/page65) [1]({{site.baseurl}}/miles/transcript/index) ... [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) **66** [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page67)

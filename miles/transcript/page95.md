@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 95/110 [**<**]({{site.baseurl}}/miles/transcript/page94) [1]({{site.baseurl}}/miles/transcript/index) ... [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) **95** [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page96)
 
+[郭文贵2018年6月15日直播 20180615_1谈只有中国正道主义可以救中国．只有与西方和平共处才能让中国长治久安！]({{site.baseurl}}/miles/transcript/2018/06/20180615-53477910)
+
 [郭文贵2018年6月13日直播 20180613_1郭战装与什么是习主席的政治轮轴效应！]({{site.baseurl}}/miles/transcript/2018/06/20180613-53477894)
 
 [郭文贵2018年6月11日直播 20180611_1陈峰脑血管病急救．感谢黑客先生．大陆官场热离婚．商场热移民美国！习主席进入官场轮轴灾难区！]({{site.baseurl}}/miles/transcript/2018/06/20180611-53477873)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年5月10日视频 20180510生日直播，盗国贼不亡，独狼行动不止]({{site.baseurl}}/miles/transcript/2018/05/20180510-53478375)
 
 [郭文贵2018年5月5日视频第一部分 20180505_1陈氏兄弟及盟相关机密文件内幕]({{site.baseurl}}/miles/transcript/2018/05/20180505-53483844)
-
-[郭文贵2018年5月5日视频第三部分 20180505_3陈氏兄弟及盟相关机密文件内幕]({{site.baseurl}}/miles/transcript/2018/05/20180505-53483675)
 
 
 ## 頁面 95/110 [**<**]({{site.baseurl}}/miles/transcript/page94) [1]({{site.baseurl}}/miles/transcript/index) ... [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) **95** [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page96)

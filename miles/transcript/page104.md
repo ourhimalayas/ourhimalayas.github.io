@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 104/110 [**<**]({{site.baseurl}}/miles/transcript/page103) [1]({{site.baseurl}}/miles/transcript/index) ... [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) **104** [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) ... [**>**]({{site.baseurl}}/miles/transcript/page105)
 
+[郭文贵2017年10月4日 20171004在哈德森演讲延期事件后直播,谁将哈德逊蓝金黄的？]({{site.baseurl}}/miles/transcript/2017/10/20171004-53484094)
+
 [郭文贵2017年10月4日视频 20171004_2在华盛顿报平安]({{site.baseurl}}/miles/transcript/2017/10/20171004-53483611)
 
 [郭文贵2017年10月2日视频 20171002为拉斯维加斯悲剧受害者祈福]({{site.baseurl}}/miles/transcript/2017/10/20171002-53483608)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年9月11日视频 20170911全力以赴准备19大我们的影子会议]({{site.baseurl}}/miles/transcript/2017/09/20170911-53483574)
 
 [郭文贵2017年9月10日视频 20170910江绵恒．王岐山．孟建柱．傅政华．孙力军．马云！及我与刘彦平先生的对话]({{site.baseurl}}/miles/transcript/2017/09/20170910-53483985)
-
-[郭文贵2017年9月10日视频 20170910_2马云你还记得这个东西么?180次飞行记录，200万买的录像证明一切。]({{site.baseurl}}/miles/transcript/2017/09/20170910-53477347)
 
 
 ## 頁面 104/110 [**<**]({{site.baseurl}}/miles/transcript/page103) [1]({{site.baseurl}}/miles/transcript/index) ... [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) **104** [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) ... [**>**]({{site.baseurl}}/miles/transcript/page105)

@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 106/110 [**<**]({{site.baseurl}}/miles/transcript/page105) [1]({{site.baseurl}}/miles/transcript/index) ... [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) **106** [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page107)
 
+[郭文贵2017年8月25日做客郭宝胜 20170825宗教与中国政治及社会关系]({{site.baseurl}}/miles/transcript/2017/08/20170825-53484317)
+
 [郭文贵2017年8月25日视频 20170825_270天的特别之旅]({{site.baseurl}}/miles/transcript/2017/08/20170825-53483540)
 
 [郭文贵2017年8月24日 20170824关于腾彪先生造谣文贵乱伦]({{site.baseurl}}/miles/transcript/2017/08/20170824-53483923)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年8月5日视频 20170805_1文贵试试网：回答香港商界朋友的问题．与王岐山怎么威胁范冰冰闭嘴的！]({{site.baseurl}}/miles/transcript/2017/08/20170805-53483849)
 
 [郭文贵2017年8月5日视频 20170805_2]({{site.baseurl}}/miles/transcript/2017/08/20170805-53483515)
-
-[郭文贵2017年8月4日 20170804关于香港警察调查郭文贵以自己的1600亿诈骗自己的360亿的案件 搞笑 搞笑]({{site.baseurl}}/miles/transcript/2017/08/20170804-53483843)
 
 
 ## 頁面 106/110 [**<**]({{site.baseurl}}/miles/transcript/page105) [1]({{site.baseurl}}/miles/transcript/index) ... [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) **106** [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page107)

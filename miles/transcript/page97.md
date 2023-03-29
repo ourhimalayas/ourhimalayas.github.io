@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 97/110 [**<**]({{site.baseurl}}/miles/transcript/page96) [1]({{site.baseurl}}/miles/transcript/index) ... [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) **97** [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page98)
 
+[郭文贵2018年4月19日第四次直播 20180419_4-419VOA断播门一周年回顾 網友提問 & 評何頻的為人]({{site.baseurl}}/miles/transcript/2018/04/20180419-53477677)
+
 [郭文贵2018年4月19日第三次直播 20180419_3VOG断播一周年回顾之——路德提问]({{site.baseurl}}/miles/transcript/2018/04/20180419-53477631)
 
 [郭文贵2018年4月16日在Livestrem 20180416谈墙内方老先生和开放海南夺命岛]({{site.baseurl}}/miles/transcript/2018/04/20180416-53482294)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年3月29日视频第一部分 20180329_1回答战友们香港警察查封各银行账号用的什么法律手续]({{site.baseurl}}/miles/transcript/2018/03/20180329-53481942)
 
 [郭文贵2018年3月29日视频第三部分 20180329_3这车次纽约车展非常非常棒！今天晚上我与朋友一起看了布加迪．劳斯来斯．林宝坚尼……好多人对着我喝！一切都是刚刚开始！ Via：郭媒体]({{site.baseurl}}/miles/transcript/2018/03/20180329-53477161)
-
-[郭文贵2018年3月28日第二次直播 20180328_2谈香港黑警察与金正恩访华]({{site.baseurl}}/miles/transcript/2018/03/20180328-53482002)
 
 
 ## 頁面 97/110 [**<**]({{site.baseurl}}/miles/transcript/page96) [1]({{site.baseurl}}/miles/transcript/index) ... [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) **97** [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page98)
