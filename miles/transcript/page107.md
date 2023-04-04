@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 107/110 [**<**]({{site.baseurl}}/miles/transcript/page106) [1]({{site.baseurl}}/miles/transcript/index) ... [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) **107** [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page108)
 
+[郭文贵2017年8月6日直播 20170806党内已怨声载道，北戴河会议群魔乱咬.]({{site.baseurl}}/miles/transcript/2017/08/20170806-53483511)
+
 [郭文贵2017年8月5日视频 20170805_1文贵试试网：回答香港商界朋友的问题．与王岐山怎么威胁范冰冰闭嘴的！]({{site.baseurl}}/miles/transcript/2017/08/20170805-53483849)
 
 [郭文贵2017年8月5日视频 20170805_2]({{site.baseurl}}/miles/transcript/2017/08/20170805-53483515)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年7月6日 20170706王岐山的新豪宅．及孟建柱傅政华的真实关系与丰富多彩的性生活！]({{site.baseurl}}/miles/transcript/2017/07/20170706-53483885)
 
 [郭文贵2017年7月5日 20170705文贵又要试试网络了！谈谈王岐山．孟建柱．傅政华．在十九大到底想要什么？]({{site.baseurl}}/miles/transcript/2017/07/20170705-53483879)
-
-[郭文贵2017年7月4日 20170704文贵个人如何看美国与中国不同！美国为什么没有王岐山傅政华这样的盗国贼？]({{site.baseurl}}/miles/transcript/2017/07/20170704-53483857)
 
 
 ## 頁面 107/110 [**<**]({{site.baseurl}}/miles/transcript/page106) [1]({{site.baseurl}}/miles/transcript/index) ... [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) **107** [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page108)

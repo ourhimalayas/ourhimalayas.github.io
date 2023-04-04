@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 105/110 [**<**]({{site.baseurl}}/miles/transcript/page104) [1]({{site.baseurl}}/miles/transcript/index) ... [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) **105** [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page106)
 
+[郭文贵2017年9月12日视频 20170912大家不要上了盗国贼们生殖器大战的当]({{site.baseurl}}/miles/transcript/2017/09/20170912-53483575)
+
 [郭文贵2017年9月11日视频 20170911全力以赴准备19大我们的影子会议]({{site.baseurl}}/miles/transcript/2017/09/20170911-53483574)
 
 [郭文贵2017年9月10日视频 20170910江绵恒．王岐山．孟建柱．傅政华．孙力军．马云！及我与刘彦平先生的对话]({{site.baseurl}}/miles/transcript/2017/09/20170910-53483985)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年8月28日视频 20170828_2今天七夕情人节 我与太太今天在海滩上享受了一下午]({{site.baseurl}}/miles/transcript/2017/08/20170828-53483549)
 
 [郭文贵2017年8月27日视频 20170827_3盗国贼们的疯狂与愚蠢 这样的黑客攻击方式是最好的证明文贵的爆料是真实]({{site.baseurl}}/miles/transcript/2017/08/20170827-53483547)
-
-[郭文贵2017年8月27日视频 20170827_2黑客攻击郭文贵手机 军方的高科技]({{site.baseurl}}/miles/transcript/2017/08/20170827-53483544)
 
 
 ## 頁面 105/110 [**<**]({{site.baseurl}}/miles/transcript/page104) [1]({{site.baseurl}}/miles/transcript/index) ... [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) **105** [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page106)

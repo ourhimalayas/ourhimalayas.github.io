@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 68/110 [**<**]({{site.baseurl}}/miles/transcript/page67) [1]({{site.baseurl}}/miles/transcript/index) ... [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) **68** [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page69)
 
+[]({{site.baseurl}}/miles/transcript/2019/10/20191006-53899554)
+
 [郭文贵2019年10月6日 20191006试直播]({{site.baseurl}}/miles/transcript/2019/10/20191006-53478046)
 
 [2019年10月5日与郭文贵先生连线直播全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191005-53907469)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年9月28日 20190928香港即将迎来关键一战，国庆就是CCP的末日，美将清算盗国贼资产，以美灭共，依法灭共，以共灭共的伟大时代已经来临]({{site.baseurl}}/miles/transcript/2019/09/20190928-53483204)
 
 [2019年9月27日文贵大直播全文字版：文贵，班农与Kathy女士直播：江泽民震惊发言：中国要出事！你们准备后路吧！！国庆阅兵没几个国家会参加，川普总统的弹劾程序和对中共的制裁将有大戏上演！]({{site.baseurl}}/miles/transcript/2019/09/20190927-53867898)
-
-[郭文贵2019年9月27日 20190927文贵班农与Kathy女士直播：江泽民震惊发言：中国要出事！你们准备后路吧！！国庆阅兵没几个国家会参加，川普总统的弹劾程序和对中共的制裁将有大戏上演！]({{site.baseurl}}/miles/transcript/2019/09/20190927-53483195)
 
 
 ## 頁面 68/110 [**<**]({{site.baseurl}}/miles/transcript/page67) [1]({{site.baseurl}}/miles/transcript/index) ... [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) **68** [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page69)

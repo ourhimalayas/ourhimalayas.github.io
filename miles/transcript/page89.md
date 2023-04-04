@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 89/110 [**<**]({{site.baseurl}}/miles/transcript/page88) [1]({{site.baseurl}}/miles/transcript/index) ... [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) **89** [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page90)
 
+[郭文贵2018年10月14日视频 20181014_1]({{site.baseurl}}/miles/transcript/2018/10/20181014-53478356)
+
 [郭文贵2018年10月13日视频 20181013_2]({{site.baseurl}}/miles/transcript/2018/10/20181013-53478355)
 
 [郭文贵2018年10月13日视频 20181013_1]({{site.baseurl}}/miles/transcript/2018/10/20181013-53478350)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年10月3日视频 20181003_4]({{site.baseurl}}/miles/transcript/2018/10/20181003-53478317)
 
 [郭文贵2018年10月3日视频 20181003_3]({{site.baseurl}}/miles/transcript/2018/10/20181003-53478315)
-
-[郭文贵2018年10月3日视频 20181003_2]({{site.baseurl}}/miles/transcript/2018/10/20181003-53478309)
 
 
 ## 頁面 89/110 [**<**]({{site.baseurl}}/miles/transcript/page88) [1]({{site.baseurl}}/miles/transcript/index) ... [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) **89** [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page90)

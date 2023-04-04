@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 99/110 [**<**]({{site.baseurl}}/miles/transcript/page98) [1]({{site.baseurl}}/miles/transcript/index) ... [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) **99** [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page100)
 
+[郭文贵2018年3月12日视频第四部分 20180312_4关于将对吴征．杨澜．陈军等．谋害谣言威胁文贵等行为釆取的行动……感恩上天与战友．和这场天大的灾难．给了文贵一个新生命！]({{site.baseurl}}/miles/transcript/2018/03/20180312-53481877)
+
 [郭文贵2018年3月12日视频第三部分 20180312_3请战友们不要被谣言、八卦和盗国贼控制的媒体所利用]({{site.baseurl}}/miles/transcript/2018/03/20180312-53481731)
 
 [郭文贵2018年3月12日视频第一部分 20180312_1向给文贵邮寄盗国贼材料的战友们致敬]({{site.baseurl}}/miles/transcript/2018/03/20180312-53481670)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年2月25日直播 20180225_1郭文贵先生的船过总统桥小视频]({{site.baseurl}}/miles/transcript/2018/02/20180225-53477245)
 
 [郭文贵2018年2月23日直播 20180223_1谈Steve Wynn的价值两亿八千万美元的船]({{site.baseurl}}/miles/transcript/2018/02/20180223-53477236)
-
-[郭文贵2018年2月21日直播 20180221_2幾秒前被盗国贼宣传的一无是处的美帝国主义！咋这么自然！这么多别墅呢？而且都是私人拥有！ V]({{site.baseurl}}/miles/transcript/2018/02/20180221-53477225)
 
 
 ## 頁面 99/110 [**<**]({{site.baseurl}}/miles/transcript/page98) [1]({{site.baseurl}}/miles/transcript/index) ... [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) **99** [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page100)

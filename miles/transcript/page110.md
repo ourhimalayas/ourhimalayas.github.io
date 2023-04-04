@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 110/110 [**<**]({{site.baseurl}}/miles/transcript/page109) [1]({{site.baseurl}}/miles/transcript/index) ... [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) **110**
 
+[郭文贵2017年5月4日视频 20170504_2秦伟平专访郭文贵（弹幕版）]({{site.baseurl}}/miles/transcript/2017/05/20170504-53483769)
+
 [郭文贵2017年5月4日视频 20170504_1]({{site.baseurl}}/miles/transcript/2017/05/20170504-53483749)
 
 [郭文贵2017年5月3日视频 20170503_1]({{site.baseurl}}/miles/transcript/2017/05/20170503-53483733)

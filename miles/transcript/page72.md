@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 72/110 [**<**]({{site.baseurl}}/miles/transcript/page71) [1]({{site.baseurl}}/miles/transcript/index) ... [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) **72** [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page73)
 
+[2019年8月20日文贵大直播：王岐山的侄子抢夺盘古大观的「斩龙刀」]({{site.baseurl}}/miles/transcript/2019/08/20190820-53795571)
+
 [郭文贵2019年8月20日视频 20190820王岐山的侄子搶奪盤古大關的 “斬龍刀”！和西方媒體面對的司法審判的改變！]({{site.baseurl}}/miles/transcript/2019/08/20190820-53483158)
 
 [郭文贵2019年8月18日视频 20190818从‘818’的170万港人再上街 来看大湾区的吞港计划]({{site.baseurl}}/miles/transcript/2019/08/20190818-53483141)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年8月9日视频 20190809_2昨晚歐洲發生了大事]({{site.baseurl}}/miles/transcript/2019/08/20190809-53478896)
 
 [2019年8月8日《文贵大直播》全文字版： 中共对世界布下的天罗地网，并不能阻止中共灭亡的步伐]({{site.baseurl}}/miles/transcript/2019/08/20190808-53739868)
-
-[郭文贵2019年8月8日视频 201908088th Aug Mr. Guo's broadcast: CCP's sophisticated plan to take over the world will...]({{site.baseurl}}/miles/transcript/2019/08/20190808-53482953)
 
 
 ## 頁面 72/110 [**<**]({{site.baseurl}}/miles/transcript/page71) [1]({{site.baseurl}}/miles/transcript/index) ... [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) **72** [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page73)

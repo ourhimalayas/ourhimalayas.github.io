@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 90/110 [**<**]({{site.baseurl}}/miles/transcript/page89) [1]({{site.baseurl}}/miles/transcript/index) ... [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) **90** [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page91)
 
+[郭文贵2018年10月3日视频 20181003_2]({{site.baseurl}}/miles/transcript/2018/10/20181003-53478309)
+
 [郭文贵2018年10月3日视频 20181003_1]({{site.baseurl}}/miles/transcript/2018/10/20181003-53478306)
 
 [郭文贵2018年10月1日视频 20181001_1]({{site.baseurl}}/miles/transcript/2018/10/20181001-53478302)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年9月17日视频 20180917(全程無駭客干擾版)王健死亡事件真相有重大进展，法国司法部已经正式立案全面重新调查！]({{site.baseurl}}/miles/transcript/2018/09/20180917-53482563)
 
 [郭文贵2018年9月17日视频 20180917_3今天是个好日子……本来过5不食的！现在吃点粗茶淡饭！喝点中年茅台！奖励自己一下……二十几个小时连续的工作！唯独美中不足缺战友！]({{site.baseurl}}/miles/transcript/2018/09/20180917-53478265)
-
-[郭文贵2018年9月17日视频 20180917_2]({{site.baseurl}}/miles/transcript/2018/09/20180917-53478260)
 
 
 ## 頁面 90/110 [**<**]({{site.baseurl}}/miles/transcript/page89) [1]({{site.baseurl}}/miles/transcript/index) ... [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) **90** [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page91)
