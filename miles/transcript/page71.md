@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 71/111 [**<**]({{site.baseurl}}/miles/transcript/page70) [1]({{site.baseurl}}/miles/transcript/index) ... [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) **71** [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page72)
 
+[2019年9月3日文贵大直播全文字版：华盛顿直播：香港将是东西方大战导火线．什么是中共所谓的新型大国关系！]({{site.baseurl}}/miles/transcript/2019/09/20190903-53819121)
+
 [郭文贵2019年9月3日第一次直播 20190903_1香港将是东西方大战导火线．什么是中共所谓的新型大国关系！]({{site.baseurl}}/miles/transcript/2019/09/20190903-53483004)
 
 [郭文贵2019年9月3日第二次直播 20190903_2在华盛顿直播，谈9月3号CCP将真正对香港进行戒严计划，目前所有焦点都关注香港！]({{site.baseurl}}/miles/transcript/2019/09/20190903-53482996)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年8月24日视频 20190824_1报平安，好消息不断]({{site.baseurl}}/miles/transcript/2019/08/20190824-53478919)
 
 [2019年8月23日文贵大直播全文字版：习近平和川普总统会互相宣布成为敌人吗？]({{site.baseurl}}/miles/transcript/2019/08/20190823-53795543)
-
-[郭文贵2019年8月23日第一次直播 20190823_1习近平和川普总统会互相宣布成为敌人吗？习近平为什么说川普不是我的朋友？]({{site.baseurl}}/miles/transcript/2019/08/20190823-53483175)
 
 
 ## 頁面 71/111 [**<**]({{site.baseurl}}/miles/transcript/page70) [1]({{site.baseurl}}/miles/transcript/index) ... [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) **71** [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page72)

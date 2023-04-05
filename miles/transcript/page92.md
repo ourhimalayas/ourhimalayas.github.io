@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 92/111 [**<**]({{site.baseurl}}/miles/transcript/page91) [1]({{site.baseurl}}/miles/transcript/index) ... [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) **92** [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page93)
 
+[郭文贵2018年9月5日视频第二部分 20180905_2黄河边性无能造成严重后果。林肯中心被取消发布会 2]({{site.baseurl}}/miles/transcript/2018/09/20180905-53482514)
+
 [郭文贵2018年9月3日视频 20180903为了员工，家人文贵可以部分妥协，但不能放弃爆料革命追求喜马拉雅]({{site.baseurl}}/miles/transcript/2018/09/20180903-53482587)
 
 [郭文贵2018年9月3日视频 20180903_2高清版 为了员工和家人，文贵可以部分妥协，但不能放弃爆料革命追求喜马拉雅]({{site.baseurl}}/miles/transcript/2018/09/20180903-53478158)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年8月15日直播 20180815_1聊聊人民币汇率的问题,美中战略重新定义的内涵和大连政法委的恶行]({{site.baseurl}}/miles/transcript/2018/08/20180815-53478164)
 
 [郭文贵2018年8月15日视频 20180815_2做平板撑 坚持才能胜利！]({{site.baseurl}}/miles/transcript/2018/08/20180815-53477251)
-
-[郭文贵2018年8月13日第一次直播 20180813_1大连政法委书记于德泉．检察长吴喆！在几个小时前在京哈高速上．将盘古公司副总经理贾鑫及妻子两个孩子绑架至大连！]({{site.baseurl}}/miles/transcript/2018/08/20180813-53482491)
 
 
 ## 頁面 92/111 [**<**]({{site.baseurl}}/miles/transcript/page91) [1]({{site.baseurl}}/miles/transcript/index) ... [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) **92** [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page93)

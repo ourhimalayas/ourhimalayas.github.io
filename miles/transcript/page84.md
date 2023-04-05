@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 84/111 [**<**]({{site.baseurl}}/miles/transcript/page83) [1]({{site.baseurl}}/miles/transcript/index) ... [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) **84** [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page85)
 
+[郭文贵2019年1月27日视频 20190127王岐山在达沃斯的讲话已经开始了世界的反习运动！]({{site.baseurl}}/miles/transcript/2019/01/20190127-53481853)
+
 [郭文贵2019年1月25日视频 20190125罗杰斯通感恩郭先生接受道歉]({{site.baseurl}}/miles/transcript/2019/01/20190125-53481844)
 
 [郭文贵2019年1月24日视频 20190124委内瑞拉的民主反独裁的运动对中国人民的意义与影响重大]({{site.baseurl}}/miles/transcript/2019/01/20190124-53481827)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年1月11日视频 20190111_2國內現在都明白了, 甚麼反腐運動, 王八蛋反腐, 實際上都是滅口運動]({{site.baseurl}}/miles/transcript/2019/01/20190111-53478504)
 
 [郭文贵2019年1月10日视频 20190110文贵请战友投票决定：文贵看春晚包不包...]({{site.baseurl}}/miles/transcript/2019/01/20190110-53481644)
-
-[郭文贵2019年1月9日视频 20190109_1袁建斌败诉后会赔多少钱？美国的法律会给出答案]({{site.baseurl}}/miles/transcript/2019/01/20190109-53478498)
 
 
 ## 頁面 84/111 [**<**]({{site.baseurl}}/miles/transcript/page83) [1]({{site.baseurl}}/miles/transcript/index) ... [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) **84** [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page85)

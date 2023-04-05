@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 98/111 [**<**]({{site.baseurl}}/miles/transcript/page97) [1]({{site.baseurl}}/miles/transcript/index) ... [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) **98** [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page99)
 
+[郭文贵2018年3月31日做客郭友之声 20180331郭友访谈--郭先生与小蚂蚁亲密接触（戊戌年 3月31日）]({{site.baseurl}}/miles/transcript/2018/03/20180331-53482084)
+
 [郭文贵2018年3月30日视频 20180330谈香港股票市场、银行、律政司若全被香港警察控制会是什么样子]({{site.baseurl}}/miles/transcript/2018/03/20180330-53482016)
 
 [郭文贵2018年3月29日视频第二部分 20180329_2谈为什么西方政府现在开始关注黑港警事件]({{site.baseurl}}/miles/transcript/2018/03/20180329-53482000)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年3月14日视频 20180314_1再对五一共振新看法,坚决反对用援郭会名义参与]({{site.baseurl}}/miles/transcript/2018/03/20180314-53481819)
 
 [郭文贵2018年3月13日直播 20180313_3明镜的股权用什么可以证明和陈军有关系！]({{site.baseurl}}/miles/transcript/2018/03/20180313-53477356)
-
-[郭文贵2018年3月13日直播 20180313_2陈军拥有多少明镜股份？身为民运大佬，又被边控，为什么他可以随时进出中国？]({{site.baseurl}}/miles/transcript/2018/03/20180313-53477344)
 
 
 ## 頁面 98/111 [**<**]({{site.baseurl}}/miles/transcript/page97) [1]({{site.baseurl}}/miles/transcript/index) ... [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) **98** [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page99)

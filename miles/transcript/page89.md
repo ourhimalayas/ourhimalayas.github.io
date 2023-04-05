@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 89/111 [**<**]({{site.baseurl}}/miles/transcript/page88) [1]({{site.baseurl}}/miles/transcript/index) ... [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) **89** [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page90)
 
+[郭文贵2018年10月15日视频 20181015_1孟宏偉事件之後 好多人開始被抓]({{site.baseurl}}/miles/transcript/2018/10/20181015-53478362)
+
 [郭文贵2018年10月14日视频 20181014_2]({{site.baseurl}}/miles/transcript/2018/10/20181014-53478360)
 
 [郭文贵2018年10月14日视频 20181014_1]({{site.baseurl}}/miles/transcript/2018/10/20181014-53478356)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年10月4日第一次直播 20181004_1报平安直播 希望成功快点到来]({{site.baseurl}}/miles/transcript/2018/10/20181004-53482658)
 
 [郭文贵2018年10月3日视频 20181003_5]({{site.baseurl}}/miles/transcript/2018/10/20181003-53478320)
-
-[郭文贵2018年10月3日视频 20181003_4]({{site.baseurl}}/miles/transcript/2018/10/20181003-53478317)
 
 
 ## 頁面 89/111 [**<**]({{site.baseurl}}/miles/transcript/page88) [1]({{site.baseurl}}/miles/transcript/index) ... [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) **89** [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page90)

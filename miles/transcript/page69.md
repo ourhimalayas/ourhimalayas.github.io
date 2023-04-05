@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 69/111 [**<**]({{site.baseurl}}/miles/transcript/page68) [1]({{site.baseurl}}/miles/transcript/index) ... [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) **69** [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page70)
 
+[郭文贵2019年9月28日 20190928香港即将迎来关键一战，国庆就是CCP的末日，美将清算盗国贼资产，以美灭共，依法灭共，以共灭共的伟大时代已经来临]({{site.baseurl}}/miles/transcript/2019/09/20190928-53483204)
+
 [2019年9月27日文贵大直播全文字版：文贵，班农与Kathy女士直播：江泽民震惊发言：中国要出事！你们准备后路吧！！国庆阅兵没几个国家会参加，川普总统的弹劾程序和对中共的制裁将有大戏上演！]({{site.baseurl}}/miles/transcript/2019/09/20190927-53867898)
 
 [郭文贵2019年9月27日 20190927文贵班农与Kathy女士直播：江泽民震惊发言：中国要出事！你们准备后路吧！！国庆阅兵没几个国家会参加，川普总统的弹劾程序和对中共的制裁将有大戏上演！]({{site.baseurl}}/miles/transcript/2019/09/20190927-53483195)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年9月15日 20190915王岐山乱港七策坐镇指挥黑警察施暴港人，香港已成为恐惧之港，全球正义力量迅速集结，现在已是黑白对决（美国的白对CCP的黑）！我们目前以传播香港危机真相为核心！中共被灭]({{site.baseurl}}/miles/transcript/2019/09/20190915-53483120)
 
 [2019年9月14日文贵大直播全文字版：从共产党昨天在香港疯狂，说明了共产党是个彻彻底底的大流氓]({{site.baseurl}}/miles/transcript/2019/09/20190914-53847682)
-
-[郭文贵2019年9月14日 20190914尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？从共产党昨天在香港疯狂！说明了，共产党是个彻彻底底的大流氓集团．一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/09/20190914-53483095)
 
 
 ## 頁面 69/111 [**<**]({{site.baseurl}}/miles/transcript/page68) [1]({{site.baseurl}}/miles/transcript/index) ... [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) **69** [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page70)

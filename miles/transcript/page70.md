@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 70/111 [**<**]({{site.baseurl}}/miles/transcript/page69) [1]({{site.baseurl}}/miles/transcript/index) ... [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) **70** [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page71)
 
+[郭文贵2019年9月14日 20190914尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？从共产党昨天在香港疯狂！说明了，共产党是个彻彻底底的大流氓集团．一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/09/20190914-53483095)
+
 [2019年9月13日文贵大直播全文字版：与战友们分享第一个没有母亲的中秋节的感受]({{site.baseurl}}/miles/transcript/2019/09/20190913-53845230)
 
 [郭文贵2019年9月13日 20190913向战友们祝福中秋节快乐！与战友们分享第一个没有母亲的中秋节的感受！中秋团圆夜，灭共倒计时!]({{site.baseurl}}/miles/transcript/2019/09/20190913-53483085)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年9月4日直播 20190904“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!]({{site.baseurl}}/miles/transcript/2019/09/20190904-53483020)
 
 [2019年9月3日文贵大直播全文字版：第一次在华盛顿直播，谈9月3号CCP将真正对香港进行戒严计划，目前所有焦点都关注香港！]({{site.baseurl}}/miles/transcript/2019/09/20190903-53819161)
-
-[2019年9月3日文贵大直播全文字版：华盛顿直播：香港将是东西方大战导火线．什么是中共所谓的新型大国关系！]({{site.baseurl}}/miles/transcript/2019/09/20190903-53819121)
 
 
 ## 頁面 70/111 [**<**]({{site.baseurl}}/miles/transcript/page69) [1]({{site.baseurl}}/miles/transcript/index) ... [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) **70** [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page71)

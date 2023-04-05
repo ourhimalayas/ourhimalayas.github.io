@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 101/111 [**<**]({{site.baseurl}}/miles/transcript/page100) [1]({{site.baseurl}}/miles/transcript/index) ... [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) **101** [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page102)
 
+[郭文贵2018年2月7日第一次直播 20180207_1从海航王健的年终讲话看出海航及王岐山、孟建柱欲将他们的盗国行径变成习主席责任及国家行为、国家扩张战略、一带一路需要]({{site.baseurl}}/miles/transcript/2018/02/20180207-53483970)
+
 [郭文贵2018年2月6日第三次直播 20180206_3向大家报告关于今天2月6日取消与陈军先生见面的过程！]({{site.baseurl}}/miles/transcript/2018/02/20180206-53484050)
 
 [郭文贵2018年2月6日第一次直播 20180206_1有关河北高院院长卫彦明]({{site.baseurl}}/miles/transcript/2018/02/20180206-53483964)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年1月18日视频 20180118时间飞逝 文贵先生宠物狗snow的成长全记录]({{site.baseurl}}/miles/transcript/2018/01/20180118-53477351)
 
 [郭文贵2018年1月15日视频 20180115谈蓝金黄陈小平的夫人，孟建柱、王歧山一手策划假报习家财富]({{site.baseurl}}/miles/transcript/2018/01/20180115-53483963)
-
-[郭文贵2018年1月13日 20180113加拿大挺郭后援会2018年首次挺郭聚会（2）]({{site.baseurl}}/miles/transcript/2018/01/20180113-53484199)
 
 
 ## 頁面 101/111 [**<**]({{site.baseurl}}/miles/transcript/page100) [1]({{site.baseurl}}/miles/transcript/index) ... [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) **101** [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page102)

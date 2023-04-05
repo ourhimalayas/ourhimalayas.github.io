@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 76/111 [**<**]({{site.baseurl}}/miles/transcript/page75) [1]({{site.baseurl}}/miles/transcript/index) ... [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) **76** [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page77)
 
+[郭文贵2019年7月10日视频 20190710尊敬的战友们好．不要计较任何的名．利．不要评价香港的抗议运动的阶段性的得失……我们只有一个目标．灭共．其他都不重要，一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/07/20190710-53482895)
+
 [2019年7月9日直播全文字版：香港逃犯法为什么死亡了？香港还会有抗议吗？会实现双普选吗？]({{site.baseurl}}/miles/transcript/2019/07/20190709-53576475)
 
 [郭文贵2019年7月9日视频 20190709香港逃犯法为什么死亡了？香港还会有抗议吗？会实现双普选吗？]({{site.baseurl}}/miles/transcript/2019/07/20190709-53482880)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年7月2日视频 20190702_1据文贵了解和瞎蒙．G20会议．此次大版G20．是中美会议当中最紧张，最严肃．最奇怪．最没有确定性的．的双边会议！后面的故事．很多．该文贵开完庭后，详细向大家汇报，大利爆料革命…]({{site.baseurl}}/miles/transcript/2019/07/20190702-53478766)
 
 [2019年7月1日文贵在DC直播全文字版：讲香港七一大游行合集]({{site.baseurl}}/miles/transcript/2019/07/20190701-53563928)
-
-[郭文贵2019年7月1日视频 20190701_2香港昨天的游行，更加证明了港人不是靠黑手推动追求正义，而是港人抗拒共产党的恶法、和追求法治、自由、民主的力量，而自发的运动]({{site.baseurl}}/miles/transcript/2019/07/20190701-53478761)
 
 
 ## 頁面 76/111 [**<**]({{site.baseurl}}/miles/transcript/page75) [1]({{site.baseurl}}/miles/transcript/index) ... [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) **76** [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page77)

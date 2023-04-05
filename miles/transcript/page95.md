@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 95/111 [**<**]({{site.baseurl}}/miles/transcript/page94) [1]({{site.baseurl}}/miles/transcript/index) ... [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) **95** [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page96)
 
+[郭文贵2018年6月25日 20180625房峰辉为什么问蒂斯这个？一个美国战亡士兵价值值中扺国一个连退休士命的命钱！]({{site.baseurl}}/miles/transcript/2018/06/20180625-53483818)
+
 [郭文贵2018年6月23日视频 20180623镇江老兵维权幕后有高人，郭宝胜与王進忠]({{site.baseurl}}/miles/transcript/2018/06/20180623-53477204)
 
 [郭文贵2018年6月21日视频 20180621世界大局正在向反盗国贼的趋势发展]({{site.baseurl}}/miles/transcript/2018/06/20180621-53477199)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年5月17日视频 20180517谈马来西亚、委内瑞拉、信仰和理想]({{site.baseurl}}/miles/transcript/2018/05/20180517-53482402)
 
 [郭文贵2018年5月13日直播 20180513_1文贵的人生导师之一昨晚上仙鹤而去！！！????????????]({{site.baseurl}}/miles/transcript/2018/05/20180513-53477806)
-
-[郭文贵2018年5月12日视频 20180512在路德访谈节目中与95后海军陆战队队员深入交流]({{site.baseurl}}/miles/transcript/2018/05/20180512-53477185)
 
 
 ## 頁面 95/111 [**<**]({{site.baseurl}}/miles/transcript/page94) [1]({{site.baseurl}}/miles/transcript/index) ... [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) **95** [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page96)

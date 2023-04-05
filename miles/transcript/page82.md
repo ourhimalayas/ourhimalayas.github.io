@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 82/111 [**<**]({{site.baseurl}}/miles/transcript/page81) [1]({{site.baseurl}}/miles/transcript/index) ... [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) **82** [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page83)
 
+[郭文贵2019年4月7日视频 20190407美．欧．日．等将对中资国营．香港自贸协定．中共及香港官员的一系列的立法制栽．或调查．或列入黑名单．行动．将是中共灭亡的第一步！]({{site.baseurl}}/miles/transcript/2019/04/20190407-53482253)
+
 [郭文贵2019年4月6日视频 20190406班农先生与郭文贵先生谈“当委会”、中美贸易协议与法治基金]({{site.baseurl}}/miles/transcript/2019/04/20190406-53482234)
 
 [郭文贵2019年4月6日视频 20190406_2应战友们的要求．展示一下喜马拉雅大使馆直播间！这是战友们在美国纽约的家的的9分之一！]({{site.baseurl}}/miles/transcript/2019/04/20190406-53478577)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年2月23日视频 20190223郭文贵和班农谈宗教革命：爆梵蒂冈与中共的交易]({{site.baseurl}}/miles/transcript/2019/02/20190223-53481988)
 
 [郭文贵2019年2月22日谈摩根家族 20190222文贵报平安谈摩根家族及郭宝胜案情]({{site.baseurl}}/miles/transcript/2019/02/20190222-53481914)
-
-[郭文贵2019年2月22日直播 20190222_2连接调试]({{site.baseurl}}/miles/transcript/2019/02/20190222-53478112)
 
 
 ## 頁面 82/111 [**<**]({{site.baseurl}}/miles/transcript/page81) [1]({{site.baseurl}}/miles/transcript/index) ... [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) **82** [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page83)

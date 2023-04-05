@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 75/111 [**<**]({{site.baseurl}}/miles/transcript/page74) [1]({{site.baseurl}}/miles/transcript/index) ... [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) **75** [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page76)
 
+[2019年7月23日直播全文字版]({{site.baseurl}}/miles/transcript/2019/07/20190723-53672891)
+
 [2019年7月23日文贵大直播全文字版：李鹏为什么一见人就问89年当时你在哪？]({{site.baseurl}}/miles/transcript/2019/07/20190723-53684192)
 
 [郭文贵2019年7月23日第一次直播 20190723_1李鹏89年在哪里Why did Li Peng always ask whoever he met "Back in 1989, where were you when it ...]({{site.baseurl}}/miles/transcript/2019/07/20190723-53482868)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年7月11日视频 20190711_1本周星期六的直播．将改为本周星期天上午930！一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/07/20190711-53478798)
 
 [2019年7月10日直播全文字版：不要计较名利，不要评价香港的抗议运动的阶段性的得失，我们只有一个目标：灭共！]({{site.baseurl}}/miles/transcript/2019/07/20190710-53582308)
-
-[郭文贵2019年7月10日视频 20190710尊敬的战友们好．不要计较任何的名．利．不要评价香港的抗议运动的阶段性的得失……我们只有一个目标．灭共．其他都不重要，一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/07/20190710-53482895)
 
 
 ## 頁面 75/111 [**<**]({{site.baseurl}}/miles/transcript/page74) [1]({{site.baseurl}}/miles/transcript/index) ... [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) **75** [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page76)

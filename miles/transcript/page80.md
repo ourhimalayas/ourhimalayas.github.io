@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 80/111 [**<**]({{site.baseurl}}/miles/transcript/page79) [1]({{site.baseurl}}/miles/transcript/index) ... [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) **80** [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page81)
 
+[郭文贵2019年5月11日视频 20190511文贵谈中美贸易谈判失败的真正原因，台湾和香港人民的未来]({{site.baseurl}}/miles/transcript/2019/05/20190511-53482568)
+
 [郭文贵2019年5月11日视频 20190511_2你怎麼上來的啊Snow]({{site.baseurl}}/miles/transcript/2019/05/20190511-53478706)
 
 [郭文贵2019年5月10日50岁生日感言 20190510 郭文贵先生50岁生日，谈母亲，父母，家庭 The real reason for trade talks failing; The future of Taiwanese and Hong Kong people]({{site.baseurl}}/miles/transcript/2019/05/20190510-53482540)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年4月27日视频 20190427_2-(文貴完整版) 文贵、班农、路德直播：班农先生谈关于当前委的众多问题? 文貴談当前委在美国有什么重要影响力？揭露一带一路的本质]({{site.baseurl}}/miles/transcript/2019/04/20190427-53478656)
 
 [郭文贵2019年4月26日视频 20190426_1馬上就要出庭作證 沒時間蹦了, 一個露台花了五年還沒完工 真是慢工出細活啊]({{site.baseurl}}/miles/transcript/2019/04/20190426-53478648)
-
-[郭文贵2019年4月25日视频 20190425_1文贵先生谈“张健离世”（音频）]({{site.baseurl}}/miles/transcript/2019/04/20190425-53478643)
 
 
 ## 頁面 80/111 [**<**]({{site.baseurl}}/miles/transcript/page79) [1]({{site.baseurl}}/miles/transcript/index) ... [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) **80** [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page81)

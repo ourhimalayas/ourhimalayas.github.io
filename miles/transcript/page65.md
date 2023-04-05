@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 65/111 [**<**]({{site.baseurl}}/miles/transcript/page64) [1]({{site.baseurl}}/miles/transcript/index) ... [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) **65** [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page66)
 
+[2019年11月4日 郭文贵先生直播--四中全会是给香港的巨大礼物，CCP区块链挑战美国核心地位 全文字版]({{site.baseurl}}/miles/transcript/2019/11/20191104-53941054)
+
 [郭文贵2019年11月4日 20191104四中全会是给香港的巨大礼物，CCP区块链挑战美国核心地位]({{site.baseurl}}/miles/transcript/2019/11/20191104-53483340)
 
 [郭文贵2019年11月4日视频 20191104_2没有给SNOW 吃酸奶，他就生气了????……他太现实了]({{site.baseurl}}/miles/transcript/2019/11/20191104-53479125)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年10月26日 文贵和战友谈北京局势和四中全会 全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191026-53924902)
 
 [2019年10月26日文贵大直播全文版：十九大篡朝较量中错综复杂的关系 中南坑风暴一直在酝酿着]({{site.baseurl}}/miles/transcript/2019/10/20191026-53919845)
-
-[郭文贵2019年10月26日 20191026文贵和战友谈北京局势和四中]({{site.baseurl}}/miles/transcript/2019/10/20191026-53483262)
 
 
 ## 頁面 65/111 [**<**]({{site.baseurl}}/miles/transcript/page64) [1]({{site.baseurl}}/miles/transcript/index) ... [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) **65** [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page66)

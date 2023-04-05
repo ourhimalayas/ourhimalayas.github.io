@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 100/111 [**<**]({{site.baseurl}}/miles/transcript/page99) [1]({{site.baseurl}}/miles/transcript/index) ... [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) **100** [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page101)
 
+[郭文贵2018年2月25日直播 20180225_1郭文贵先生的船过总统桥小视频]({{site.baseurl}}/miles/transcript/2018/02/20180225-53477245)
+
 [郭文贵2018年2月23日直播 20180223_1谈Steve Wynn的价值两亿八千万美元的船]({{site.baseurl}}/miles/transcript/2018/02/20180223-53477236)
 
 [郭文贵2018年2月21日直播 20180221_2幾秒前被盗国贼宣传的一无是处的美帝国主义！咋这么自然！这么多别墅呢？而且都是私人拥有！ V]({{site.baseurl}}/miles/transcript/2018/02/20180221-53477225)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年2月8日直播 20180208_2温哥华援郭会上的激情演讲、首次披露与王岐山见面详情]({{site.baseurl}}/miles/transcript/2018/02/20180208-53476965)
 
 [郭文贵2018年2月7日第二次直播 20180207_2再谈陈军先生和流氓袁健斌，吴征陷害文贵！再次感谢战友们发来的有关河北高院和政法委书记犯罪腐败证据]({{site.baseurl}}/miles/transcript/2018/02/20180207-53484054)
-
-[郭文贵2018年2月7日第一次直播 20180207_1从海航王健的年终讲话看出海航及王岐山、孟建柱欲将他们的盗国行径变成习主席责任及国家行为、国家扩张战略、一带一路需要]({{site.baseurl}}/miles/transcript/2018/02/20180207-53483970)
 
 
 ## 頁面 100/111 [**<**]({{site.baseurl}}/miles/transcript/page99) [1]({{site.baseurl}}/miles/transcript/index) ... [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) **100** [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page101)

@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 97/111 [**<**]({{site.baseurl}}/miles/transcript/page96) [1]({{site.baseurl}}/miles/transcript/index) ... [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) **97** [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page98)
 
+[郭文贵2018年4月22日视频2 20180422_3那一天的美东战友聚会多么的美好！]({{site.baseurl}}/miles/transcript/2018/04/20180422-53477176)
+
 [郭文贵2018年4月21日视频 20180421文贵在此庄严地严肃地向中南坑里的某些：妖和怪们．致以衷心的道歉，文贵不会让你们失望的！]({{site.baseurl}}/miles/transcript/2018/04/20180421-53482360)
 
 [郭文贵2018年4月20日视频 20180420将爆中南坑里的老婆．女儿！的性丑闻！]({{site.baseurl}}/miles/transcript/2018/04/20180420-53482348)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年4月2日 20180402吴晓辉如果要是王岐山外甥女婿结果会如何？]({{site.baseurl}}/miles/transcript/2018/04/20180402-53483683)
 
 [郭文贵2018年4月2日视频 20180402_2我将向大家谈一下关于吴小晖和项俊波以及他们背后的真实故事]({{site.baseurl}}/miles/transcript/2018/04/20180402-53477166)
-
-[郭文贵2018年3月31日做客郭友之声 20180331郭友访谈--郭先生与小蚂蚁亲密接触（戊戌年 3月31日）]({{site.baseurl}}/miles/transcript/2018/03/20180331-53482084)
 
 
 ## 頁面 97/111 [**<**]({{site.baseurl}}/miles/transcript/page96) [1]({{site.baseurl}}/miles/transcript/index) ... [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) **97** [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page98)

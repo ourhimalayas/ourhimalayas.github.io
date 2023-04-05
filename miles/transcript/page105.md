@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 105/111 [**<**]({{site.baseurl}}/miles/transcript/page104) [1]({{site.baseurl}}/miles/transcript/index) ... [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) **105** [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) ... [**>**]({{site.baseurl}}/miles/transcript/page106)
 
+[郭文贵2017年9月13日视频 20170913姚依林王岐山孟建柱孙力军傅政华的生殖器治国首篇！姚依林与姚明瑞．刘呈杰．刘新扬的乱伦！刘呈杰的法人爹是谁？]({{site.baseurl}}/miles/transcript/2017/09/20170913-53483986)
+
 [郭文贵2017年9月13日视频 20170913_2一小时后爆盗国贼们的生殖器治国首篇]({{site.baseurl}}/miles/transcript/2017/09/20170913-53483577)
 
 [郭文贵2017年9月12日视频 20170912大家不要上了盗国贼们生殖器大战的当]({{site.baseurl}}/miles/transcript/2017/09/20170912-53483575)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年8月29日视频 20170829船上健身]({{site.baseurl}}/miles/transcript/2017/08/20170829-53483553)
 
 [郭文贵2017年8月28日 20170828文贵到底是不是国安特务，文贵与王艳平到底有没有乱伦]({{site.baseurl}}/miles/transcript/2017/08/20170828-53483924)
-
-[郭文贵2017年8月28日视频 20170828_2今天七夕情人节 我与太太今天在海滩上享受了一下午]({{site.baseurl}}/miles/transcript/2017/08/20170828-53483549)
 
 
 ## 頁面 105/111 [**<**]({{site.baseurl}}/miles/transcript/page104) [1]({{site.baseurl}}/miles/transcript/index) ... [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) **105** [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) ... [**>**]({{site.baseurl}}/miles/transcript/page106)

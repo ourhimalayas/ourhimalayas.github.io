@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 86/111 [**<**]({{site.baseurl}}/miles/transcript/page85) [1]({{site.baseurl}}/miles/transcript/index) ... [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) **86** [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page87)
 
+[郭文贵2018年12月19日视频 20181219改革開放40年大會確定要往回走 大家準備吃草吧]({{site.baseurl}}/miles/transcript/2018/12/20181219-53483694)
+
 [郭文贵2018年12月18日视频 20181218_1某部門已開始對過去在網路上造我的謠的人那個那個那個]({{site.baseurl}}/miles/transcript/2018/12/20181218-53478424)
 
 [郭文贵2018年12月17日视频 20181217关于昨天被删除的视频和路德Sara女]({{site.baseurl}}/miles/transcript/2018/12/20181217-53481431)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年11月24日视频 20181124_1]({{site.baseurl}}/miles/transcript/2018/11/20181124-53478538)
 
 [郭文贵2018年11月22日视频 20181122_1应很多战友的要求．录一个SNOW小视频！祝大家感恩节快乐！]({{site.baseurl}}/miles/transcript/2018/11/20181122-53478536)
-
-[郭文贵2018年11月21日视频 20181121丢掉放弃幻想，只要共产党存在一天我们就没有安全之日... 亲人员工们忘掉过去的文贵吧，现在的文贵，是承负着上天的使命和十四亿人民对我的寄托，我不能只为你们活着]({{site.baseurl}}/miles/transcript/2018/11/20181121-53482337)
 
 
 ## 頁面 86/111 [**<**]({{site.baseurl}}/miles/transcript/page85) [1]({{site.baseurl}}/miles/transcript/index) ... [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) **86** [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page87)

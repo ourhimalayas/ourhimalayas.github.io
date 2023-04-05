@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 99/111 [**<**]({{site.baseurl}}/miles/transcript/page98) [1]({{site.baseurl}}/miles/transcript/index) ... [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) **99** [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page100)
 
+[郭文贵2018年3月13日直播 20180313_2陈军拥有多少明镜股份？身为民运大佬，又被边控，为什么他可以随时进出中国？]({{site.baseurl}}/miles/transcript/2018/03/20180313-53477344)
+
 [郭文贵2018年3月13日直播 20180313_1上天赐予的又一个巨大的礼物 —美国新国务卿！对盗国贼将是巨大打击]({{site.baseurl}}/miles/transcript/2018/03/20180313-53477331)
 
 [郭文贵2018年3月12日视频第四部分 20180312_4关于将对吴征．杨澜．陈军等．谋害谣言威胁文贵等行为釆取的行动……感恩上天与战友．和这场天大的灾难．给了文贵一个新生命！]({{site.baseurl}}/miles/transcript/2018/03/20180312-53481877)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年2月26日直播 20180226_1我的律师团队强烈建议我从今天起开始闭嘴两个月……等待下一个革命事件的发生……他们今天一直问我为什么你有这样的生活．却还在冒这个危险？我的回答是]({{site.baseurl}}/miles/transcript/2018/02/20180226-53477252)
 
 [郭文贵2018年2月26日直播 20180226_5晚餐时有人恭祝我赢了]({{site.baseurl}}/miles/transcript/2018/02/20180226-53477157)
-
-[郭文贵2018年2月25日直播 20180225_1郭文贵先生的船过总统桥小视频]({{site.baseurl}}/miles/transcript/2018/02/20180225-53477245)
 
 
 ## 頁面 99/111 [**<**]({{site.baseurl}}/miles/transcript/page98) [1]({{site.baseurl}}/miles/transcript/index) ... [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) **99** [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page100)
