@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 100/111 [**<**]({{site.baseurl}}/miles/transcript/page99) [1]({{site.baseurl}}/miles/transcript/index) ... [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) **100** [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page101)
 
+[郭文贵2018年2月26日直播 20180226_1我的律师团队强烈建议我从今天起开始闭嘴两个月……等待下一个革命事件的发生……他们今天一直问我为什么你有这样的生活．却还在冒这个危险？我的回答是]({{site.baseurl}}/miles/transcript/2018/02/20180226-53477252)
+
+[郭文贵2018年2月26日直播 20180226_5晚餐时有人恭祝我赢了]({{site.baseurl}}/miles/transcript/2018/02/20180226-53477157)
+
 [郭文贵2018年2月25日直播 20180225_1郭文贵先生的船过总统桥小视频]({{site.baseurl}}/miles/transcript/2018/02/20180225-53477245)
 
 [郭文贵2018年2月23日直播 20180223_1谈Steve Wynn的价值两亿八千万美元的船]({{site.baseurl}}/miles/transcript/2018/02/20180223-53477236)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年2月9日第二次直播 20180209_2关于陈军在推特上的公开造假……说谎．文贵将在近日直播有关他的欺骗及骗人真！]({{site.baseurl}}/miles/transcript/2018/02/20180209-53484071)
 
 [郭文贵2018年2月8日 20180208文贵报平安视频，再谈陈军的虚伪与荒唐，及现在各方形势表明，中国的经济出现大问题，中国未来的一年将出现巨大的变数和不稳定; 习主席危险，盗国贼可能将成功，我们]({{site.baseurl}}/miles/transcript/2018/02/20180208-53484070)
-
-[郭文贵2018年2月8日直播 20180208_2温哥华援郭会上的激情演讲、首次披露与王岐山见面详情]({{site.baseurl}}/miles/transcript/2018/02/20180208-53476965)
-
-[郭文贵2018年2月7日第二次直播 20180207_2再谈陈军先生和流氓袁健斌，吴征陷害文贵！再次感谢战友们发来的有关河北高院和政法委书记犯罪腐败证据]({{site.baseurl}}/miles/transcript/2018/02/20180207-53484054)
 
 
 ## 頁面 100/111 [**<**]({{site.baseurl}}/miles/transcript/page99) [1]({{site.baseurl}}/miles/transcript/index) ... [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) **100** [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page101)

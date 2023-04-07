@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 84/111 [**<**]({{site.baseurl}}/miles/transcript/page83) [1]({{site.baseurl}}/miles/transcript/index) ... [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) **84** [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page85)
 
+[郭文贵2019年1月29日视频 20190129_3文贵看春晚特别定制的八套西装，11件衬衣，今天已经全部到了，这是劳．瑞奇特别为我们定做的！]({{site.baseurl}}/miles/transcript/2019/01/20190129-53478544)
+
+[郭文贵2019年1月28日视频 20190128_1身了吗？你们往身上浇水了吗？一切都是刚刚开始。]({{site.baseurl}}/miles/transcript/2019/01/20190128-53478537)
+
 [郭文贵2019年1月27日视频 20190127王岐山在达沃斯的讲话已经开始了世界的反习运动！]({{site.baseurl}}/miles/transcript/2019/01/20190127-53481853)
 
 [郭文贵2019年1月25日视频 20190125罗杰斯通感恩郭先生接受道歉]({{site.baseurl}}/miles/transcript/2019/01/20190125-53481844)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年1月12日视频 20190112_2早起準備接受90後的戰友楚門世界的採訪]({{site.baseurl}}/miles/transcript/2019/01/20190112-53478507)
 
 [郭文贵2019年1月11日视频 20190111中央電視台大樓整個設計本人全面參與, 班農將在春晚講述在白宮的親身經歷]({{site.baseurl}}/miles/transcript/2019/01/20190111-53482075)
-
-[郭文贵2019年1月11日视频 20190111_2國內現在都明白了, 甚麼反腐運動, 王八蛋反腐, 實際上都是滅口運動]({{site.baseurl}}/miles/transcript/2019/01/20190111-53478504)
-
-[郭文贵2019年1月10日视频 20190110文贵请战友投票决定：文贵看春晚包不包...]({{site.baseurl}}/miles/transcript/2019/01/20190110-53481644)
 
 
 ## 頁面 84/111 [**<**]({{site.baseurl}}/miles/transcript/page83) [1]({{site.baseurl}}/miles/transcript/index) ... [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) **84** [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page85)

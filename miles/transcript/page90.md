@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 90/111 [**<**]({{site.baseurl}}/miles/transcript/page89) [1]({{site.baseurl}}/miles/transcript/index) ... [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) **90** [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page91)
 
+[郭文贵2018年10月4日第一次直播 20181004_1报平安直播 希望成功快点到来]({{site.baseurl}}/miles/transcript/2018/10/20181004-53482658)
+
+[郭文贵2018年10月3日视频 20181003_5]({{site.baseurl}}/miles/transcript/2018/10/20181003-53478320)
+
 [郭文贵2018年10月3日视频 20181003_4]({{site.baseurl}}/miles/transcript/2018/10/20181003-53478317)
 
 [郭文贵2018年10月3日视频 20181003_3]({{site.baseurl}}/miles/transcript/2018/10/20181003-53478315)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年9月20日视频 20180920_2工作了17个小时. Snow还不睡觉!要等着我狗情胜人味, 比那些伪类强多了!]({{site.baseurl}}/miles/transcript/2018/09/20180920-53478279)
 
 [郭文贵2018年9月19日视频 20180919_1]({{site.baseurl}}/miles/transcript/2018/09/20180919-53478277)
-
-[郭文贵2018年9月18日视频 20180918_2選購西裝布料]({{site.baseurl}}/miles/transcript/2018/09/20180918-53478272)
-
-[郭文贵2018年9月18日视频 20180918_1]({{site.baseurl}}/miles/transcript/2018/09/20180918-53478268)
 
 
 ## 頁面 90/111 [**<**]({{site.baseurl}}/miles/transcript/page89) [1]({{site.baseurl}}/miles/transcript/index) ... [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) **90** [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page91)

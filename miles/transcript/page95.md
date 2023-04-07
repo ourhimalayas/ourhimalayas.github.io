@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 95/111 [**<**]({{site.baseurl}}/miles/transcript/page94) [1]({{site.baseurl}}/miles/transcript/index) ... [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) **95** [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page96)
 
+[郭文贵2018年6月27日直播 20180627_2一边抽雪茄一边直播（第一段）]({{site.baseurl}}/miles/transcript/2018/06/20180627-53477951)
+
+[郭文贵2018年6月27日视频 20180627_4在船上远眺曼哈顿]({{site.baseurl}}/miles/transcript/2018/06/20180627-53477208)
+
 [郭文贵2018年6月25日 20180625房峰辉为什么问蒂斯这个？一个美国战亡士兵价值值中扺国一个连退休士命的命钱！]({{site.baseurl}}/miles/transcript/2018/06/20180625-53483818)
 
 [郭文贵2018年6月23日视频 20180623镇江老兵维权幕后有高人，郭宝胜与王進忠]({{site.baseurl}}/miles/transcript/2018/06/20180623-53477204)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年5月22日视频第二部分 20180522_2谈委内瑞拉．马来西亚．是我们借鉴走向喜马拉雅的好榜样！岳文海的腐败！]({{site.baseurl}}/miles/transcript/2018/05/20180522-53483751)
 
 [郭文贵2018年5月22日视频第一部分 20180522_1谈与王岐山刘志华一起战斗的日子！]({{site.baseurl}}/miles/transcript/2018/05/20180522-53483738)
-
-[郭文贵2018年5月17日视频 20180517谈马来西亚、委内瑞拉、信仰和理想]({{site.baseurl}}/miles/transcript/2018/05/20180517-53482402)
-
-[郭文贵2018年5月13日直播 20180513_1文贵的人生导师之一昨晚上仙鹤而去！！！????????????]({{site.baseurl}}/miles/transcript/2018/05/20180513-53477806)
 
 
 ## 頁面 95/111 [**<**]({{site.baseurl}}/miles/transcript/page94) [1]({{site.baseurl}}/miles/transcript/index) ... [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) **95** [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page96)
