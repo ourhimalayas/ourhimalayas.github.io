@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 86/111 [**<**]({{site.baseurl}}/miles/transcript/page85) [1]({{site.baseurl}}/miles/transcript/index) ... [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) **86** [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page87)
 
+[郭文贵2018年12月22日直播 20181222谈中美两国夫妻关系及刘特佐是否会被孟建柱做掉 共产党在香港所谓的商政双轨制的控制手段]({{site.baseurl}}/miles/transcript/2018/12/20181222-53481456)
+
+[郭文贵2018年12月22日视频 20181222_2我與Snow和大家聊聊天]({{site.baseurl}}/miles/transcript/2018/12/20181222-53478450)
+
 [郭文贵2018年12月21日视频 20181221_1昨天美國司法部的行動還不是特別大的事 大事還沒開始呢 明年三月才開始 那時候可就不是亂扔刀叉這個級別的了]({{site.baseurl}}/miles/transcript/2018/12/20181221-53478449)
 
 [郭文贵2018年12月20日视频 20181220要對你的嫂子好 對你的弟妹好 你的運氣才會好]({{site.baseurl}}/miles/transcript/2018/12/20181220-53483696)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年11月26日视频 20181126_1马上就要起飞????去几个智库去演讲！会后再向战友们汇报！一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2018/11/20181126-53478547)
 
 [郭文贵2018年11月25日视频 20181125_3]({{site.baseurl}}/miles/transcript/2018/11/20181125-53478545)
-
-[郭文贵2018年11月25日视频 20181125_2]({{site.baseurl}}/miles/transcript/2018/11/20181125-53478543)
-
-[郭文贵2018年11月25日视频 20181125_1]({{site.baseurl}}/miles/transcript/2018/11/20181125-53478541)
 
 
 ## 頁面 86/111 [**<**]({{site.baseurl}}/miles/transcript/page85) [1]({{site.baseurl}}/miles/transcript/index) ... [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) **86** [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page87)

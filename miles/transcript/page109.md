@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 109/111 [**<**]({{site.baseurl}}/miles/transcript/page108) [1]({{site.baseurl}}/miles/transcript/index) ... [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) **109** [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page110)
 
+[郭文贵2017年6月3日视频 20170603盗国贼与国家的关系]({{site.baseurl}}/miles/transcript/2017/06/20170603-53483854)
+
+[郭文贵2017年6月1日视频 20170601]({{site.baseurl}}/miles/transcript/2017/06/20170601-53483842)
+
 [郭文贵2017年5月30日视频 20170530报行踪视频曝料川普总统酒店]({{site.baseurl}}/miles/transcript/2017/05/20170530-53483775)
 
 [郭文贵2017年5月29日关于王歧山 20170529关于王歧山]({{site.baseurl}}/miles/transcript/2017/05/20170529-53483837)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年5月11日视频 20170511]({{site.baseurl}}/miles/transcript/2017/05/20170511-53483840)
 
 [郭文贵2017年5月10日视频 20170510]({{site.baseurl}}/miles/transcript/2017/05/20170510-53483825)
-
-[郭文贵2017年5月9日视频 20170509]({{site.baseurl}}/miles/transcript/2017/05/20170509-53483806)
-
-[郭文贵2017年5月8日直播 20170508_1]({{site.baseurl}}/miles/transcript/2017/05/20170508-53482785)
 
 
 ## 頁面 109/111 [**<**]({{site.baseurl}}/miles/transcript/page108) [1]({{site.baseurl}}/miles/transcript/index) ... [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) **109** [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page110)

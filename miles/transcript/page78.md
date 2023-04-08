@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 78/111 [**<**]({{site.baseurl}}/miles/transcript/page77) [1]({{site.baseurl}}/miles/transcript/index) ... [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) **78** [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page79)
 
+[2019年6月16日直播全文字版：文贵如何看共产党在香港耍诈、使狠]({{site.baseurl}}/miles/transcript/2019/06/20190616-53555395)
+
+[郭文贵2019年6月16日视频 20190616_1在深圳珠海，香港中资大楼里的解放军埋伏．并没有撒啊，共产党正在何机破坏……制造社会动乱，栽赃香港人]({{site.baseurl}}/miles/transcript/2019/06/20190616-53478751)
+
 [郭文贵2019年6月15日视频 20190615郭先生緊急喊話香港616必須上街]({{site.baseurl}}/miles/transcript/2019/06/20190615-53482758)
 
 [2019年6月14日郭文贵先生直播全文听写：林郑月娥必须提出辞职，取消“逃犯条例”]({{site.baseurl}}/miles/transcript/2019/06/20190614-53537318)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年6月9日直播 20190609_1班农先生．与郭文贵和龚小夏女士．直播香港百万人抗议大游行9小时直播上部分！]({{site.baseurl}}/miles/transcript/2019/06/20190609-53482134)
 
 [郭文贵2019年6月8日视频 20190608香港6.9上街若能持续几天彻底改变香港]({{site.baseurl}}/miles/transcript/2019/06/20190608-53482529)
-
-[郭文贵2019年6月8日视频 20190608_2大家看看這些設備都不如路德先生的一個手指頭 中國人的智慧太沒問題了]({{site.baseurl}}/miles/transcript/2019/06/20190608-53478687)
-
-[郭文贵2019年6月7日视频 20190607香港的事真搞大了]({{site.baseurl}}/miles/transcript/2019/06/20190607-53482525)
 
 
 ## 頁面 78/111 [**<**]({{site.baseurl}}/miles/transcript/page77) [1]({{site.baseurl}}/miles/transcript/index) ... [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) **78** [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page79)

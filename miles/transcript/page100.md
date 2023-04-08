@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 100/111 [**<**]({{site.baseurl}}/miles/transcript/page99) [1]({{site.baseurl}}/miles/transcript/index) ... [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) **100** [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page101)
 
+[郭文贵2018年2月26日直播 20180226_3既然14亿人无男儿！那就寄托花木兰吧！???????????? Via：郭媒体]({{site.baseurl}}/miles/transcript/2018/02/20180226-53477268)
+
+[郭文贵2018年2月26日直播 20180226_2我早已经看透了物质美好生活的本质！但我曾重珍惜感恩着我拥有的一切！可我心里时时刻刻都在想着盗国贼．偷我们的女人．钱．未来的一个个我经历的事情！]({{site.baseurl}}/miles/transcript/2018/02/20180226-53477262)
+
 [郭文贵2018年2月26日直播 20180226_1我的律师团队强烈建议我从今天起开始闭嘴两个月……等待下一个革命事件的发生……他们今天一直问我为什么你有这样的生活．却还在冒这个危险？我的回答是]({{site.baseurl}}/miles/transcript/2018/02/20180226-53477252)
 
 [郭文贵2018年2月26日直播 20180226_5晚餐时有人恭祝我赢了]({{site.baseurl}}/miles/transcript/2018/02/20180226-53477157)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年2月10日第五次直播 20180210_5大骗子吴征的汉奸爷爷，真的救过几万个犹太人么？]({{site.baseurl}}/miles/transcript/2018/02/20180210-53483972)
 
 [郭文贵2018年2月9日第一次直播 20180209_1从美国朋友口中得知杨洁篪访问美国正式通知美国．王岐山将代表中国作为国家副主席全面处理，中美关系????????????这是真的吗？如果是真的．文贵将决定将在纽约设24小时＂灵堂＂．祈祷．感谢上]({{site.baseurl}}/miles/transcript/2018/02/20180209-53484072)
-
-[郭文贵2018年2月9日第二次直播 20180209_2关于陈军在推特上的公开造假……说谎．文贵将在近日直播有关他的欺骗及骗人真！]({{site.baseurl}}/miles/transcript/2018/02/20180209-53484071)
-
-[郭文贵2018年2月8日 20180208文贵报平安视频，再谈陈军的虚伪与荒唐，及现在各方形势表明，中国的经济出现大问题，中国未来的一年将出现巨大的变数和不稳定; 习主席危险，盗国贼可能将成功，我们]({{site.baseurl}}/miles/transcript/2018/02/20180208-53484070)
 
 
 ## 頁面 100/111 [**<**]({{site.baseurl}}/miles/transcript/page99) [1]({{site.baseurl}}/miles/transcript/index) ... [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) **100** [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page101)

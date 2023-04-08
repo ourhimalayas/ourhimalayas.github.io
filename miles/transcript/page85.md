@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 85/111 [**<**]({{site.baseurl}}/miles/transcript/page84) [1]({{site.baseurl}}/miles/transcript/index) ... [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) **85** [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page86)
 
+[郭文贵2019年1月12日视频 20190112_2早起準備接受90後的戰友楚門世界的採訪]({{site.baseurl}}/miles/transcript/2019/01/20190112-53478507)
+
+[郭文贵2019年1月11日视频 20190111中央電視台大樓整個設計本人全面參與, 班農將在春晚講述在白宮的親身經歷]({{site.baseurl}}/miles/transcript/2019/01/20190111-53482075)
+
 [郭文贵2019年1月11日视频 20190111_2國內現在都明白了, 甚麼反腐運動, 王八蛋反腐, 實際上都是滅口運動]({{site.baseurl}}/miles/transcript/2019/01/20190111-53478504)
 
 [郭文贵2019年1月10日视频 20190110文贵请战友投票决定：文贵看春晚包不包...]({{site.baseurl}}/miles/transcript/2019/01/20190110-53481644)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年12月24日视频 20181224_1文贵衷心祝愿所有的伟大的战友及家人！14亿同胞！全世界的人们圣诞快乐]({{site.baseurl}}/miles/transcript/2018/12/20181224-53478457)
 
 [郭文贵2018年12月23日视频 20181223_1我们这两天加班，完成了对Sam Nunberg 和吴征的重新起诉，索赔，这是个大事！媒体高度关注！]({{site.baseurl}}/miles/transcript/2018/12/20181223-53478453)
-
-[郭文贵2018年12月22日直播 20181222谈中美两国夫妻关系及刘特佐是否会被孟建柱做掉 共产党在香港所谓的商政双轨制的控制手段]({{site.baseurl}}/miles/transcript/2018/12/20181222-53481456)
-
-[郭文贵2018年12月22日视频 20181222_2我與Snow和大家聊聊天]({{site.baseurl}}/miles/transcript/2018/12/20181222-53478450)
 
 
 ## 頁面 85/111 [**<**]({{site.baseurl}}/miles/transcript/page84) [1]({{site.baseurl}}/miles/transcript/index) ... [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) **85** [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page86)

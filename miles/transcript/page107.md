@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 107/111 [**<**]({{site.baseurl}}/miles/transcript/page106) [1]({{site.baseurl}}/miles/transcript/index) ... [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) **107** [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page108)
 
+[郭文贵2017年8月12日直播 20170812_1王岐山北戴河恩威并用惹党内非议，正为刘呈杰贯君找爹妈，19大后文贵放大招]({{site.baseurl}}/miles/transcript/2017/08/20170812-53483506)
+
+[郭文贵2017年8月11日直播 20170811_1船上那天说多了，刘呈杰，贯君的爹们正在北戴河夺权呢]({{site.baseurl}}/miles/transcript/2017/08/20170811-53483508)
+
 [郭文贵2017年8月9日第一次直播 20170809_1试试网络：一个台湾老朋友一个国内老领导与我通过电话后的感受]({{site.baseurl}}/miles/transcript/2017/08/20170809-53483912)
 
 [郭文贵2017年8月9日第二次直播 20170809_2报平安直播---关于四川地震 &#124; 海航贯军刘呈杰的爹]({{site.baseurl}}/miles/transcript/2017/08/20170809-53483909)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年7月15日 20170715关于范冰冰起诉．海航20万亿线]({{site.baseurl}}/miles/transcript/2017/07/20170715-53483919)
 
 [郭文贵2017年7月15日直播 20170715_2关于范冰冰起诉．海航20万亿线索的来源及美国灯塔报纸采访的回复]({{site.baseurl}}/miles/transcript/2017/07/20170715-53482765)
-
-[郭文贵2017年7月12日视频 20170712Snow最活泼的一次. 转自郭文贵7月12号推特视频.]({{site.baseurl}}/miles/transcript/2017/07/20170712-53483523)
-
-[郭文贵2017年7月10日王岐山家族 20170710王岐山家族与海航787等多架私人飞机的关系，及千次飞行记录的真实来由！]({{site.baseurl}}/miles/transcript/2017/07/20170710-53484116)
 
 
 ## 頁面 107/111 [**<**]({{site.baseurl}}/miles/transcript/page106) [1]({{site.baseurl}}/miles/transcript/index) ... [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) **107** [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page108)
