@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 93/111 [**<**]({{site.baseurl}}/miles/transcript/page92) [1]({{site.baseurl}}/miles/transcript/index) ... [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) **93** [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page94)
 
+[郭文贵2018年8月16日第三次直播 20180816_3台湾香港等地区的人民的安全．人权．尊严．经济．受到了严重威胁时有权寻求独立．人权生存权大于主权！（连续二）]({{site.baseurl}}/miles/transcript/2018/08/20180816-53482502)
+
 [郭文贵2018年8月16日第一次直播 20180816_1文贵即不是披着羊皮的狼更不是穿着狼皮的羊！]({{site.baseurl}}/miles/transcript/2018/08/20180816-53482470)
 
 [郭文贵2018年8月16日第二次直播 20180816_2台湾香港等地区的人民的安全．人权．尊严．经济．受到了严重威胁时有权寻求独立．人权生存权大于主权！（连续二）]({{site.baseurl}}/miles/transcript/2018/08/20180816-53482467)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年8月7日视频 20180807_3今天太有成就感了，喝茅台吃羊排奖励自己！]({{site.baseurl}}/miles/transcript/2018/08/20180807-53477230)
 
 [郭文贵2018年8月6日视频 20180806文贵致王健夫人及兄王伟先生的提示！法国这个与王健一起最后晚餐的女人！]({{site.baseurl}}/miles/transcript/2018/08/20180806-53482450)
-
-[郭文贵2018年8月6日直播 20180806_2晚餐朋友的家的入口都这么大！隔壁邻居却是一个中国某政治局委员情人的家！天理何在呀！]({{site.baseurl}}/miles/transcript/2018/08/20180806-53478103)
 
 
 ## 頁面 93/111 [**<**]({{site.baseurl}}/miles/transcript/page92) [1]({{site.baseurl}}/miles/transcript/index) ... [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) **93** [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page94)

@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 92/111 [**<**]({{site.baseurl}}/miles/transcript/page91) [1]({{site.baseurl}}/miles/transcript/index) ... [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) **92** [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page93)
 
+[郭文贵2018年9月8日直播 20180908_2]({{site.baseurl}}/miles/transcript/2018/09/20180908-53478206)
+
 [郭文贵2018年9月8日直播 20180908_1文贵用行动．莲花西瓜刀法感谢杨建利．韩涟潮先生！伟大的亲爱的战友们！感恩伟大的美国！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/09/20180908-53478203)
 
 [郭文贵2018年9月7日视频 20180907文贵申请政庇一周年！与战友们分享香港司法的危害与黑暗的事实！]({{site.baseurl}}/miles/transcript/2018/09/20180907-53482528)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年8月18日视频 20180818_2Snow今天要去与女朋友约会了]({{site.baseurl}}/miles/transcript/2018/08/20180818-53477255)
 
 [郭文贵2018年8月17日 20180817郭文贵曾经经历的中国主持人名星被强迫变态玩弄的血恤的7夕节！]({{site.baseurl}}/miles/transcript/2018/08/20180817-53483668)
-
-[郭文贵2018年8月16日第三次直播 20180816_3台湾香港等地区的人民的安全．人权．尊严．经济．受到了严重威胁时有权寻求独立．人权生存权大于主权！（连续二）]({{site.baseurl}}/miles/transcript/2018/08/20180816-53482502)
 
 
 ## 頁面 92/111 [**<**]({{site.baseurl}}/miles/transcript/page91) [1]({{site.baseurl}}/miles/transcript/index) ... [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) **92** [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page93)

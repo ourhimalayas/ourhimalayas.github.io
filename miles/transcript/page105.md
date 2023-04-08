@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 105/111 [**<**]({{site.baseurl}}/miles/transcript/page104) [1]({{site.baseurl}}/miles/transcript/index) ... [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) **105** [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) ... [**>**]({{site.baseurl}}/miles/transcript/page106)
 
+[郭文贵2017年9月20日视频 20170920政法王最后一个工作会议 人民满意度提高？]({{site.baseurl}}/miles/transcript/2017/09/20170920-53483584)
+
 [郭文贵2017年9月19日明镜专访第六期 20170919]({{site.baseurl}}/miles/transcript/2017/09/20170919-53484075)
 
 [郭文贵2017年9月18日视频 20170918在安全屋准备全球发布会资料 担心中国大乱]({{site.baseurl}}/miles/transcript/2017/09/20170918-53483583)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年9月1日视频 20170901中英 关于孟建柱和孙立军盗国第一集！是谁杀了令计划的儿子．令谷？是谁帮助江绵恒．孟的母亲等换了几次器官？是谁又杀了手术及知情者？为了器官配对．按需杀了多少人]({{site.baseurl}}/miles/transcript/2017/09/20170901-53484166)
 
 [郭文贵2017年9月1日视频 20170901_2让盗国贼看看把我们当猪狗的代价是什么！]({{site.baseurl}}/miles/transcript/2017/09/20170901-53483558)
-
-[郭文贵2017年8月31日 20170831就近况回答明镜电视追问]({{site.baseurl}}/miles/transcript/2017/08/20170831-53484302)
 
 
 ## 頁面 105/111 [**<**]({{site.baseurl}}/miles/transcript/page104) [1]({{site.baseurl}}/miles/transcript/index) ... [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) **105** [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) ... [**>**]({{site.baseurl}}/miles/transcript/page106)

@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 66/111 [**<**]({{site.baseurl}}/miles/transcript/page65) [1]({{site.baseurl}}/miles/transcript/index) ... [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) **66** [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page67)
 
+[郭文贵2019年10月27日视频 20191027试直播与战友闲聊]({{site.baseurl}}/miles/transcript/2019/10/20191027-53483275)
+
 [郭文贵2019年10月27日视频 20191027_2此时此刻的纽约．正在下着毛毛雨．和临近秋天的中央公园．以及最现代化的摩天大楼．相应成画．浪漫至极]({{site.baseurl}}/miles/transcript/2019/10/20191027-53479094)
 
 [2019年10月27日文贵大直播全文字版：与战友闲聊]({{site.baseurl}}/miles/transcript/2019/10/20191027-53925834)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年10月20日视频 20191020_1大家分享纽约雨天船上时光]({{site.baseurl}}/miles/transcript/2019/10/20191020-53479075)
 
 [2019年10月18日文贵大直播全文字版：郭先生与战友们聊天：美国引领全球反共，港人宁死不屈，是反共先锋！]({{site.baseurl}}/miles/transcript/2019/10/20191018-53912078)
-
-[郭文贵2019年10月18日 20191018美国引领全球反共，港人宁死不屈，是反共先锋！]({{site.baseurl}}/miles/transcript/2019/10/20191018-53483191)
 
 
 ## 頁面 66/111 [**<**]({{site.baseurl}}/miles/transcript/page65) [1]({{site.baseurl}}/miles/transcript/index) ... [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) **66** [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page67)

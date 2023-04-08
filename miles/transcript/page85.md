@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 85/111 [**<**]({{site.baseurl}}/miles/transcript/page84) [1]({{site.baseurl}}/miles/transcript/index) ... [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) **85** [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page86)
 
+[郭文贵2019年1月12日 20190112接受《楚门看世界采访》老百姓怕共产党，共产党怕洋人 9，有钱人欺负穷人，但是怕政府；官员怕中纪委，中纪委怕证据 10，陈刚是中国政坛唯一横跨三届的官员 11 张海]({{site.baseurl}}/miles/transcript/2019/01/20190112-53481693)
+
 [郭文贵2019年1月12日视频 20190112_2早起準備接受90後的戰友楚門世界的採訪]({{site.baseurl}}/miles/transcript/2019/01/20190112-53478507)
 
 [郭文贵2019年1月11日视频 20190111中央電視台大樓整個設計本人全面參與, 班農將在春晚講述在白宮的親身經歷]({{site.baseurl}}/miles/transcript/2019/01/20190111-53482075)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年12月26日视频 20181226_1辽宁沈阳对罚款600亿人民币维持原判．限期30天内交罚款！文贵的三个压力二个高兴！]({{site.baseurl}}/miles/transcript/2018/12/20181226-53478460)
 
 [郭文贵2018年12月24日视频 20181224_1文贵衷心祝愿所有的伟大的战友及家人！14亿同胞！全世界的人们圣诞快乐]({{site.baseurl}}/miles/transcript/2018/12/20181224-53478457)
-
-[郭文贵2018年12月23日视频 20181223_1我们这两天加班，完成了对Sam Nunberg 和吴征的重新起诉，索赔，这是个大事！媒体高度关注！]({{site.baseurl}}/miles/transcript/2018/12/20181223-53478453)
 
 
 ## 頁面 85/111 [**<**]({{site.baseurl}}/miles/transcript/page84) [1]({{site.baseurl}}/miles/transcript/index) ... [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) **85** [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page86)

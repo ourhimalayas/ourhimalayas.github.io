@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 74/111 [**<**]({{site.baseurl}}/miles/transcript/page73) [1]({{site.baseurl}}/miles/transcript/index) ... [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) **74** [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page75)
 
+[郭文贵2019年7月31日第一次直播 20190731_1爆猛料遭黑客疯狂攻击]({{site.baseurl}}/miles/transcript/2019/07/20190731-53482920)
+
 [郭文贵2019年7月31日第二次直播 20190731_3上海西郊宾馆开启共产党死亡第二战场]({{site.baseurl}}/miles/transcript/2019/07/20190731-53482915)
 
 [郭文贵2019年7月31日视频 20190731_2我们的Snow 躺在地上耍赖要求文贵 给他挠痒痒。我不理他．他就躺着那里装作睡着]({{site.baseurl}}/miles/transcript/2019/07/20190731-53478869)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年7月26日文贵大直播全文字版： 江志成这个小鳖孙 和孙力军最近在干啥]({{site.baseurl}}/miles/transcript/2019/07/20190726-53702516)
 
 [郭文贵2019年7月26日视频 20190726和战友分享船上时光]({{site.baseurl}}/miles/transcript/2019/07/20190726-53482894)
-
-[郭文贵2019年7月26日视频 20190726_2再谈台江志成和孙力军合作．抢夺盘古大观龙头……感谢法院的战友告诉我．他们的抢劫计划……一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/07/20190726-53478845)
 
 
 ## 頁面 74/111 [**<**]({{site.baseurl}}/miles/transcript/page73) [1]({{site.baseurl}}/miles/transcript/index) ... [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) **74** [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page75)

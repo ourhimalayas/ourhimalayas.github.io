@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 73/111 [**<**]({{site.baseurl}}/miles/transcript/page72) [1]({{site.baseurl}}/miles/transcript/index) ... [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) **73** [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page74)
 
+[郭文贵2019年8月11日视频 20190811Mr. Miles Kwok live stream: please focus your attention on Hong Kong, in order to stop...]({{site.baseurl}}/miles/transcript/2019/08/20190811-53482997)
+
 [2019年8月10日《文贵大直播》全文字版：今天是个好日子，开启灭共第三战场]({{site.baseurl}}/miles/transcript/2019/08/20190810-53729835)
 
 [郭文贵2019年8月10日视频 20190810Today is a good day, Miles proudly announcing from the "bed": our Exposé Revolution...]({{site.baseurl}}/miles/transcript/2019/08/20190810-53482982)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年7月31日文贵大直播全文字版：爆猛料遭黑客疯狂攻击]({{site.baseurl}}/miles/transcript/2019/07/20190731-53702445)
 
 [2019年7月31日《文贵大直播》全文字版：乱聊上海西郊宾馆，开启CCP死亡第二战场]({{site.baseurl}}/miles/transcript/2019/07/20190731-53733598)
-
-[郭文贵2019年7月31日第一次直播 20190731_1爆猛料遭黑客疯狂攻击]({{site.baseurl}}/miles/transcript/2019/07/20190731-53482920)
 
 
 ## 頁面 73/111 [**<**]({{site.baseurl}}/miles/transcript/page72) [1]({{site.baseurl}}/miles/transcript/index) ... [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) **73** [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page74)

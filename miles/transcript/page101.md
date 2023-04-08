@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 101/111 [**<**]({{site.baseurl}}/miles/transcript/page100) [1]({{site.baseurl}}/miles/transcript/index) ... [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) **101** [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page102)
 
+[郭文贵2018年2月9日第一次直播 20180209_1从美国朋友口中得知杨洁篪访问美国正式通知美国．王岐山将代表中国作为国家副主席全面处理，中美关系????????????这是真的吗？如果是真的．文贵将决定将在纽约设24小时＂灵堂＂．祈祷．感谢上]({{site.baseurl}}/miles/transcript/2018/02/20180209-53484072)
+
 [郭文贵2018年2月9日第二次直播 20180209_2关于陈军在推特上的公开造假……说谎．文贵将在近日直播有关他的欺骗及骗人真！]({{site.baseurl}}/miles/transcript/2018/02/20180209-53484071)
 
 [郭文贵2018年2月8日 20180208文贵报平安视频，再谈陈军的虚伪与荒唐，及现在各方形势表明，中国的经济出现大问题，中国未来的一年将出现巨大的变数和不稳定; 习主席危险，盗国贼可能将成功，我们]({{site.baseurl}}/miles/transcript/2018/02/20180208-53484070)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年1月28日视频 20180128_2Snow太可爱了]({{site.baseurl}}/miles/transcript/2018/01/20180128-53477374)
 
 [郭文贵2018年1月27日视频 20180127尊敬的战友们你们好，你们健身了吗]({{site.baseurl}}/miles/transcript/2018/01/20180127-53477366)
-
-[郭文贵2018年1月21日直播 20180121_1]({{site.baseurl}}/miles/transcript/2018/01/20180121-53482787)
 
 
 ## 頁面 101/111 [**<**]({{site.baseurl}}/miles/transcript/page100) [1]({{site.baseurl}}/miles/transcript/index) ... [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) **101** [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page102)

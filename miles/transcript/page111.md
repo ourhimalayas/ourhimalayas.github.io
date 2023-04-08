@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 111/111 [**<**]({{site.baseurl}}/miles/transcript/page110) [1]({{site.baseurl}}/miles/transcript/index) ... [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) **111**
 
+[郭文贵2017年4月19日视频 20170419VOA 专访]({{site.baseurl}}/miles/transcript/2017/04/20170419-53483710)
+
 [郭文贵2017年3月8日明镜专访第二期 20170308《法治與社會》第7期]({{site.baseurl}}/miles/transcript/2017/03/20170308-53484424)
 
 [郭文贵2017年3月5日视频 20170305韦石与郭文贵会面全程实拍]({{site.baseurl}}/miles/transcript/2017/03/20170305-53477270)

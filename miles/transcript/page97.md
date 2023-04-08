@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 97/111 [**<**]({{site.baseurl}}/miles/transcript/page96) [1]({{site.baseurl}}/miles/transcript/index) ... [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) **97** [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page98)
 
+[郭文贵2018年4月24日视频 20180424_3文汇怎么造的假文件呢？详情，请看现在的路徳专访！文贵己经提供了部分信息给路德先生了！一切都是刚刚开始！愚蠢的盗国贼．又给文贵送大礼了！]({{site.baseurl}}/miles/transcript/2018/04/20180424-53477408)
+
 [郭文贵2018年4月24日视频 20180424_2Guo Wengui's statement on the Persecution of Mr Zhiyu Chen and Zhiheng Chen by the Chin]({{site.baseurl}}/miles/transcript/2018/04/20180424-53477402)
 
 [郭文贵2018年4月23日视频 20180423与陈志煜讨论某机密文件之真伪的通话录音以及另两个短视频全文听写]({{site.baseurl}}/miles/transcript/2018/04/20180423-53482324)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年4月6日视频 20180406谈王岐山抓吴小晖是打邓家威胁美国总统的一箭多雕之计]({{site.baseurl}}/miles/transcript/2018/04/20180406-53482282)
 
 [郭文贵2018年4月5日视频 20180405告诉您吴小晖飞机上的牛人是谁]({{site.baseurl}}/miles/transcript/2018/04/20180405-53482232)
-
-[郭文贵2018年4月4日视频 20180404吴晓辉的飞机上藏着＂核武器＂！]({{site.baseurl}}/miles/transcript/2018/04/20180404-53482140)
 
 
 ## 頁面 97/111 [**<**]({{site.baseurl}}/miles/transcript/page96) [1]({{site.baseurl}}/miles/transcript/index) ... [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) **97** [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page98)

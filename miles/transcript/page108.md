@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 108/111 [**<**]({{site.baseurl}}/miles/transcript/page107) [1]({{site.baseurl}}/miles/transcript/index) ... [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) **108** [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page109)
 
+[郭文贵2017年7月15日直播 20170715_2关于范冰冰起诉．海航20万亿线索的来源及美国灯塔报纸采访的回复]({{site.baseurl}}/miles/transcript/2017/07/20170715-53482765)
+
 [郭文贵2017年7月12日视频 20170712Snow最活泼的一次. 转自郭文贵7月12号推特视频.]({{site.baseurl}}/miles/transcript/2017/07/20170712-53483523)
 
 [郭文贵2017年7月10日王岐山家族 20170710王岐山家族与海航787等多架私人飞机的关系，及千次飞行记录的真实来由！]({{site.baseurl}}/miles/transcript/2017/07/20170710-53484116)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年6月8日直播 20170608_1明鏡專訪郭文貴對盤古案的期待 60分]({{site.baseurl}}/miles/transcript/2017/06/20170608-53482753)
 
 [郭文贵2017年6月7日视频 20170607推特报平安]({{site.baseurl}}/miles/transcript/2017/06/20170607-53483780)
-
-[郭文贵2017年6月6日王歧山2完整版 20170606]({{site.baseurl}}/miles/transcript/2017/06/20170606-53483858)
 
 
 ## 頁面 108/111 [**<**]({{site.baseurl}}/miles/transcript/page107) [1]({{site.baseurl}}/miles/transcript/index) ... [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) **108** [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page109)

@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 79/111 [**<**]({{site.baseurl}}/miles/transcript/page78) [1]({{site.baseurl}}/miles/transcript/index) ... [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) **79** [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page80)
 
+[郭文贵2019年6月8日视频 20190608香港6.9上街若能持续几天彻底改变香港]({{site.baseurl}}/miles/transcript/2019/06/20190608-53482529)
+
 [郭文贵2019年6月8日视频 20190608_2大家看看這些設備都不如路德先生的一個手指頭 中國人的智慧太沒問題了]({{site.baseurl}}/miles/transcript/2019/06/20190608-53478687)
 
 [郭文贵2019年6月7日视频 20190607香港的事真搞大了]({{site.baseurl}}/miles/transcript/2019/06/20190607-53482525)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年5月18日 20190518爆料王建之死原视频！世界上谁都没有]({{site.baseurl}}/miles/transcript/2019/05/20190518-53482602)
 
 [郭文贵2019年5月16日视频 20190516_2川普回到紐約 將宴請誰呢 大家都猜是七哥]({{site.baseurl}}/miles/transcript/2019/05/20190516-53478716)
-
-[郭文贵2019年5月16日视频 20190516_1西藏新疆香港台灣的同胞們 你們千萬不要放棄 我們將迎來偉大的時刻]({{site.baseurl}}/miles/transcript/2019/05/20190516-53478713)
 
 
 ## 頁面 79/111 [**<**]({{site.baseurl}}/miles/transcript/page78) [1]({{site.baseurl}}/miles/transcript/index) ... [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) **79** [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page80)

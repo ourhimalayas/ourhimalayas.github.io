@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 77/111 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page78)
 
+[郭文贵2019年7月3日视频 20190703_2伪民运为什么敢在法院侮辱威胁文贵 高清部分内容]({{site.baseurl}}/miles/transcript/2019/07/20190703-53478081)
+
 [2019年7月2日直播全文字版：此次大阪G20是中美会议当中最紧张、最严肃、最奇怪、最没有确定性的的双边会议]({{site.baseurl}}/miles/transcript/2019/07/20190702-53574108)
 
 [郭文贵2019年7月2日视频 20190702_2文贵与班农在白宫北侧．谈今天打赢夏畜生诽谤案的重要标志性意义……这是个改变美国法律历史的事件]({{site.baseurl}}/miles/transcript/2019/07/20190702-53478771)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年6月18日视频 20190618关于6月21日的再次示威行动]({{site.baseurl}}/miles/transcript/2019/06/20190618-53482788)
 
 [香港时间2019年6月17日文贵先生上午直播全文字版： Hong Kong Live 《战友同行》]({{site.baseurl}}/miles/transcript/2019/06/20190617-53557443)
-
-[郭文贵2019年6月17日视频 20190617支持香港反送中抗议]({{site.baseurl}}/miles/transcript/2019/06/20190617-53482778)
 
 
 ## 頁面 77/111 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page78)

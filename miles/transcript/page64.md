@@ -35,6 +35,8 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年11月12日视频 20191112关于香港最新局势紧急直播]({{site.baseurl}}/miles/transcript/2019/11/20191112-53483436)
 
+[2019年11月11日文贵大直播全文字版：文贵与班农先生紧急直播关于香港]({{site.baseurl}}/miles/transcript/2019/11/20191111-53948364)
+
 [郭文贵2019年11月11日 20191111与班农先生紧急直播关于香港]({{site.baseurl}}/miles/transcript/2019/11/20191111-53483430)
 
 [2019年11月10日文贵大直播全文字版：中共区块链就是私块链; 香港打的信息战也就是爆料革命的媒体战]({{site.baseurl}}/miles/transcript/2019/11/20191110-53947995)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年11月7日文贵大直播全文字版：中国现状和大清灭亡前一样；十几家基金公司相聚曼哈顿，一致决定从香港全面撤资]({{site.baseurl}}/miles/transcript/2019/11/20191107-53946213)
 
 [郭文贵2019年11月7日 20191107中国现状和大清灭亡前一样；十几家基金公司相聚曼哈顿，一致决定从香港全面撤资]({{site.baseurl}}/miles/transcript/2019/11/20191107-53483409)
-
-[郭文贵2019年11月6日第一次直播 20191106_1“文贵和路德在喜马拉雅大使馆直播”下部]({{site.baseurl}}/miles/transcript/2019/11/20191106-53483384)
 
 
 ## 頁面 64/111 [**<**]({{site.baseurl}}/miles/transcript/page63) [1]({{site.baseurl}}/miles/transcript/index) ... [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) **64** [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page65)

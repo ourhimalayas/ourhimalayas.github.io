@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 87/111 [**<**]({{site.baseurl}}/miles/transcript/page86) [1]({{site.baseurl}}/miles/transcript/index) ... [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) **87** [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page88)
 
+[郭文贵2018年11月25日视频 20181125_3]({{site.baseurl}}/miles/transcript/2018/11/20181125-53478545)
+
 [郭文贵2018年11月25日视频 20181125_2]({{site.baseurl}}/miles/transcript/2018/11/20181125-53478543)
 
 [郭文贵2018年11月25日视频 20181125_1]({{site.baseurl}}/miles/transcript/2018/11/20181125-53478541)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年11月8日视频 20181108王岐山与习近平谁将成为最后的共产党永久的实际控制人]({{site.baseurl}}/miles/transcript/2018/11/20181108-53480477)
 
 [郭文贵2018年11月7日视频 20181107美國中期選舉後感想]({{site.baseurl}}/miles/transcript/2018/11/20181107-53480280)
-
-[郭文贵2018年11月5日视频 20181105_1]({{site.baseurl}}/miles/transcript/2018/11/20181105-53478387)
 
 
 ## 頁面 87/111 [**<**]({{site.baseurl}}/miles/transcript/page86) [1]({{site.baseurl}}/miles/transcript/index) ... [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) **87** [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page88)
