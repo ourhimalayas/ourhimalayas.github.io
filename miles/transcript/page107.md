@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 107/111 [**<**]({{site.baseurl}}/miles/transcript/page106) [1]({{site.baseurl}}/miles/transcript/index) ... [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) **107** [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page108)
 
+[郭文贵2017年8月14日直播 20170814_1报平安：我没被爆头；19大后多人将下马；预言政法系的马化腾活不过50岁？！马云的蚂蚁金服也会收归国有，从而完全控制民众舆论及民间财富。]({{site.baseurl}}/miles/transcript/2017/08/20170814-53482772)
+
 [郭文贵2017年8月13日直播 20170813_1通报盗国贼反击进度，继续欺瞒海航及私生子，CCAV正加紧摆拍。。。]({{site.baseurl}}/miles/transcript/2017/08/20170813-53483503)
 
 [郭文贵2017年8月12日直播 20170812_1王岐山北戴河恩威并用惹党内非议，正为刘呈杰贯君找爹妈，19大后文贵放大招]({{site.baseurl}}/miles/transcript/2017/08/20170812-53483506)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年7月18日视频 20170718做平板撑坚持20分钟！当然和十里路不换肩比不了。。。各位健身了吗？]({{site.baseurl}}/miles/transcript/2017/07/20170718-53483521)
 
 [郭文贵2017年7月17日明镜专访第四期 20170717]({{site.baseurl}}/miles/transcript/2017/07/20170717-53484144)
-
-[郭文贵2017年7月15日 20170715关于范冰冰起诉．海航20万亿线]({{site.baseurl}}/miles/transcript/2017/07/20170715-53483919)
 
 
 ## 頁面 107/111 [**<**]({{site.baseurl}}/miles/transcript/page106) [1]({{site.baseurl}}/miles/transcript/index) ... [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) **107** [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page108)

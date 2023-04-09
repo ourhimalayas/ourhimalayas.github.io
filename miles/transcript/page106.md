@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 106/111 [**<**]({{site.baseurl}}/miles/transcript/page105) [1]({{site.baseurl}}/miles/transcript/index) ... [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) **106** [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page107)
 
+[郭文贵2017年9月1日视频 20170901_2让盗国贼看看把我们当猪狗的代价是什么！]({{site.baseurl}}/miles/transcript/2017/09/20170901-53483558)
+
 [郭文贵2017年8月31日 20170831就近况回答明镜电视追问]({{site.baseurl}}/miles/transcript/2017/08/20170831-53484302)
 
 [郭文贵2017年8月31日视频 20170831_2明天直播政法王第一集]({{site.baseurl}}/miles/transcript/2017/08/20170831-53483555)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年8月15日 20170815盗国贼和香港警察如何以警以黑治国治港]({{site.baseurl}}/miles/transcript/2017/08/20170815-53483907)
 
 [郭文贵2017年8月14日直播 20170814_2报平安推特小视频。谈谈酒后吐真言]({{site.baseurl}}/miles/transcript/2017/08/20170814-53483501)
-
-[郭文贵2017年8月14日直播 20170814_1报平安：我没被爆头；19大后多人将下马；预言政法系的马化腾活不过50岁？！马云的蚂蚁金服也会收归国有，从而完全控制民众舆论及民间财富。]({{site.baseurl}}/miles/transcript/2017/08/20170814-53482772)
 
 
 ## 頁面 106/111 [**<**]({{site.baseurl}}/miles/transcript/page105) [1]({{site.baseurl}}/miles/transcript/index) ... [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) **106** [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page107)

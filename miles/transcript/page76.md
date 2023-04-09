@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 76/111 [**<**]({{site.baseurl}}/miles/transcript/page75) [1]({{site.baseurl}}/miles/transcript/index) ... [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) **76** [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page77)
 
+[郭文贵2019年7月14日 20190714班农与文贵直播: 共产党为什么可以强奸美国70年？]({{site.baseurl}}/miles/transcript/2019/07/20190714-53482909)
+
 [2019年7月12日直播全文字版：蔡英文访问纽约；香港接下来的行动；大阪G20的结果已经影响了美国内部的政治！]({{site.baseurl}}/miles/transcript/2019/07/20190712-53578172)
 
 [郭文贵2019年7月12日蔡英文访问纽约 20190712蔡英文访问纽约．和香港接下来的行动．大版G20的结果已经影响了美国内部的政治！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/07/20190712-53482906)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年7月3日文贵在华盛顿的车上直播全文字版]({{site.baseurl}}/miles/transcript/2019/07/20190703-53570426)
 
 [郭文贵2019年7月3日华盛顿车上直播 20190703Miles Kwok broadcast: Why Weishi, Xiong Xianmin, Zhang Wei, Guo Baosheng and...]({{site.baseurl}}/miles/transcript/2019/07/20190703-53482809)
-
-[郭文贵2019年7月3日视频 20190703_1 (上)韦石．熊宪民．张维．郭宝胜．江涛．为什么敢在联邦法院庭上要杀掉文贵？侮辱威胁文贵？……联邦最有信誉的法官都无可奈何？]({{site.baseurl}}/miles/transcript/2019/07/20190703-53478775)
 
 
 ## 頁面 76/111 [**<**]({{site.baseurl}}/miles/transcript/page75) [1]({{site.baseurl}}/miles/transcript/index) ... [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) **76** [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page77)

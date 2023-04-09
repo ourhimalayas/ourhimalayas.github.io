@@ -29,6 +29,8 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年11月2日第二次直播 20191102_2文贵讲成功，胜利和信仰：中国现在像灭亡前的大清朝 谈共产党即将倒台的三大因素]({{site.baseurl}}/miles/transcript/2019/11/20191102-53483401)
 
+[2019年10月30日 郭文贵先生在喜马拉雅大使馆谈区块链 特别节目上集 全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191030-53949413)
+
 [郭文贵2019年10月30日特别节目上集 20191030文贵和Sara、路德、江财神在喜马拉雅大使馆谈区块链]({{site.baseurl}}/miles/transcript/2019/10/20191030-53483386)
 
 [郭文贵2019年10月30日视频 20191030_3凯琳、酒庄及文贵私人厨师现场烹煮过程直播，sara、江财神、路徳先生和庄烈宏先生一起享受美食、美酒——特别节目]({{site.baseurl}}/miles/transcript/2019/10/20191030-53479123)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年10月28日视频 20191028_4【Joe庄随手拍】郭文贵先生说至今没人谈到“区块链”的关键性]({{site.baseurl}}/miles/transcript/2019/10/20191028-53479100)
 
 [郭文贵2019年10月28日视频 20191028_3Snow]({{site.baseurl}}/miles/transcript/2019/10/20191028-53479098)
-
-[郭文贵2019年10月28日视频 20191028_2战友们，北京的戏已经开始上演了，会要开始了，会发生什么呢]({{site.baseurl}}/miles/transcript/2019/10/20191028-53479095)
 
 
 ## 頁面 65/111 [**<**]({{site.baseurl}}/miles/transcript/page64) [1]({{site.baseurl}}/miles/transcript/index) ... [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) **65** [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page66)
