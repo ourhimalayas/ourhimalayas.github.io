@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 96/111 [**<**]({{site.baseurl}}/miles/transcript/page95) [1]({{site.baseurl}}/miles/transcript/index) ... [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) **96** [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page97)
 
+[郭文贵2018年5月27日视频 20180527请战友一起反击所谓的文贵海外维稳民主人士阴谋！]({{site.baseurl}}/miles/transcript/2018/05/20180527-53482438)
+
 [郭文贵2018年5月26日直播 20180526_1破解金盾有进展,感谢战友提供听证会证据 LADY MAY回纽约了!]({{site.baseurl}}/miles/transcript/2018/05/20180526-53477808)
 
 [郭文贵2018年5月24日视频 20180524栗战书秘书因为董文彪．曲龙．王岐山被抓！]({{site.baseurl}}/miles/transcript/2018/05/20180524-53482408)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年4月26日视频 20180426在西香格里拉酒店被抓嫖娼两位歌星是谁？]({{site.baseurl}}/miles/transcript/2018/04/20180426-53482330)
 
 [郭文贵2018年4月26日直播 20180426_2]({{site.baseurl}}/miles/transcript/2018/04/20180426-53477686)
-
-[郭文贵2018年4月24日视频 20180424在重庆公安认罪的陈氏兄弟是现任常委秘书的家人！ 《战友同行》]({{site.baseurl}}/miles/transcript/2018/04/20180424-53482318)
 
 
 ## 頁面 96/111 [**<**]({{site.baseurl}}/miles/transcript/page95) [1]({{site.baseurl}}/miles/transcript/index) ... [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) **96** [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page97)

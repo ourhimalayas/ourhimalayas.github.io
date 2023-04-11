@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 93/111 [**<**]({{site.baseurl}}/miles/transcript/page92) [1]({{site.baseurl}}/miles/transcript/index) ... [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) **93** [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page94)
 
+[郭文贵2018年8月18日视频 20180818_2Snow今天要去与女朋友约会了]({{site.baseurl}}/miles/transcript/2018/08/20180818-53477255)
+
 [郭文贵2018年8月17日 20180817郭文贵曾经经历的中国主持人名星被强迫变态玩弄的血恤的7夕节！]({{site.baseurl}}/miles/transcript/2018/08/20180817-53483668)
 
 [郭文贵2018年8月16日第三次直播 20180816_3台湾香港等地区的人民的安全．人权．尊严．经济．受到了严重威胁时有权寻求独立．人权生存权大于主权！（连续二）]({{site.baseurl}}/miles/transcript/2018/08/20180816-53482502)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年8月7日视频 20180807王健被杀死前曾接触过其他国家情报部门．并通过香港中间人与文贵有联系！]({{site.baseurl}}/miles/transcript/2018/08/20180807-53482465)
 
 [郭文贵2018年8月7日直播 20180807_2今天太有成就感了 馬上要喝點酒]({{site.baseurl}}/miles/transcript/2018/08/20180807-53478104)
-
-[郭文贵2018年8月7日视频 20180807_3今天太有成就感了，喝茅台吃羊排奖励自己！]({{site.baseurl}}/miles/transcript/2018/08/20180807-53477230)
 
 
 ## 頁面 93/111 [**<**]({{site.baseurl}}/miles/transcript/page92) [1]({{site.baseurl}}/miles/transcript/index) ... [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) **93** [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page94)

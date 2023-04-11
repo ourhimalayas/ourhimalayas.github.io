@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 86/111 [**<**]({{site.baseurl}}/miles/transcript/page85) [1]({{site.baseurl}}/miles/transcript/index) ... [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) **86** [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page87)
 
+[郭文贵2018年12月26日视频 20181226_1辽宁沈阳对罚款600亿人民币维持原判．限期30天内交罚款！文贵的三个压力二个高兴！]({{site.baseurl}}/miles/transcript/2018/12/20181226-53478460)
+
 [郭文贵2018年12月24日视频 20181224_1文贵衷心祝愿所有的伟大的战友及家人！14亿同胞！全世界的人们圣诞快乐]({{site.baseurl}}/miles/transcript/2018/12/20181224-53478457)
 
 [郭文贵2018年12月23日视频 20181223_1我们这两天加班，完成了对Sam Nunberg 和吴征的重新起诉，索赔，这是个大事！媒体高度关注！]({{site.baseurl}}/miles/transcript/2018/12/20181223-53478453)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年11月28日视频 20181128_1不好了 Snow吸大麻被活逮 遭雙規了]({{site.baseurl}}/miles/transcript/2018/11/20181128-53478551)
 
 [郭文贵2018年11月27日视频 20181127华盛顿报平安直播]({{site.baseurl}}/miles/transcript/2018/11/20181127-53482967)
-
-[郭文贵2018年11月27日视频 20181127_2]({{site.baseurl}}/miles/transcript/2018/11/20181127-53478548)
 
 
 ## 頁面 86/111 [**<**]({{site.baseurl}}/miles/transcript/page85) [1]({{site.baseurl}}/miles/transcript/index) ... [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) **86** [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page87)

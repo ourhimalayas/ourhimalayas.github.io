@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 81/111 [**<**]({{site.baseurl}}/miles/transcript/page80) [1]({{site.baseurl}}/miles/transcript/index) ... [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) **81** [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page82)
 
+[郭文贵2019年4月29日 20190429台湾．香港．将是灭共的重要之地……谷畜生侮骂一亿河南同胞必须受惩罚！]({{site.baseurl}}/miles/transcript/2019/04/20190429-53482448)
+
 [郭文贵2019年4月29日 20190429_2（2）台湾．香港．将是灭共的重要之地]({{site.baseurl}}/miles/transcript/2019/04/20190429-53478111)
 
 [郭文贵2019年4月28日视频 20190428_1我家就是全世界最敏感的地方]({{site.baseurl}}/miles/transcript/2019/04/20190428-53478683)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年4月15日第二次直播 20190415_2接下来的爆料有些会是让人无法接受的……人性丑恶行为！＂世上有些人的恶已经超过魔鬼????＂与共产党一起的任何人任何事情都比妖怪还要让人憎恶……]({{site.baseurl}}/miles/transcript/2019/04/20190415-53482297)
 
 [郭文贵2019年4月13日第一次直播 20190413_1什么叫蓝通？为什么刘鹤将遣返爆料战友等21人作为中美贸易交易的条件！]({{site.baseurl}}/miles/transcript/2019/04/20190413-53482288)
-
-[郭文贵2019年4月13日第二次直播 20190413_2郭文贵直播谈盗国贼的财富以及这周发生的大事！ 江家集团在中国的实际实力和未来的下场！]({{site.baseurl}}/miles/transcript/2019/04/20190413-53482269)
 
 
 ## 頁面 81/111 [**<**]({{site.baseurl}}/miles/transcript/page80) [1]({{site.baseurl}}/miles/transcript/index) ... [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) **81** [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page82)

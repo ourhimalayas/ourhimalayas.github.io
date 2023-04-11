@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 108/111 [**<**]({{site.baseurl}}/miles/transcript/page107) [1]({{site.baseurl}}/miles/transcript/index) ... [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) **108** [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page109)
 
+[郭文贵2017年7月17日明镜专访第四期 20170717]({{site.baseurl}}/miles/transcript/2017/07/20170717-53484144)
+
 [郭文贵2017年7月15日 20170715关于范冰冰起诉．海航20万亿线]({{site.baseurl}}/miles/transcript/2017/07/20170715-53483919)
 
 [郭文贵2017年7月15日直播 20170715_2关于范冰冰起诉．海航20万亿线索的来源及美国灯塔报纸采访的回复]({{site.baseurl}}/miles/transcript/2017/07/20170715-53482765)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年6月10日第一次直播 20170610_1有关海南航空的公告的回复]({{site.baseurl}}/miles/transcript/2017/06/20170610-53483866)
 
 [郭文贵2017年6月10日第二次直播 20170610_2]({{site.baseurl}}/miles/transcript/2017/06/20170610-53483861)
-
-[郭文贵2017年6月8日直播 20170608_1明鏡專訪郭文貴對盤古案的期待 60分]({{site.baseurl}}/miles/transcript/2017/06/20170608-53482753)
 
 
 ## 頁面 108/111 [**<**]({{site.baseurl}}/miles/transcript/page107) [1]({{site.baseurl}}/miles/transcript/index) ... [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) **108** [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page109)

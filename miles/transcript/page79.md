@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 79/111 [**<**]({{site.baseurl}}/miles/transcript/page78) [1]({{site.baseurl}}/miles/transcript/index) ... [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) **79** [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page80)
 
+[郭文贵2019年6月9日直播 20190609_2班农先生．与郭文贵和龚小夏女士．直播香港百万人抗议大游行9小时直播中部分！]({{site.baseurl}}/miles/transcript/2019/06/20190609-53482181)
+
 [郭文贵2019年6月9日直播 20190609_1班农先生．与郭文贵和龚小夏女士．直播香港百万人抗议大游行9小时直播上部分！]({{site.baseurl}}/miles/transcript/2019/06/20190609-53482134)
 
 [郭文贵2019年6月8日视频 20190608香港6.9上街若能持续几天彻底改变香港]({{site.baseurl}}/miles/transcript/2019/06/20190608-53482529)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年5月19日视频 第一部分 20190519_1Pt2 Miles Kwok live broadcast on Hudson River.]({{site.baseurl}}/miles/transcript/2019/05/20190519-53482608)
 
 [郭文贵2019年5月19日视频 20190519_4昨天平板撐做了32分鐘 今天只做了25分鐘]({{site.baseurl}}/miles/transcript/2019/05/20190519-53478719)
-
-[郭文贵2019年5月18日 20190518爆料王建之死原视频！世界上谁都没有]({{site.baseurl}}/miles/transcript/2019/05/20190518-53482602)
 
 
 ## 頁面 79/111 [**<**]({{site.baseurl}}/miles/transcript/page78) [1]({{site.baseurl}}/miles/transcript/index) ... [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) **79** [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page80)

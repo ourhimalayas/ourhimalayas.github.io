@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 65/111 [**<**]({{site.baseurl}}/miles/transcript/page64) [1]({{site.baseurl}}/miles/transcript/index) ... [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) **65** [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page66)
 
+[郭文贵2019年11月7日 20191107中国现状和大清灭亡前一样；十几家基金公司相聚曼哈顿，一致决定从香港全面撤资]({{site.baseurl}}/miles/transcript/2019/11/20191107-53483409)
+
 [郭文贵2019年11月6日第一次直播 20191106_1“文贵和路德在喜马拉雅大使馆直播”下部]({{site.baseurl}}/miles/transcript/2019/11/20191106-53483384)
 
 [郭文贵2019年11月6日第三次直播 20191106_3“文贵和路德在喜马拉雅大使馆直播”上部 共产党创造了几个荒唐政治事件(2)]({{site.baseurl}}/miles/transcript/2019/11/20191106-53483365)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年10月28日视频 20191028紧急直播]({{site.baseurl}}/miles/transcript/2019/10/20191028-53483278)
 
 [郭文贵2019年10月28日视频 20191028_4【Joe庄随手拍】郭文贵先生说至今没人谈到“区块链”的关键性]({{site.baseurl}}/miles/transcript/2019/10/20191028-53479100)
-
-[郭文贵2019年10月28日视频 20191028_3Snow]({{site.baseurl}}/miles/transcript/2019/10/20191028-53479098)
 
 
 ## 頁面 65/111 [**<**]({{site.baseurl}}/miles/transcript/page64) [1]({{site.baseurl}}/miles/transcript/index) ... [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) **65** [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page66)

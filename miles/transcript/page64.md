@@ -23,6 +23,8 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年11月16日 20191116习近平讲话对香港有本质影响；建议香港的孩子们撤离]({{site.baseurl}}/miles/transcript/2019/11/20191116-53483459)
 
+[2019年11月15日郭文贵直播建议香港前线勇武义士战术性转进 在香港沦陷区进入潜伏状态 蛰伏保留实力 全文字版\n]({{site.baseurl}}/miles/transcript/2019/11/20191115-53954821)
+
 [郭文贵2019年11月15日视频 20191115建议香港前线勇武义士战术性转进 在香港沦陷区进入潜伏状态 蛰伏保留实力 文贵去华盛顿办大事；香港法案一定会过]({{site.baseurl}}/miles/transcript/2019/11/20191115-53483456)
 
 [郭文贵2019年11月14日第一次直播 20191114_1]({{site.baseurl}}/miles/transcript/2019/11/20191114-53483446)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年11月8日视频 20191108_1正在為香港人權與民主法案準備材料]({{site.baseurl}}/miles/transcript/2019/11/20191108-53479129)
 
 [2019年11月7日文贵大直播全文字版：中国现状和大清灭亡前一样；十几家基金公司相聚曼哈顿，一致决定从香港全面撤资]({{site.baseurl}}/miles/transcript/2019/11/20191107-53946213)
-
-[郭文贵2019年11月7日 20191107中国现状和大清灭亡前一样；十几家基金公司相聚曼哈顿，一致决定从香港全面撤资]({{site.baseurl}}/miles/transcript/2019/11/20191107-53483409)
 
 
 ## 頁面 64/111 [**<**]({{site.baseurl}}/miles/transcript/page63) [1]({{site.baseurl}}/miles/transcript/index) ... [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) **64** [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page65)
