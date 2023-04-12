@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 67/111 [**<**]({{site.baseurl}}/miles/transcript/page66) [1]({{site.baseurl}}/miles/transcript/index) ... [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) **67** [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page68)
 
+[2019年10月21日文贵大直播全文字版：第一次直播；第二次紧急直播 陈彦霖是枉死，共产党准备了多处灭尸毁证机构]({{site.baseurl}}/miles/transcript/2019/10/20191021-53916881)
+
+[郭文贵2019年10月21日第二次紧急直播 20191021_2陈彦霖是枉死，共产党准备了多处灭尸毁证机构]({{site.baseurl}}/miles/transcript/2019/10/20191021-53483205)
+
+[郭文贵2019年10月21日第一次直播 20191021_1]({{site.baseurl}}/miles/transcript/2019/10/20191021-53483198)
+
 [郭文贵2019年10月20日视频 20191020_1大家分享纽约雨天船上时光]({{site.baseurl}}/miles/transcript/2019/10/20191020-53479075)
 
 [2019年10月18日文贵大直播全文字版：郭先生与战友们聊天：美国引领全球反共，港人宁死不屈，是反共先锋！]({{site.baseurl}}/miles/transcript/2019/10/20191018-53912078)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年10月12日视频 20191012_3与战友们分SNOW吃酸奶的片刻… …一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/10/20191012-53479056)
 
 [郭文贵2019年10月12日视频 20191012_2我太太刚刚为我组装的太空母舰……一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/10/20191012-53479049)
-
-[2019年10月10日文贵大直播全文字版：报平安直播，台湾双十国庆 关注王岐山美国双十会谈中共诡计是否会得逞]({{site.baseurl}}/miles/transcript/2019/10/20191010-53900627)
-
-[郭文贵2019年10月10日视频 20191010台湾双十国庆 关注王岐山美国双十会谈中共诡计是否会得逞]({{site.baseurl}}/miles/transcript/2019/10/20191010-53483308)
-
-[郭文贵2019年10月10日视频 20191010_2今天的SNOW有了很大的变化 比香港警察表现的好得多了(拿Snow跟港警比 對Snow太殘忍了)]({{site.baseurl}}/miles/transcript/2019/10/20191010-53479048)
 
 
 ## 頁面 67/111 [**<**]({{site.baseurl}}/miles/transcript/page66) [1]({{site.baseurl}}/miles/transcript/index) ... [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) **67** [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page68)

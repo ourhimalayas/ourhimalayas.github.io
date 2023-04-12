@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 101/111 [**<**]({{site.baseurl}}/miles/transcript/page100) [1]({{site.baseurl}}/miles/transcript/index) ... [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) **101** [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page102)
 
+[郭文贵2018年2月10日第四次直播 20180210_4吴征这个大骗子……为什么会如此猖狂？骂郭战友们的下场如何？]({{site.baseurl}}/miles/transcript/2018/02/20180210-53483983)
+
+[郭文贵2018年2月10日第一次直播 20180210_1马云，与吴征，陈军，袁建彬，这一系列疯狂的行为 到底想干什么？]({{site.baseurl}}/miles/transcript/2018/02/20180210-53483980)
+
+[郭文贵2018年2月10日第二次直播 20180210_2政治！经济！情色骗子，陈军，吴征与马云，流氓袁建斌是 什么样利益关系？]({{site.baseurl}}/miles/transcript/2018/02/20180210-53483976)
+
 [郭文贵2018年2月10日第三次直播 20180210_3钓鱼网站骗子韦石，屎诺，朋友骗子陈军，民主骗子李伟 东，流氓骗子袁建彬与吴征时什么关系？]({{site.baseurl}}/miles/transcript/2018/02/20180210-53483974)
 
 [郭文贵2018年2月10日第五次直播 20180210_5大骗子吴征的汉奸爷爷，真的救过几万个犹太人么？]({{site.baseurl}}/miles/transcript/2018/02/20180210-53483972)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年1月30日第一次直播 20180130_1关于盲流子爆料]({{site.baseurl}}/miles/transcript/2018/01/20180130-53484204)
 
 [郭文贵2018年1月30日第二次直播 20180130_2回应“盲流子”视频，披露相关背景；谈王岐山“复出”和“文贵春晚”。]({{site.baseurl}}/miles/transcript/2018/01/20180130-53484110)
-
-[郭文贵2018年1月30日第三次直播 20180130_3国内的很多战友给我发来信息．问文贵看春晚的节目的重点是什么现在我向大家汇报！]({{site.baseurl}}/miles/transcript/2018/01/20180130-53484108)
-
-[郭文贵2018年1月29日直播 20180129_1郭媒体视频郭文贵先生春节晚会节目预告]({{site.baseurl}}/miles/transcript/2018/01/20180129-53482796)
-
-[郭文贵2018年1月28日直播 20180128_1郭媒体最新测试视频钓贼完整版]({{site.baseurl}}/miles/transcript/2018/01/20180128-53482792)
 
 
 ## 頁面 101/111 [**<**]({{site.baseurl}}/miles/transcript/page100) [1]({{site.baseurl}}/miles/transcript/index) ... [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) **101** [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page102)

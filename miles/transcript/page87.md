@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 87/111 [**<**]({{site.baseurl}}/miles/transcript/page86) [1]({{site.baseurl}}/miles/transcript/index) ... [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) **87** [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page88)
 
+[郭文贵2018年11月29日视频 20181129郭戰裝到了]({{site.baseurl}}/miles/transcript/2018/11/20181129-53483910)
+
+[郭文贵2018年11月28日视频 20181128_1不好了 Snow吸大麻被活逮 遭雙規了]({{site.baseurl}}/miles/transcript/2018/11/20181128-53478551)
+
+[郭文贵2018年11月27日视频 20181127华盛顿报平安直播]({{site.baseurl}}/miles/transcript/2018/11/20181127-53482967)
+
 [郭文贵2018年11月27日视频 20181127_2]({{site.baseurl}}/miles/transcript/2018/11/20181127-53478548)
 
 [郭文贵2018年11月26日视频 20181126_1马上就要起飞????去几个智库去演讲！会后再向战友们汇报！一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2018/11/20181126-53478547)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年11月15日视频 20181115_2]({{site.baseurl}}/miles/transcript/2018/11/20181115-53478395)
 
 [郭文贵2018年11月14日视频 20181114王健之死真相新聞發布會為什麼可能從11月19日延後一天改為11月20日]({{site.baseurl}}/miles/transcript/2018/11/20181114-53481110)
-
-[郭文贵2018年11月13日视频 20181113民營企業家不能再成為共產黨的尿壺！]({{site.baseurl}}/miles/transcript/2018/11/20181113-53480659)
-
-[郭文贵2018年11月10日视频 20181110_1距离王健发布会还有9天 文贵海上吃火锅给大家报平安(政事小哥版)]({{site.baseurl}}/miles/transcript/2018/11/20181110-53478393)
-
-[郭文贵2018年11月9日视频 20181109_1昨晚上我6点多睡觉．一大早班8点钟突然到来……他昨晚上也一夜没睡．开车从华盛顿过来！为了我们的新闻发布会！为了接下来的几天按排]({{site.baseurl}}/miles/transcript/2018/11/20181109-53478388)
 
 
 ## 頁面 87/111 [**<**]({{site.baseurl}}/miles/transcript/page86) [1]({{site.baseurl}}/miles/transcript/index) ... [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) **87** [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page88)

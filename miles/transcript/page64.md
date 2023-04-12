@@ -17,9 +17,13 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年11月18日视频 20191118_220191118之2 文贵又开始浪啦浪花钱啦…]({{site.baseurl}}/miles/transcript/2019/11/20191118-53479143)
 
+[2019年11月17日文贵大直播全文字版：对香港理工大学即将发生的人道危机提出的个人看法]({{site.baseurl}}/miles/transcript/2019/11/20191117-53955640)
+
 [郭文贵2019年11月17日 20191117对香港理工大学即将发生的人道危机提出的个人看法。]({{site.baseurl}}/miles/transcript/2019/11/20191117-53483653)
 
 [郭文贵2019年11月17日视频 20191117_2香港又有行动啦！香港的教堂要注意了，对教堂有行动，宗教设施，那几个教堂，我就不多说了啊]({{site.baseurl}}/miles/transcript/2019/11/20191117-53479139)
+
+[2019年11月16日文贵大直播全文字版：报平安直播]({{site.baseurl}}/miles/transcript/2019/11/20191116-53955636)
 
 [郭文贵2019年11月16日 20191116习近平讲话对香港有本质影响；建议香港的孩子们撤离]({{site.baseurl}}/miles/transcript/2019/11/20191116-53483459)
 
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年11月9日视频 20191109共产党早已掉入塔西佗陷阱；香港保护法案和人权一定会过！]({{site.baseurl}}/miles/transcript/2019/11/20191109-53483391)
 
 [郭文贵2019年11月8日视频 20191108_2戰友們好啊今天是發生很多事情啊今天是個好日子啊一天沒發信息了但是太好了啊 好事 好事啊 哈哈哈 Ps搂住搂住]({{site.baseurl}}/miles/transcript/2019/11/20191108-53479130)
-
-[郭文贵2019年11月8日视频 20191108_1正在為香港人權與民主法案準備材料]({{site.baseurl}}/miles/transcript/2019/11/20191108-53479129)
-
-[2019年11月7日文贵大直播全文字版：中国现状和大清灭亡前一样；十几家基金公司相聚曼哈顿，一致决定从香港全面撤资]({{site.baseurl}}/miles/transcript/2019/11/20191107-53946213)
 
 
 ## 頁面 64/111 [**<**]({{site.baseurl}}/miles/transcript/page63) [1]({{site.baseurl}}/miles/transcript/index) ... [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) **64** [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page65)

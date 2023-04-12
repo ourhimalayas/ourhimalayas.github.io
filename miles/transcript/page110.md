@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 110/111 [**<**]({{site.baseurl}}/miles/transcript/page109) [1]({{site.baseurl}}/miles/transcript/index) ... [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) **110** [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page111)
 
+[郭文贵2017年5月15日视频 20170515_1]({{site.baseurl}}/miles/transcript/2017/05/20170515-53483877)
+
+[郭文贵2017年5月15日视频 20170515_2報平安 2被骇后再开！]({{site.baseurl}}/miles/transcript/2017/05/20170515-53483772)
+
+[郭文贵2017年5月13日视频 20170513]({{site.baseurl}}/miles/transcript/2017/05/20170513-53483867)
+
 [郭文贵2017年5月12日视频 20170512]({{site.baseurl}}/miles/transcript/2017/05/20170512-53483865)
 
 [郭文贵2017年5月11日视频 20170511]({{site.baseurl}}/miles/transcript/2017/05/20170511-53483840)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年4月29日第一次直播 20170429_1对13万推友的视频感谢]({{site.baseurl}}/miles/transcript/2017/04/20170429-53483734)
 
 [郭文贵2017年4月28日 20170428接受BBC采访的视频Miles Kwok was Interviewed by BBC on April 28th, 2017]({{site.baseurl}}/miles/transcript/2017/04/20170428-53484096)
-
-[郭文贵2017年4月27日 20170427推友过十一万感谢视频]({{site.baseurl}}/miles/transcript/2017/04/20170427-53483727)
-
-[郭文贵2017年4月26日第一次直播 20170426_1感谢推友过十万感谢视频]({{site.baseurl}}/miles/transcript/2017/04/20170426-53483725)
-
-[郭文贵2017年4月26日第二次直播 20170426_2感谢推友过十万]({{site.baseurl}}/miles/transcript/2017/04/20170426-53483722)
 
 
 ## 頁面 110/111 [**<**]({{site.baseurl}}/miles/transcript/page109) [1]({{site.baseurl}}/miles/transcript/index) ... [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) **110** [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page111)

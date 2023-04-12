@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 70/111 [**<**]({{site.baseurl}}/miles/transcript/page69) [1]({{site.baseurl}}/miles/transcript/index) ... [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) **70** [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page71)
 
+[郭文贵2019年9月20日视频 20190920感谢战友们的担心，文贵为什么这两天没直播。香港最艰难时期是十月后，请香港战友加倍小心！]({{site.baseurl}}/miles/transcript/2019/09/20190920-53483149)
+
+[2019年9月17日文贵报平安全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190917-53852069)
+
+[2019年9月17日郭文贵先生报平安全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190917-53852085)
+
 [郭文贵2019年9月17日视频 20190917马云儒学也得肛门癌，还有大佬会出事，体制内战友要安全的支持爆料革命，香港人要时刻提防CCP灭绝人性的行动]({{site.baseurl}}/miles/transcript/2019/09/20190917-53483127)
 
 [《文贵大直播》全文听写组]({{site.baseurl}}/miles/transcript/2019/09/20190916-53845233)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年9月9日第二次直播 20190909_2尊敬的战友们好！你们健身了吗？你们传播香港危机的真相了吗？为什么香港的富豪．被威胁他们隐蔽海外资产共产党可以没收！昨天香港的金融市场再次地被共产党用电脑控制，这意味着什么？]({{site.baseurl}}/miles/transcript/2019/09/20190909-53483052)
 
 [2019年9月8日 美国国会山开山灭共助港，李小加港交所期货交易内幕，中共如何用通货膨胀奴役中国人民全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190908-53835472)
-
-[郭文贵2019年9月8日 20190908美国国会山开山“灭共助港”，李小加港交所期货交易当机玩儿大了！中共如何用通货膨胀奴役中国人民！]({{site.baseurl}}/miles/transcript/2019/09/20190908-53483047)
-
-[2019年9月7日郭先生直播，关注香港被抓 被杀的年轻人全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190907-53838874)
-
-[郭文贵2019年9月7日视频 20190907关注香港被抓、被自杀的年轻人！北京下达死命令：不允许超过100人集会！美国将通过一系列法案支持香港人民！]({{site.baseurl}}/miles/transcript/2019/09/20190907-53483029)
 
 
 ## 頁面 70/111 [**<**]({{site.baseurl}}/miles/transcript/page69) [1]({{site.baseurl}}/miles/transcript/index) ... [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) **70** [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page71)

@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 108/111 [**<**]({{site.baseurl}}/miles/transcript/page107) [1]({{site.baseurl}}/miles/transcript/index) ... [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) **108** [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page109)
 
+[郭文贵2017年7月24日第一次直播 20170724_1王岐山盗国贼们的恐惧]({{site.baseurl}}/miles/transcript/2017/07/20170724-53483945)
+
+[郭文贵2017年7月24日第三次直播 20170724_3]({{site.baseurl}}/miles/transcript/2017/07/20170724-53482769)
+
+[郭文贵2017年7月18日视频 20170718做平板撑坚持20分钟！当然和十里路不换肩比不了。。。各位健身了吗？]({{site.baseurl}}/miles/transcript/2017/07/20170718-53483521)
+
 [郭文贵2017年7月17日明镜专访第四期 20170717]({{site.baseurl}}/miles/transcript/2017/07/20170717-53484144)
 
 [郭文贵2017年7月15日 20170715关于范冰冰起诉．海航20万亿线]({{site.baseurl}}/miles/transcript/2017/07/20170715-53483919)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年6月16日明镜专访第三期 20170616]({{site.baseurl}}/miles/transcript/2017/06/20170616-53484293)
 
 [郭文贵2017年6月13日 20170613关于章立凡与胡平先生在VoA节目中对文贵的诬陷]({{site.baseurl}}/miles/transcript/2017/06/20170613-53483776)
-
-[郭文贵2017年6月11日视频 20170611]({{site.baseurl}}/miles/transcript/2017/06/20170611-53483871)
-
-[郭文贵2017年6月10日第一次直播 20170610_1有关海南航空的公告的回复]({{site.baseurl}}/miles/transcript/2017/06/20170610-53483866)
-
-[郭文贵2017年6月10日第二次直播 20170610_2]({{site.baseurl}}/miles/transcript/2017/06/20170610-53483861)
 
 
 ## 頁面 108/111 [**<**]({{site.baseurl}}/miles/transcript/page107) [1]({{site.baseurl}}/miles/transcript/index) ... [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) **108** [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page109)

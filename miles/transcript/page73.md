@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 73/111 [**<**]({{site.baseurl}}/miles/transcript/page72) [1]({{site.baseurl}}/miles/transcript/index) ... [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) **73** [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page74)
 
+[郭文贵2019年8月13日视频 20190813关于香港情况]({{site.baseurl}}/miles/transcript/2019/08/20190813-53483027)
+
+[2019年8月12日文贵大直播全文字版：报平安 和在车上直播合集：香港人现在的遭遇和共产党在香港的镇压]({{site.baseurl}}/miles/transcript/2019/08/20190812-53795616)
+
+[郭文贵2019年8月12日第一次直播 20190812_1在车上Miles Kwok live streaming from car: the CCP showed its true colors during its crackdown..]({{site.baseurl}}/miles/transcript/2019/08/20190812-53483007)
+
 [郭文贵2019年8月12日第二次直播 20190812_2 Mr. Miles Kwok live stream: letting everyone know that he is safe. What Hong Kongers...]({{site.baseurl}}/miles/transcript/2019/08/20190812-53483001)
 
 [2019年8月11日《文贵大直播》全文字版：船上直播高度关注香港]({{site.baseurl}}/miles/transcript/2019/08/20190811-53741198)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年8月3日视频 20190803_2-當共產黨說不幹甚麼的時候 就是他想幹甚麼的時候]({{site.baseurl}}/miles/transcript/2019/08/20190803-53478890)
 
 [郭文贵2019年8月2日视频 20190802_1]({{site.baseurl}}/miles/transcript/2019/08/20190802-53478885)
-
-[郭文贵2019年8月1日视频 20190801共产党下达香港戒严令]({{site.baseurl}}/miles/transcript/2019/08/20190801-53482921)
-
-[郭文贵2019年8月1日视频 20190801_3戒严令由戒严指挥部统一指挥]({{site.baseurl}}/miles/transcript/2019/08/20190801-53478883)
-
-[郭文贵2019年8月1日视频 20190801_2中午1200将和几个香港命运有关的人开会……香港的命运现在处在关键的时刻……望我们所有的志在灭共的战友们．在自己安全．能力．能承受的情况下，全力以赴通过各种手段支持香港同胞们]({{site.baseurl}}/miles/transcript/2019/08/20190801-53478873)
 
 
 ## 頁面 73/111 [**<**]({{site.baseurl}}/miles/transcript/page72) [1]({{site.baseurl}}/miles/transcript/index) ... [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) **73** [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page74)

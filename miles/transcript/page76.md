@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 76/111 [**<**]({{site.baseurl}}/miles/transcript/page75) [1]({{site.baseurl}}/miles/transcript/index) ... [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) **76** [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page77)
 
+[2019年7月15日直播全文字版：盘古大观在7月14日被北京高院公告······]({{site.baseurl}}/miles/transcript/2019/07/20190715-53626565)
+
+[郭文贵2019年7月15日视频 20190715盘古大观在7月14号被北京高院公告……将以实际价格的10％被拍卖……实际的背后的黑手就是江泽民．和江志成．孟建柱和孙力军……王岐山！这就是过去两周他们要栽赃文贵]({{site.baseurl}}/miles/transcript/2019/07/20190715-53482817)
+
+[郭文贵2019年7月15日视频 20190715_2试试郭媒体即将推出的新软件]({{site.baseurl}}/miles/transcript/2019/07/20190715-53478805)
+
 [2019年7月14日直播全文字版: 班农与文贵：共产党为什么可以强奸美国70年？]({{site.baseurl}}/miles/transcript/2019/07/20190714-53626585)
 
 [郭文贵2019年7月14日 20190714班农与文贵直播: 共产党为什么可以强奸美国70年？]({{site.baseurl}}/miles/transcript/2019/07/20190714-53482909)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年7月6日直播全文字版：与彭文正先生连线——灭共保台]({{site.baseurl}}/miles/transcript/2019/07/20190706-53576461)
 
 [郭文贵2019年7月6日连线彭文正 20190706Miles live with Dennis Peng - Destroying the CCP to protect Taiwan...]({{site.baseurl}}/miles/transcript/2019/07/20190706-53482844)
-
-[2019年7月5日文贵船上直播全文字版：从美国国庆日看中共的假丑黑恶]({{site.baseurl}}/miles/transcript/2019/07/20190705-53570374)
-
-[郭文贵2019年7月5日视频 20190705美国最高层“中国人站起来反抗，美国人一定跟上”]({{site.baseurl}}/miles/transcript/2019/07/20190705-53482822)
-
-[2019年7月3日文贵在华盛顿的车上直播全文字版]({{site.baseurl}}/miles/transcript/2019/07/20190703-53570426)
 
 
 ## 頁面 76/111 [**<**]({{site.baseurl}}/miles/transcript/page75) [1]({{site.baseurl}}/miles/transcript/index) ... [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) **76** [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page77)

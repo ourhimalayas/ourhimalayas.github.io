@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 95/111 [**<**]({{site.baseurl}}/miles/transcript/page94) [1]({{site.baseurl}}/miles/transcript/index) ... [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) **95** [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page96)
 
+[郭文贵2018年7月4日直播 20180704_1郭文贵先生在群里对王健突然丧命的评价]({{site.baseurl}}/miles/transcript/2018/07/20180704-53478031)
+
+[郭文贵2018年7月2日直播 20180702_2路德访谈约翰小哥時文貴之講話]({{site.baseurl}}/miles/transcript/2018/07/20180702-53478026)
+
+[郭文贵2018年6月30日直播 20180630_2谈中国股市与经济！]({{site.baseurl}}/miles/transcript/2018/06/20180630-53478020)
+
 [郭文贵2018年6月30日直播 20180630_1谈郭宝胜的诈骗与对寒梅的起诉]({{site.baseurl}}/miles/transcript/2018/06/20180630-53478008)
 
 [郭文贵2018年6月29日直播 20180629_1谈刘刚与屎诺．王岐山与错功胜为什么救海航！]({{site.baseurl}}/miles/transcript/2018/06/20180629-53477980)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年6月3日直播 20180603_1文贵先生来到聊天室(51:53起)和网友共同热议六四！文贵先生爆料范冰冰已经到了洛杉矶，上面领导打招呼尽快离开。]({{site.baseurl}}/miles/transcript/2018/06/20180603-53477823)
 
 [郭文贵2018年6月2日 20180602接受安红女士．丘岳首先生釆访．纪念六四．及袁红冰．郭宝胜．赖建平的盗骗之劣术！]({{site.baseurl}}/miles/transcript/2018/06/20180602-53483787)
-
-[郭文贵2018年6月1日 20180601文贵视频为什么成为盗国贼的精神艾滋！]({{site.baseurl}}/miles/transcript/2018/06/20180601-53483753)
-
-[郭文贵2018年5月31日视频 20180531不要将六．四悲剧变喜剧！马航客机失事新动向！]({{site.baseurl}}/miles/transcript/2018/05/20180531-53482371)
-
-[郭文贵2018年5月30日视频 20180530文贵很好请战友们放心]({{site.baseurl}}/miles/transcript/2018/05/20180530-53477191)
 
 
 ## 頁面 95/111 [**<**]({{site.baseurl}}/miles/transcript/page94) [1]({{site.baseurl}}/miles/transcript/index) ... [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) **95** [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page96)

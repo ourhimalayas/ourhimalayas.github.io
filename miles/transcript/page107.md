@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 107/111 [**<**]({{site.baseurl}}/miles/transcript/page106) [1]({{site.baseurl}}/miles/transcript/index) ... [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) **107** [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page108)
 
+[郭文贵2017年8月17日视频 20170817 香港女合伙人被孟建柱下令绑架回深圳．昨晚上自杀未遂而送医！盗国贼们，8.18见！]({{site.baseurl}}/miles/transcript/2017/08/20170817-53483788)
+
+[郭文贵2017年8月16日视频 20170816北戴河会议发生了一个重要事件，盗国贼极力掩盖。]({{site.baseurl}}/miles/transcript/2017/08/20170816-53483498)
+
+[郭文贵2017年8月15日 20170815盗国贼和香港警察如何以警以黑治国治港]({{site.baseurl}}/miles/transcript/2017/08/20170815-53483907)
+
 [郭文贵2017年8月14日直播 20170814_2报平安推特小视频。谈谈酒后吐真言]({{site.baseurl}}/miles/transcript/2017/08/20170814-53483501)
 
 [郭文贵2017年8月14日直播 20170814_1报平安：我没被爆头；19大后多人将下马；预言政法系的马化腾活不过50岁？！马云的蚂蚁金服也会收归国有，从而完全控制民众舆论及民间财富。]({{site.baseurl}}/miles/transcript/2017/08/20170814-53482772)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年7月25日 20170725王岐山、贯君的6000亿海航股权去哪了？]({{site.baseurl}}/miles/transcript/2017/07/20170725-53483792)
 
 [郭文贵2017年7月24日第二次直播 20170724_2呼吁推友不要冲动]({{site.baseurl}}/miles/transcript/2017/07/20170724-53484151)
-
-[郭文贵2017年7月24日第一次直播 20170724_1王岐山盗国贼们的恐惧]({{site.baseurl}}/miles/transcript/2017/07/20170724-53483945)
-
-[郭文贵2017年7月24日第三次直播 20170724_3]({{site.baseurl}}/miles/transcript/2017/07/20170724-53482769)
-
-[郭文贵2017年7月18日视频 20170718做平板撑坚持20分钟！当然和十里路不换肩比不了。。。各位健身了吗？]({{site.baseurl}}/miles/transcript/2017/07/20170718-53483521)
 
 
 ## 頁面 107/111 [**<**]({{site.baseurl}}/miles/transcript/page106) [1]({{site.baseurl}}/miles/transcript/index) ... [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) **107** [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page108)

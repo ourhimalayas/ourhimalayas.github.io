@@ -3,6 +3,12 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 66/111 [**<**]({{site.baseurl}}/miles/transcript/page65) [1]({{site.baseurl}}/miles/transcript/index) ... [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) **66** [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page67)
 
+[2019年10月28日文贵大直播全文字版：紧急直播]({{site.baseurl}}/miles/transcript/2019/10/20191028-53925861)
+
+[郭文贵2019年10月28日视频 20191028紧急直播]({{site.baseurl}}/miles/transcript/2019/10/20191028-53483278)
+
+[郭文贵2019年10月28日视频 20191028_4【Joe庄随手拍】郭文贵先生说至今没人谈到“区块链”的关键性]({{site.baseurl}}/miles/transcript/2019/10/20191028-53479100)
+
 [郭文贵2019年10月28日视频 20191028_3Snow]({{site.baseurl}}/miles/transcript/2019/10/20191028-53479098)
 
 [郭文贵2019年10月28日视频 20191028_2战友们，北京的戏已经开始上演了，会要开始了，会发生什么呢]({{site.baseurl}}/miles/transcript/2019/10/20191028-53479095)
@@ -46,12 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年10月22日 20191022乌镇“污脸”网大会，BAT帮助CCP迫害战友西藏新疆同胞、去彭斯副总统推特下面留言为他演讲加油！]({{site.baseurl}}/miles/transcript/2019/10/20191022-53483218)
 
 [郭文贵2019年10月22日视频 20191022_2聽說王岐山要逃到美國 這兩天國內有甚麼傳言啊?]({{site.baseurl}}/miles/transcript/2019/10/20191022-53479079)
-
-[2019年10月21日文贵大直播全文字版：第一次直播；第二次紧急直播 陈彦霖是枉死，共产党准备了多处灭尸毁证机构]({{site.baseurl}}/miles/transcript/2019/10/20191021-53916881)
-
-[郭文贵2019年10月21日第二次紧急直播 20191021_2陈彦霖是枉死，共产党准备了多处灭尸毁证机构]({{site.baseurl}}/miles/transcript/2019/10/20191021-53483205)
-
-[郭文贵2019年10月21日第一次直播 20191021_1]({{site.baseurl}}/miles/transcript/2019/10/20191021-53483198)
 
 
 ## 頁面 66/111 [**<**]({{site.baseurl}}/miles/transcript/page65) [1]({{site.baseurl}}/miles/transcript/index) ... [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) **66** [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page67)
