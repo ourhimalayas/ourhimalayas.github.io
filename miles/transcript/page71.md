@@ -1,57 +1,57 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 71/111 [**<**]({{site.baseurl}}/miles/transcript/page70) [1]({{site.baseurl}}/miles/transcript/index) ... [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) **71** [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page72)
+## 頁面 71/112 [**<**]({{site.baseurl}}/miles/transcript/page70) [1]({{site.baseurl}}/miles/transcript/index) ... [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) **71** [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page72)
 
-[郭文贵2019年9月8日 20190908美国国会山开山“灭共助港”，李小加港交所期货交易当机玩儿大了！中共如何用通货膨胀奴役中国人民！]({{site.baseurl}}/miles/transcript/2019/09/20190908-53483047)
+[郭文贵2019年9月11日 20190911博尔顿离开白宫内幕！全世界各方面灭共人士灭共力量大聚集！]({{site.baseurl}}/miles/transcript/2019/09/20190911-1093585)
 
-[2019年9月7日郭先生直播，关注香港被抓 被杀的年轻人全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190907-53838874)
+[2019年9月11日文贵大直播全文字版：博尔顿离开白宫内幕！全世界各方面灭共人士灭共力量大聚集！]({{site.baseurl}}/miles/transcript/2019/09/20190911-1098221)
 
-[郭文贵2019年9月7日视频 20190907关注香港被抓、被自杀的年轻人！北京下达死命令：不允许超过100人集会！美国将通过一系列法案支持香港人民！]({{site.baseurl}}/miles/transcript/2019/09/20190907-53483029)
+[郭文贵2019年9月10日视频 20190910_1文贵在凌晨6 00先向大家报平安了，昨天路德的晚餐, 加上他兒子弄壞船上的沙發, 至少毀了我十萬美元, TNND, 非叫路德賠不可]({{site.baseurl}}/miles/transcript/2019/09/20190910-1089510)
 
-[郭文贵2019年9月6日视频 20190906_1中共在香港对全世界发起了金融核战争……这意味着什么？全球联合集体灭共！全民灭共！一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/09/20190906-53478996)
+[郭文贵2019年9月9日第二次直播 20190909_2尊敬的战友们好！你们健身了吗？你们传播香港危机的真相了吗？为什么香港的富豪．被威胁他们隐蔽海外资产共产党可以没收！昨天香港的金融市场再次地被共产党用电脑控制，这意味着什么？]({{site.baseurl}}/miles/transcript/2019/09/20190909-1093564)
 
-[2019年9月5日文贵大直播全文字版：报平安 全球从自动灭共到联合灭共的时代]({{site.baseurl}}/miles/transcript/2019/09/20190905-53819085)
+[郭文贵2019年9月9日第一次直播 20190909_1路德访谈文贵、班农先生：川普会什么时候决定脱钩？马云离开阿里以后的结局？美国到底是否值得中国人民依靠？]({{site.baseurl}}/miles/transcript/2019/09/20190909-1093573)
 
-[2019年9月5日文贵大直播全文字版：回顾自林郑月娥置顶遣返法案，郭先生直播预警，香港69开始游行抗议，CCP派匪警镇压，中国外交部的谎言，美国方面的反应]({{site.baseurl}}/miles/transcript/2019/09/20190905-53819054)
+[2019年9月9日直播为什么香港的富豪被威胁他们隐藏海外资产共产党可以没收全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190909-1098210)
 
-[郭文贵2019年9月5日视频 20190905_1全球从自动灭共到联合灭共]({{site.baseurl}}/miles/transcript/2019/09/20190905-53478994)
+[2019年9月9日 文贵、班农先生谈：川普会什么时候决定脱钩，马云离开阿里以后的结局和美国到底是否值得中国人民依靠全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190909-1098240)
 
-[2019年9月4日文贵大直播全文字版：平安直播“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!]({{site.baseurl}}/miles/transcript/2019/09/20190904-53838528)
+[郭文贵2019年9月8日 20190908美国国会山开山“灭共助港”，李小加港交所期货交易当机玩儿大了！中共如何用通货膨胀奴役中国人民！]({{site.baseurl}}/miles/transcript/2019/09/20190908-1093559)
 
-[郭文贵2019年9月4日直播 20190904“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!]({{site.baseurl}}/miles/transcript/2019/09/20190904-53483020)
+[2019年9月8日 美国国会山开山灭共助港，李小加港交所期货交易内幕，中共如何用通货膨胀奴役中国人民全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190908-1098211)
 
-[2019年9月3日文贵大直播全文字版：第一次在华盛顿直播，谈9月3号CCP将真正对香港进行戒严计划，目前所有焦点都关注香港！]({{site.baseurl}}/miles/transcript/2019/09/20190903-53819161)
+[郭文贵2019年9月7日视频 20190907关注香港被抓、被自杀的年轻人！北京下达死命令：不允许超过100人集会！美国将通过一系列法案支持香港人民！]({{site.baseurl}}/miles/transcript/2019/09/20190907-1093541)
 
-[2019年9月3日文贵大直播全文字版：华盛顿直播：香港将是东西方大战导火线．什么是中共所谓的新型大国关系！]({{site.baseurl}}/miles/transcript/2019/09/20190903-53819121)
+[2019年9月7日郭先生直播，关注香港被抓 被杀的年轻人全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190907-1098215)
 
-[郭文贵2019年9月3日第一次直播 20190903_1香港将是东西方大战导火线．什么是中共所谓的新型大国关系！]({{site.baseurl}}/miles/transcript/2019/09/20190903-53483004)
+[郭文贵2019年9月6日视频 20190906_1中共在香港对全世界发起了金融核战争……这意味着什么？全球联合集体灭共！全民灭共！一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/09/20190906-1089508)
 
-[郭文贵2019年9月3日第二次直播 20190903_2在华盛顿直播，谈9月3号CCP将真正对香港进行戒严计划，目前所有焦点都关注香港！]({{site.baseurl}}/miles/transcript/2019/09/20190903-53482996)
+[郭文贵2019年9月5日视频 20190905_1全球从自动灭共到联合灭共]({{site.baseurl}}/miles/transcript/2019/09/20190905-1089506)
 
-[郭文贵2019年9月3日第三次直播 20190903_3在华盛顿直播，CCP将真正对香港进行戒严计划]({{site.baseurl}}/miles/transcript/2019/09/20190903-53478067)
+[2019年9月5日文贵大直播全文字版：回顾自林郑月娥置顶遣返法案，郭先生直播预警，香港69开始游行抗议，CCP派匪警镇压，中国外交部的谎言，美国方面的反应]({{site.baseurl}}/miles/transcript/2019/09/20190905-1098205)
 
-[郭文贵2019年9月2日图桑报平安 20190902]({{site.baseurl}}/miles/transcript/2019/09/20190902-53482993)
+[2019年9月5日文贵大直播全文字版：报平安 全球从自动灭共到联合灭共的时代]({{site.baseurl}}/miles/transcript/2019/09/20190905-1098206)
 
-[2019年9月1日文贵与班农先生直播习近平与王岐山的攻台计划！全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190901-53839486)
+[郭文贵2019年9月4日直播 20190904“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!]({{site.baseurl}}/miles/transcript/2019/09/20190904-1093532)
 
-[郭文贵2019年9月1日与班农先生直播 20190901共产党香港之外的另一个威胁全世界的计划]({{site.baseurl}}/miles/transcript/2019/09/20190901-53482988)
+[2019年9月4日文贵大直播全文字版：平安直播“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!]({{site.baseurl}}/miles/transcript/2019/09/20190904-1098214)
 
-[郭文贵2019年8月31日视频 20190831_1文贵与班农先生直播，关注831香港]({{site.baseurl}}/miles/transcript/2019/08/20190831-53478992)
+[郭文贵2019年9月3日第三次直播 20190903_3在华盛顿直播，CCP将真正对香港进行戒严计划]({{site.baseurl}}/miles/transcript/2019/09/20190903-1088579)
 
-[2019年8月29日文贵大直播全文字版：中共是恐怖组织白宫已过10万;芬太尼, 假美元是中共3F美国的部分国家行动核心战略]({{site.baseurl}}/miles/transcript/2019/08/20190829-53845136)
+[郭文贵2019年9月3日第二次直播 20190903_2在华盛顿直播，谈9月3号CCP将真正对香港进行戒严计划，目前所有焦点都关注香港！]({{site.baseurl}}/miles/transcript/2019/09/20190903-1093508)
 
-[郭文贵2019年8月29日视频 20190829_3马上起飞往華盛頓了……到了再向战友们报告！一切都是刚刚开始！(二)]({{site.baseurl}}/miles/transcript/2019/08/20190829-53478956)
+[郭文贵2019年9月3日第一次直播 20190903_1香港将是东西方大战导火线．什么是中共所谓的新型大国关系！]({{site.baseurl}}/miles/transcript/2019/09/20190903-1093516)
 
-[郭文贵2019年8月29日视频 20190829_2马上起飞往華盛頓了……到了再向战友们报告！一切都是刚刚开始！(一)]({{site.baseurl}}/miles/transcript/2019/08/20190829-53478952)
+[2019年9月3日文贵大直播全文字版：华盛顿直播：香港将是东西方大战导火线．什么是中共所谓的新型大国关系！]({{site.baseurl}}/miles/transcript/2019/09/20190903-1098207)
 
-[郭文贵2019年8月29日视频 20190829_1王雁平起訴亂倫彪案 解放軍進港]({{site.baseurl}}/miles/transcript/2019/08/20190829-53478948)
+[2019年9月3日文贵大直播全文字版：第一次在华盛顿直播，谈9月3号CCP将真正对香港进行戒严计划，目前所有焦点都关注香港！]({{site.baseurl}}/miles/transcript/2019/09/20190903-1098208)
 
-[2019年08月28日文贵大直播全文字版：解放军军车 装甲车已经开进香港香港已经进入紧急状态]({{site.baseurl}}/miles/transcript/2019/08/20190828-53797352)
+[郭文贵2019年9月2日图桑报平安 20190902]({{site.baseurl}}/miles/transcript/2019/09/20190902-1093505)
 
-[2019年8月28日文贵大直播全文字版：解读香港《戒严法》就是可以随时征用你 随时把你的家人抓起来 随时没收你的所有财产]({{site.baseurl}}/miles/transcript/2019/08/20190828-53797308)
+[郭文贵2019年9月1日与班农先生直播 20190901共产党香港之外的另一个威胁全世界的计划]({{site.baseurl}}/miles/transcript/2019/09/20190901-1093500)
 
-[2019年8月28日文贵大直播全文字版：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？从王雁平女士的案子看中国女人的女权危机……一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/08/20190828-53795560)
+[2019年9月1日文贵与班农先生直播习近平与王岐山的攻台计划！全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190901-1098216)
 
 
-## 頁面 71/111 [**<**]({{site.baseurl}}/miles/transcript/page70) [1]({{site.baseurl}}/miles/transcript/index) ... [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) **71** [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page72)
+## 頁面 71/112 [**<**]({{site.baseurl}}/miles/transcript/page70) [1]({{site.baseurl}}/miles/transcript/index) ... [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) **71** [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page72)

@@ -1,57 +1,57 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 77/111 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page78)
+## 頁面 77/112 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page78)
 
-[2019年7月5日文贵船上直播全文字版：从美国国庆日看中共的假丑黑恶]({{site.baseurl}}/miles/transcript/2019/07/20190705-53570374)
+[郭文贵2019年7月8日视频 20190708_2刚刚完成一个两个小会．现在马上上快船……跨越一个海湾……去另外一个地方开大会，现在正在去见一个牛叉叉的人物……一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/07/20190708-1089300)
 
-[郭文贵2019年7月5日视频 20190705美国最高层“中国人站起来反抗，美国人一定跟上”]({{site.baseurl}}/miles/transcript/2019/07/20190705-53482822)
+[郭文贵2019年7月8日视频 20190708_3灭共的路上……幸福的战斗着]({{site.baseurl}}/miles/transcript/2019/07/20190708-1089302)
 
-[2019年7月3日文贵在华盛顿的车上直播全文字版]({{site.baseurl}}/miles/transcript/2019/07/20190703-53570426)
+[郭文贵2019年7月8日视频 20190708_4文贵开两个小会开一个大会的路上．在船上与战友们聊天]({{site.baseurl}}/miles/transcript/2019/07/20190708-1089307)
 
-[郭文贵2019年7月3日华盛顿车上直播 20190703Miles Kwok broadcast: Why Weishi, Xiong Xianmin, Zhang Wei, Guo Baosheng and...]({{site.baseurl}}/miles/transcript/2019/07/20190703-53482809)
+[郭文贵2019年7月8日视频 20190708文贵是双面间谍？？]({{site.baseurl}}/miles/transcript/2019/07/20190708-1093386)
 
-[郭文贵2019年7月3日视频 20190703_1 (上)韦石．熊宪民．张维．郭宝胜．江涛．为什么敢在联邦法院庭上要杀掉文贵？侮辱威胁文贵？……联邦最有信誉的法官都无可奈何？]({{site.baseurl}}/miles/transcript/2019/07/20190703-53478775)
+[2019年7月8日直播全文字版：文贵在船上讲述在长岛买豪宅借战友和我是不是双料间谍和王健之死合集]({{site.baseurl}}/miles/transcript/2019/07/20190708-1098106)
 
-[郭文贵2019年7月3日视频 20190703_2伪民运为什么敢在法院侮辱威胁文贵 高清部分内容]({{site.baseurl}}/miles/transcript/2019/07/20190703-53478081)
+[郭文贵2019年7月7日视频 20190707_3Snow1]({{site.baseurl}}/miles/transcript/2019/07/20190707-1089291)
 
-[2019年7月2日直播全文字版：此次大阪G20是中美会议当中最紧张、最严肃、最奇怪、最没有确定性的的双边会议]({{site.baseurl}}/miles/transcript/2019/07/20190702-53574108)
+[郭文贵2019年7月7日视频 20190707_4Snow2]({{site.baseurl}}/miles/transcript/2019/07/20190707-1089293)
 
-[郭文贵2019年7月2日视频 20190702_2文贵与班农在白宫北侧．谈今天打赢夏畜生诽谤案的重要标志性意义……这是个改变美国法律历史的事件]({{site.baseurl}}/miles/transcript/2019/07/20190702-53478771)
+[郭文贵2019年7月7日第二次直播 20190707_2王岐山又出手 王健“活该死”；及香港抗议将引发的CCP灭亡第一战的意义]({{site.baseurl}}/miles/transcript/2019/07/20190707-1093369)
 
-[郭文贵2019年7月2日视频 20190702_1据文贵了解和瞎蒙．G20会议．此次大版G20．是中美会议当中最紧张，最严肃．最奇怪．最没有确定性的．的双边会议！后面的故事．很多．该文贵开完庭后，详细向大家汇报，大利爆料革命…]({{site.baseurl}}/miles/transcript/2019/07/20190702-53478766)
+[郭文贵2019年7月7日第一次直播 20190707_1爆料革命当中扮演的重要角色……并希望能给更多战友加入郭媒体……一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/07/20190707-1093377)
 
-[2019年7月1日文贵在DC直播全文字版：讲香港七一大游行合集]({{site.baseurl}}/miles/transcript/2019/07/20190701-53563928)
+[2019年7月7日直播全文字版：聊聊我们的郭媒体，王岐山又出手，王健“活该死”及香港抗议将引发的CCP灭亡第一战的意义合集]({{site.baseurl}}/miles/transcript/2019/07/20190707-1098102)
 
-[郭文贵2019年7月1日视频 20190701_2香港昨天的游行，更加证明了港人不是靠黑手推动追求正义，而是港人抗拒共产党的恶法、和追求法治、自由、民主的力量，而自发的运动]({{site.baseurl}}/miles/transcript/2019/07/20190701-53478761)
+[郭文贵2019年7月6日连线彭文正 20190706Miles live with Dennis Peng - Destroying the CCP to protect Taiwan...]({{site.baseurl}}/miles/transcript/2019/07/20190706-1093356)
 
-[2019 年6月30日郭先生班农先生直播全文字版：谈G20、香港、台湾、北朝鲜]({{site.baseurl}}/miles/transcript/2019/06/20190630-53557790)
+[2019年7月6日直播全文字版：与彭文正先生连线——灭共保台]({{site.baseurl}}/miles/transcript/2019/07/20190706-1098104)
 
-[郭文贵2019年6月30日与班农直播 20190630班农 文贵谈 香港 台湾 北朝鲜]({{site.baseurl}}/miles/transcript/2019/06/20190630-53482770)
+[郭文贵2019年7月5日视频 20190705美国最高层“中国人站起来反抗，美国人一定跟上”]({{site.baseurl}}/miles/transcript/2019/07/20190705-1093334)
 
-[郭文贵2019年6月30日视频 20190630_2班农 文贵谈:G20 香港 台湾 北朝鲜]({{site.baseurl}}/miles/transcript/2019/06/20190630-53478759)
+[2019年7月5日文贵船上直播全文字版：从美国国庆日看中共的假丑黑恶]({{site.baseurl}}/miles/transcript/2019/07/20190705-1098098)
 
-[2019年6月29日郭文贵先生直播全文字版：G20有协议，爆料革命大胜]({{site.baseurl}}/miles/transcript/2019/06/20190629-53560626)
+[郭文贵2019年7月3日视频 20190703_2伪民运为什么敢在法院侮辱威胁文贵 高清部分内容]({{site.baseurl}}/miles/transcript/2019/07/20190703-1088593)
 
-[郭文贵2019年6月29日视频 20190629_1战友们的有关G20的失望情绪．就是我们反共的核心力量表现！也是检验谁是真反共的一个特别事件……一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/06/20190629-53478757)
+[郭文贵2019年7月3日视频 20190703_1 (上)韦石．熊宪民．张维．郭宝胜．江涛．为什么敢在联邦法院庭上要杀掉文贵？侮辱威胁文贵？……联邦最有信誉的法官都无可奈何？]({{site.baseurl}}/miles/transcript/2019/07/20190703-1089287)
 
-[郭文贵2019年6月28日视频 20190628G20]({{site.baseurl}}/miles/transcript/2019/06/20190628-53482757)
+[郭文贵2019年7月3日华盛顿车上直播 20190703Miles Kwok broadcast: Why Weishi, Xiong Xianmin, Zhang Wei, Guo Baosheng and...]({{site.baseurl}}/miles/transcript/2019/07/20190703-1093321)
 
-[郭文贵2019年6月27日视频 20190627_1尊敬的战友好！你们健身了吗？你们往身上泼水了吗？一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/06/20190627-53478753)
+[2019年7月3日文贵在华盛顿的车上直播全文字版]({{site.baseurl}}/miles/transcript/2019/07/20190703-1098099)
 
-[]({{site.baseurl}}/miles/transcript/2019/06/20190626-53552511)
+[郭文贵2019年7月2日视频 20190702_1据文贵了解和瞎蒙．G20会议．此次大版G20．是中美会议当中最紧张，最严肃．最奇怪．最没有确定性的．的双边会议！后面的故事．很多．该文贵开完庭后，详细向大家汇报，大利爆料革命…]({{site.baseurl}}/miles/transcript/2019/07/20190702-1089278)
 
-[郭文贵2019年6月26日视频 20190626谈香港游行的中共黑手，东南西北四方围剿中共正在收网]({{site.baseurl}}/miles/transcript/2019/06/20190626-53482733)
+[郭文贵2019年7月2日视频 20190702_2文贵与班农在白宫北侧．谈今天打赢夏畜生诽谤案的重要标志性意义……这是个改变美国法律历史的事件]({{site.baseurl}}/miles/transcript/2019/07/20190702-1089283)
 
-[2019年6月25日郭文贵先生直播全文字版：从香港的成功抗议行动，和近几天共产党的统一宣传口径，让我们看到了过去两年爆料革命所面临的挑战！]({{site.baseurl}}/miles/transcript/2019/06/20190625-53545804)
+[2019年7月2日直播全文字版：此次大阪G20是中美会议当中最紧张、最严肃、最奇怪、最没有确定性的的双边会议]({{site.baseurl}}/miles/transcript/2019/07/20190702-1098100)
 
-[郭文贵2019年6月25日视频 20190625从香港的成功抗议行动！和近几天共产党的统一宣传口径！让我们看到了过去两年爆料革命所面临的挑战和！但是我们赢了过去的两年……以法灭共．以美灭共……郭七条．是我们最核心的战略！]({{site.baseurl}}/miles/transcript/2019/06/20190625-53482714)
+[郭文贵2019年7月1日视频 20190701_2香港昨天的游行，更加证明了港人不是靠黑手推动追求正义，而是港人抗拒共产党的恶法、和追求法治、自由、民主的力量，而自发的运动]({{site.baseurl}}/miles/transcript/2019/07/20190701-1089273)
 
-[2019年6月23日郭文贵先生直播全文字版：念从心起，力量无比；念念不忘，必有回响]({{site.baseurl}}/miles/transcript/2019/06/20190623-53545815)
+[郭文贵2019年7月1日视频 20190701谈七.一香港大游行 Miles Kwok DC Broadcast on 7.1 Hong Kong Protest]({{site.baseurl}}/miles/transcript/2019/07/20190701-1093295)
 
-[郭文贵2019年6月23日视频 20190623聊聊细丝小哥和庄列宏先生这＂两只黑手＂路德先生直播中发生的紧急事件。念从心起 力量无比 念念不忘 必有回响]({{site.baseurl}}/miles/transcript/2019/06/20190623-53482704)
+[2019年7月1日文贵在DC直播全文字版：讲香港七一大游行合集]({{site.baseurl}}/miles/transcript/2019/07/20190701-1098096)
 
-[2019年6月22日文贵直播全文字版：中共如何和塔利班共同反恐]({{site.baseurl}}/miles/transcript/2019/06/20190622-53542530)
+[2019 年6月30日郭先生班农先生直播全文字版：谈G20、香港、台湾、北朝鲜]({{site.baseurl}}/miles/transcript/2019/06/20190630-1098093)
 
 
-## 頁面 77/111 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page78)
+## 頁面 77/112 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page78)

@@ -1,57 +1,57 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 102/111 [**<**]({{site.baseurl}}/miles/transcript/page101) [1]({{site.baseurl}}/miles/transcript/index) ... [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) **102** [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page103)
+## 頁面 102/112 [**<**]({{site.baseurl}}/miles/transcript/page101) [1]({{site.baseurl}}/miles/transcript/index) ... [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) **102** [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page103)
 
-[郭文贵2018年1月30日第三次直播 20180130_3国内的很多战友给我发来信息．问文贵看春晚的节目的重点是什么现在我向大家汇报！]({{site.baseurl}}/miles/transcript/2018/01/20180130-53484108)
+[郭文贵2018年2月7日第二次直播 20180207_2再谈陈军先生和流氓袁健斌，吴征陷害文贵！再次感谢战友们发来的有关河北高院和政法委书记犯罪腐败证据]({{site.baseurl}}/miles/transcript/2018/02/20180207-1094566)
 
-[郭文贵2018年1月29日直播 20180129_1郭媒体视频郭文贵先生春节晚会节目预告]({{site.baseurl}}/miles/transcript/2018/01/20180129-53482796)
+[郭文贵2018年2月6日第二次直播 20180206_2再次呼吁战友们提供有关韦石、西诺、陈闯创、胡平利用办理假政庇骗钱的证据！一个把老婆放在大街上让人“乱干”的人不可能为大家“干出”民主自由！]({{site.baseurl}}/miles/transcript/2018/02/20180206-1094471)
 
-[郭文贵2018年1月28日直播 20180128_1郭媒体最新测试视频钓贼完整版]({{site.baseurl}}/miles/transcript/2018/01/20180128-53482792)
+[郭文贵2018年2月6日第一次直播 20180206_1有关河北高院院长卫彦明]({{site.baseurl}}/miles/transcript/2018/02/20180206-1094476)
 
-[郭文贵2018年1月28日视频 20180128_2Snow太可爱了]({{site.baseurl}}/miles/transcript/2018/01/20180128-53477374)
+[郭文贵2018年2月6日第三次直播 20180206_3向大家报告关于今天2月6日取消与陈军先生见面的过程！]({{site.baseurl}}/miles/transcript/2018/02/20180206-1094562)
 
-[郭文贵2018年1月27日视频 20180127尊敬的战友们你们好，你们健身了吗]({{site.baseurl}}/miles/transcript/2018/01/20180127-53477366)
+[郭文贵2018年2月5日第一次直播 20180205_1假民运分子利用真正英雄的死亡，和他们付出生命的代价，发财的时代必须结束！我们必须要让这些无人性的伪类们付出代价，一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/02/20180205-1094470)
 
-[郭文贵2018年1月21日直播 20180121_1]({{site.baseurl}}/miles/transcript/2018/01/20180121-53482787)
+[郭文贵2018年2月5日第三次直播 20180205_3文贵现金悬赏．提供假民运分子利用假证屁文件．欺骗同胞．违法美国法律．给同胞造成伤害和损失证据！希望所有的战友们口口相传共同打击假民运！假政庇！]({{site.baseurl}}/miles/transcript/2018/02/20180205-1094556)
 
-[郭文贵2018年1月19日视频 20180119_2文贵现在回答很多战友们关心文贵看春晚的节目的安排．的大概情况．谢谢大家的关心关注]({{site.baseurl}}/miles/transcript/2018/01/20180119-53477387)
+[郭文贵2018年2月5日第二次直播 20180205_2文贵浅谈，曹长青先生被断访．这是上天赐给我们的又一个礼物！]({{site.baseurl}}/miles/transcript/2018/02/20180205-1094720)
 
-[郭文贵2018年1月19日视频 20180119_1文贵现在回答很多战友关心的．我刚刚起诉了吴征先生先生的代表律师事务所．为什么用的是达赖喇嘛尊者和中国南海争议的代表同一家律师事务所！]({{site.baseurl}}/miles/transcript/2018/01/20180119-53477382)
+[郭文贵2018年2月4日直播 20180204_2连线美东 庆祝爆料一周年]({{site.baseurl}}/miles/transcript/2018/02/20180204-1093326)
 
-[郭文贵2018年1月18日视频 20180118时间飞逝 文贵先生宠物狗snow的成长全记录]({{site.baseurl}}/miles/transcript/2018/01/20180118-53477351)
+[郭文贵2018年2月4日视频 20180204谈陈军欲谋害文贵与明镜和何频的关系]({{site.baseurl}}/miles/transcript/2018/02/20180204-1094553)
 
-[郭文贵2018年1月15日视频 20180115谈蓝金黄陈小平的夫人，孟建柱、王歧山一手策划假报习家财富]({{site.baseurl}}/miles/transcript/2018/01/20180115-53483963)
+[郭文贵2018年2月3日视频 20180203陈军、袁建斌欲害文贵之背景；与博讯、明镜、陈小平、何频之关系！]({{site.baseurl}}/miles/transcript/2018/02/20180203-1094549)
 
-[郭文贵2018年1月13日 20180113加拿大挺郭后援会2018年首次挺郭聚会（2）]({{site.baseurl}}/miles/transcript/2018/01/20180113-53484199)
+[郭文贵2018年2月1日 20180201_2 很快将爆光何频身边的陈军, 曾计划谋杀文贵]({{site.baseurl}}/miles/transcript/2018/02/20180201-1091866)
 
-[郭文贵2018年1月11日直播 20180111_2]({{site.baseurl}}/miles/transcript/2018/01/20180111-53482825)
+[郭文贵2018年2月1日 20180201为什么有假郭媒体网站，诚征春晚节目，请网友踊跃投稿]({{site.baseurl}}/miles/transcript/2018/02/20180201-1094627)
 
-[郭文贵2018年1月11日直播 20180111_1]({{site.baseurl}}/miles/transcript/2018/01/20180111-53482823)
+[郭文贵2018年1月31日视频 20180131尊敬的战友们好！文贵现在回答很多战友问题．是否可以参与文贵看春晚的节目！]({{site.baseurl}}/miles/transcript/2018/01/20180131-1094460)
 
-[郭文贵2018年1月4日 20180104郭先生谈习近平李克强的女儿进北大背后的故事]({{site.baseurl}}/miles/transcript/2018/01/20180104-53483978)
+[郭文贵2018年1月30日第三次直播 20180130_3国内的很多战友给我发来信息．问文贵看春晚的节目的重点是什么现在我向大家汇报！]({{site.baseurl}}/miles/transcript/2018/01/20180130-1094620)
 
-[郭文贵2018年1月3日视频 20180103郭文贵先生遥㊗️澳洲挺郭后援会新年快乐！呼吁放下私心，团结一致，克服恐惧，排除干扰，一起走向喜马拉雅！]({{site.baseurl}}/miles/transcript/2018/01/20180103-53484197)
+[郭文贵2018年1月30日第二次直播 20180130_2回应“盲流子”视频，披露相关背景；谈王岐山“复出”和“文贵春晚”。]({{site.baseurl}}/miles/transcript/2018/01/20180130-1094622)
 
-[郭文贵2018年1月3日视频 20180103_2接受日本媒体采访说日语]({{site.baseurl}}/miles/transcript/2018/01/20180103-53476960)
+[郭文贵2018年1月30日第一次直播 20180130_1关于盲流子爆料]({{site.baseurl}}/miles/transcript/2018/01/20180130-1094716)
 
-[郭文贵2017年12月30日直播 20171230_1]({{site.baseurl}}/miles/transcript/2017/12/20171230-53482820)
+[郭文贵2018年1月29日直播 20180129_1郭媒体视频郭文贵先生春节晚会节目预告]({{site.baseurl}}/miles/transcript/2018/01/20180129-1093308)
 
-[郭文贵2017年12月25日直播 20171225_1我们拥有世界上最棒的战斗装及战斗工具]({{site.baseurl}}/miles/transcript/2017/12/20171225-53482818)
+[郭文贵2018年1月28日视频 20180128_2Snow太可爱了]({{site.baseurl}}/miles/transcript/2018/01/20180128-1087886)
 
-[郭文贵2017年12月23日 20171223关于盘古被掠夺、蛆聋等8个伪类的诉讼，以及下一步的爆料计划，文贵向北京再次提出条件]({{site.baseurl}}/miles/transcript/2017/12/20171223-53483967)
+[郭文贵2018年1月28日直播 20180128_1郭媒体最新测试视频钓贼完整版]({{site.baseurl}}/miles/transcript/2018/01/20180128-1093304)
 
-[郭文贵2017年12月12日 20171212文贵给即将在大连被冤审的员工及家人的誓言；谈小平妻子失踪，法新社采访，华涌及乱运8分子]({{site.baseurl}}/miles/transcript/2017/12/20171212-53483946)
+[郭文贵2018年1月27日视频 20180127尊敬的战友们你们好，你们健身了吗]({{site.baseurl}}/miles/transcript/2018/01/20180127-1087878)
 
-[郭文贵2017年12月9日 20171209纽约下大雪了！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2017/12/20171209-53483940)
+[郭文贵2018年1月21日直播 20180121_1]({{site.baseurl}}/miles/transcript/2018/01/20180121-1093299)
 
-[郭文贵2017年12月8日视频 20171208一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2017/12/20171208-53483937)
+[郭文贵2018年1月19日视频 20180119_1文贵现在回答很多战友关心的．我刚刚起诉了吴征先生先生的代表律师事务所．为什么用的是达赖喇嘛尊者和中国南海争议的代表同一家律师事务所！]({{site.baseurl}}/miles/transcript/2018/01/20180119-1087894)
 
-[郭文贵2017年12月5日 20171205尊敬的推友们你们健身了吗？]({{site.baseurl}}/miles/transcript/2017/12/20171205-53483933)
+[郭文贵2018年1月19日视频 20180119_2文贵现在回答很多战友们关心文贵看春晚的节目的安排．的大概情况．谢谢大家的关心关注]({{site.baseurl}}/miles/transcript/2018/01/20180119-1087899)
 
-[郭文贵2017年12月2日视频 20171202]({{site.baseurl}}/miles/transcript/2017/12/20171202-53483932)
+[郭文贵2018年1月18日视频 20180118时间飞逝 文贵先生宠物狗snow的成长全记录]({{site.baseurl}}/miles/transcript/2018/01/20180118-1087863)
 
-[郭文贵2017年11月27日 20171127郭文贵纽约的房子的价格为什么发生了问题？]({{site.baseurl}}/miles/transcript/2017/11/20171127-53483927)
+[郭文贵2018年1月15日视频 20180115谈蓝金黄陈小平的夫人，孟建柱、王歧山一手策划假报习家财富]({{site.baseurl}}/miles/transcript/2018/01/20180115-1094475)
 
 
-## 頁面 102/111 [**<**]({{site.baseurl}}/miles/transcript/page101) [1]({{site.baseurl}}/miles/transcript/index) ... [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) **102** [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page103)
+## 頁面 102/112 [**<**]({{site.baseurl}}/miles/transcript/page101) [1]({{site.baseurl}}/miles/transcript/index) ... [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) **102** [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page103)
