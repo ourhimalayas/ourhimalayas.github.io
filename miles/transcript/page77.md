@@ -1,13 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 77/112 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page78)
-
-[郭文贵2019年7月8日视频 20190708_2刚刚完成一个两个小会．现在马上上快船……跨越一个海湾……去另外一个地方开大会，现在正在去见一个牛叉叉的人物……一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/07/20190708-1089300)
-
-[郭文贵2019年7月8日视频 20190708_3灭共的路上……幸福的战斗着]({{site.baseurl}}/miles/transcript/2019/07/20190708-1089302)
-
-[郭文贵2019年7月8日视频 20190708_4文贵开两个小会开一个大会的路上．在船上与战友们聊天]({{site.baseurl}}/miles/transcript/2019/07/20190708-1089307)
+## 頁面 77/111 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page78)
 
 [郭文贵2019年7月8日视频 20190708文贵是双面间谍？？]({{site.baseurl}}/miles/transcript/2019/07/20190708-1093386)
 
@@ -53,5 +47,11 @@ title: 郭文貴先生的視頻文字
 
 [2019 年6月30日郭先生班农先生直播全文字版：谈G20、香港、台湾、北朝鲜]({{site.baseurl}}/miles/transcript/2019/06/20190630-1098093)
 
+[郭文贵2019年6月30日视频 20190630_2班农 文贵谈:G20 香港 台湾 北朝鲜]({{site.baseurl}}/miles/transcript/2019/06/20190630-1089271)
 
-## 頁面 77/112 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page78)
+[郭文贵2019年6月30日与班农直播 20190630班农 文贵谈 香港 台湾 北朝鲜]({{site.baseurl}}/miles/transcript/2019/06/20190630-1093282)
+
+[郭文贵2019年6月29日视频 20190629_1战友们的有关G20的失望情绪．就是我们反共的核心力量表现！也是检验谁是真反共的一个特别事件……一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/06/20190629-1089269)
+
+
+## 頁面 77/111 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page78)

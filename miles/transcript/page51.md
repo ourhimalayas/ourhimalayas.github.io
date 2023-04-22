@@ -1,13 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 51/112 [**<**]({{site.baseurl}}/miles/transcript/page50) [1]({{site.baseurl}}/miles/transcript/index) ... [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) **51** [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page52)
-
-[郭文贵2020年7月11日视频 20200711_6我终于明白了为什么在三个小时前我船的旁边突然间出现了彩虹️天佑中华儿女️天佑️新中国联邦]({{site.baseurl}}/miles/transcript/2020/07/20200711-1089943)
-
-[郭文贵2020年7月10日视频 20200710_1文贵先生再次参加班农战斗室节目片段（1）]({{site.baseurl}}/miles/transcript/2020/07/20200710-1089907)
-
-[郭文贵2020年7月10日视频 20200710_2文贵先生再次参加班农战斗室节目片段（2）]({{site.baseurl}}/miles/transcript/2020/07/20200710-1089909)
+## 頁面 51/111 [**<**]({{site.baseurl}}/miles/transcript/page50) [1]({{site.baseurl}}/miles/transcript/index) ... [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) **51** [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page52)
 
 [郭文贵2020年7月10日视频 20200710_3文贵先生再次参加班农战斗室节目片段（3）]({{site.baseurl}}/miles/transcript/2020/07/20200710-1089910)
 
@@ -53,5 +47,11 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2020年6月28日直播 20200628香港问责法案最后一分钟被大打折扣；成功营救郝海东之子：GTV投资进展；中共对付新中国联邦的烂招]({{site.baseurl}}/miles/transcript/2020/06/20200628-1092167)
 
+[郭文贵2020年6月25日直播 20200625_1杨洁篪来美国都说了什么？共产党最快三个月彻底灭亡！]({{site.baseurl}}/miles/transcript/2020/06/20200625-1092129)
 
-## 頁面 51/112 [**<**]({{site.baseurl}}/miles/transcript/page50) [1]({{site.baseurl}}/miles/transcript/index) ... [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) **51** [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page52)
+[郭文贵2020年6月25日直播 20200625_2夏威夷会面杨洁篪再次的威胁，美国和将华人都列为犯罪分子的背后故事]({{site.baseurl}}/miles/transcript/2020/06/20200625-1092221)
+
+[郭文贵2020年6月24日视频 20200624_1文贵与战友们分享今天媳妇做的大锅菜]({{site.baseurl}}/miles/transcript/2020/06/20200624-1089886)
+
+
+## 頁面 51/111 [**<**]({{site.baseurl}}/miles/transcript/page50) [1]({{site.baseurl}}/miles/transcript/index) ... [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) **51** [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page52)

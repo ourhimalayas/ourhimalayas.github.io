@@ -1,15 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 40/112 [**<**]({{site.baseurl}}/miles/transcript/page39) [1]({{site.baseurl}}/miles/transcript/index) ... [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) **40** [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page41)
-
-[郭文贵2021年1月6日直播 20210106_2文贵直播：美国大选决战时刻（二）]({{site.baseurl}}/miles/transcript/2021/01/20210106-1090322)
-
-[郭文贵2021年1月5日盖特 20210105_1北京在过去24小时发生了什么？华尔街为什么出尔反尔……取消对中共的电信公司的制裁，一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/01/20210105-1090295)
-
-[郭文贵2021年1月4日直播 20210104_1]({{site.baseurl}}/miles/transcript/2021/01/20210104-1090265)
-
-[郭文贵2021年1月4日盖特 20210104_2刚刚直播当中忘掉两个问题在这里向战友们再报告一下，希望战友们高度配合．喜马拉雅联盟委员会的战友之家．为战友们解决麻烦！和提供可靠的帮助！]({{site.baseurl}}/miles/transcript/2021/01/20210104-1090267)
+## 頁面 40/111 [**<**]({{site.baseurl}}/miles/transcript/page39) [1]({{site.baseurl}}/miles/transcript/index) ... [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) **40** [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page41)
 
 [郭文贵2021年1月3日盖特 20210103_1爆料革命又为美国做出了巨大贡献。唯真不破就是爆料革命百战百胜的法宝……爆料革命的跟随者将如海啸般的爆发，一切都已经开始]({{site.baseurl}}/miles/transcript/2021/01/20210103-1090261)
 
@@ -53,5 +45,13 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2020年12月26日音频聊天 20201226_4郭先生喜马拉雅大使馆discord群答疑录音]({{site.baseurl}}/miles/transcript/2020/12/20201226-1090156)
 
+[郭文贵2020年12月26日盖特 20201226_5我们战友中藏龙卧虎，新中国联邦和爆料革命的力量……正在发挥着不可估量的拯救全世界……和全中国人民的作用……没有方方面面的战友的付出……文贵和爆料革命不可能走到今天……什么都]({{site.baseurl}}/miles/transcript/2020/12/20201226-1090158)
 
-## 頁面 40/112 [**<**]({{site.baseurl}}/miles/transcript/page39) [1]({{site.baseurl}}/miles/transcript/index) ... [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) **40** [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page41)
+[郭文贵2020年12月25日直播 20201225_1文贵圣诞直播]({{site.baseurl}}/miles/transcript/2020/12/20201225-1090148)
+
+[郭文贵2020年12月25日音频聊天 20201225_2郭先生喜马拉雅大使馆discord群答疑录音]({{site.baseurl}}/miles/transcript/2020/12/20201225-1090289)
+
+[郭文贵2020年12月24日盖特 20201224_4郝海東夫婦中大獎了 買了八個中了三個20201224之4]({{site.baseurl}}/miles/transcript/2020/12/20201224-1089734)
+
+
+## 頁面 40/111 [**<**]({{site.baseurl}}/miles/transcript/page39) [1]({{site.baseurl}}/miles/transcript/index) ... [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) **40** [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page41)

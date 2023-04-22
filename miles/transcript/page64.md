@@ -1,13 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 64/112 [**<**]({{site.baseurl}}/miles/transcript/page63) [1]({{site.baseurl}}/miles/transcript/index) ... [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) **64** [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page65)
-
-[郭文贵2019年11月24日视频 20191124_4 燉魚頭慶賀香港區議員選舉大贏]({{site.baseurl}}/miles/transcript/2019/11/20191124-1089675)
-
-[郭文贵2019年11月24日 20191124马装助威香港公投选举议员]({{site.baseurl}}/miles/transcript/2019/11/20191124-1093943)
-
-[郭文贵2019年11月23日视频 20191123川普总统在福克斯电台爆料习近平对港举动震惊了全世界]({{site.baseurl}}/miles/transcript/2019/11/20191123-1094161)
+## 頁面 64/111 [**<**]({{site.baseurl}}/miles/transcript/page63) [1]({{site.baseurl}}/miles/transcript/index) ... [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) **64** [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page65)
 
 [郭文贵2019年11月22日视频 20191122_1Snow 尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？文贵今天上午没有直播，一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/11/20191122-1089670)
 
@@ -53,5 +47,11 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年11月14日第二次直播 20191114_2香港一定赢！三分钟香港抗议实况]({{site.baseurl}}/miles/transcript/2019/11/20191114-1093952)
 
+[郭文贵2019年11月14日第一次直播 20191114_1]({{site.baseurl}}/miles/transcript/2019/11/20191114-1093958)
 
-## 頁面 64/112 [**<**]({{site.baseurl}}/miles/transcript/page63) [1]({{site.baseurl}}/miles/transcript/index) ... [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) **64** [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page65)
+[2019年11月12日文贵大直播全文字版：关于香港最新局势紧急直播]({{site.baseurl}}/miles/transcript/2019/11/20191112-1078972)
+
+[郭文贵2019年11月12日视频 20191112关于香港最新局势紧急直播]({{site.baseurl}}/miles/transcript/2019/11/20191112-1093948)
+
+
+## 頁面 64/111 [**<**]({{site.baseurl}}/miles/transcript/page63) [1]({{site.baseurl}}/miles/transcript/index) ... [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) **64** [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page65)

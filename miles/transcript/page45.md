@@ -1,13 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 45/112 [**<**]({{site.baseurl}}/miles/transcript/page44) [1]({{site.baseurl}}/miles/transcript/index) ... [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) **45** [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page46)
-
-[郭文贵2020年10月13日直播 20201013文贵关于Gclub和GFashion上线前有关问题的声明直播]({{site.baseurl}}/miles/transcript/2020/10/20201013-1093154)
-
-[郭文贵2020年10月12日盖特 20201012_1爆料革命这碗洒……????????????敬天．敬地．敬战友！]({{site.baseurl}}/miles/transcript/2020/10/20201012-1093124)
-
-[郭文贵2020年10月12日盖特 20201012_2尊敬的战友们好，全球自发的惩贼．要真相．维护华人形象的现象．已经得到了很多正义的有识之士！和法律人士！的绝对的支持……我们]({{site.baseurl}}/miles/transcript/2020/10/20201012-1093129)
+## 頁面 45/111 [**<**]({{site.baseurl}}/miles/transcript/page44) [1]({{site.baseurl}}/miles/transcript/index) ... [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) **45** [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page46)
 
 [郭文贵2020年10月9日盖特 20201009尊敬的战友们好……任何事情，只要依法做事，没有任何人可以伤害我们——我们要绝对的相信美国的司法系统！在美国的法律面前绝对人人]({{site.baseurl}}/miles/transcript/2020/10/20201009-1093105)
 
@@ -53,5 +47,11 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2020年9月20日直播 20200920_2各农场加入的标准；对近期重大事件的解读]({{site.baseurl}}/miles/transcript/2020/09/20200920-1092944)
 
+[郭文贵2020年9月19日做客战斗室 20200919_7班农战斗室 郭文贵专场 E395 中文整理]({{site.baseurl}}/miles/transcript/2020/09/20200919-1092855)
 
-## 頁面 45/112 [**<**]({{site.baseurl}}/miles/transcript/page44) [1]({{site.baseurl}}/miles/transcript/index) ... [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) **45** [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page46)
+[郭文贵2020年9月19日直播 20200919_1谈班农百岁老父亲献给路德节目处男秀，强力支持灭共的感受（一）]({{site.baseurl}}/miles/transcript/2020/09/20200919-1092924)
+
+[郭文贵2020年9月19日直播 20200919_2谈班农百岁老父亲献给路德节目处男秀，强力支持灭共的感受（二）]({{site.baseurl}}/miles/transcript/2020/09/20200919-1092930)
+
+
+## 頁面 45/111 [**<**]({{site.baseurl}}/miles/transcript/page44) [1]({{site.baseurl}}/miles/transcript/index) ... [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) **45** [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page46)

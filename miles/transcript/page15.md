@@ -1,15 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 15/112 [**<**]({{site.baseurl}}/miles/transcript/page14) [1]({{site.baseurl}}/miles/transcript/index) ... [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) **15** [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page16)
-
-[郭文贵2021年11月16日盖特直播 20211116_2无论是对神和人都要兑现你的承诺]({{site.baseurl}}/miles/transcript/2021/11/20211116-1093626)
-
-[郭文贵2021年11月15日盖特 20211115_1尊敬的战友们好，你们健身了吗？传播C C P病毒和疫苗解药的真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/11/20211115-1093600)
-
-[郭文贵2021年11月15日盖特 20211115_2尊敬的战友们好，全世界都在准备着……共产党擀面杖子的虚假经济．即将崩塌，而准备各自的经济大逃亡……]({{site.baseurl}}/miles/transcript/2021/11/20211115-1093604)
-
-[郭文贵2021年11月15日盖特 20211115_3尊敬的战友们好，我们开始吃馍馍．吃饭饭喽……]({{site.baseurl}}/miles/transcript/2021/11/20211115-1093610)
+## 頁面 15/111 [**<**]({{site.baseurl}}/miles/transcript/page14) [1]({{site.baseurl}}/miles/transcript/index) ... [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) **15** [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page16)
 
 [郭文贵2021年11月15日盖特 20211115_4应战友们的要求……发一个SNOW 的小视频????]({{site.baseurl}}/miles/transcript/2021/11/20211115-1093618)
 
@@ -53,5 +45,13 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2021年11月3日直播 20211103_1彭帅爆张高丽丑闻，再次验证爆料革命的真实性；喜交所的上市标志着新中国联邦的中央银行，铸币中心成立了，这是新中国联邦人永远的财产；房地产税会灭国灭党；共和党在弗吉尼亚州长竞选]({{site.baseurl}}/miles/transcript/2021/11/20211103-1094164)
 
+[郭文贵2021年11月2日盖特 20211102_1尊敬的战友们好！永远不要忘了灭共是我们的最终使命！建立一个让中国有独立的法治……信仰的自由．民主的社会的新中国联邦共和国，是我们的信仰，和必须实现的目标，一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/11/20211102-1093543)
 
-## 頁面 15/112 [**<**]({{site.baseurl}}/miles/transcript/page14) [1]({{site.baseurl}}/miles/transcript/index) ... [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) **15** [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page16)
+[郭文贵2021年11月2日盖特直播 20211102_2]({{site.baseurl}}/miles/transcript/2021/11/20211102-1093546)
+
+[郭文贵2021年11月1日直播 20211101_1“HCOIN TO THE MOON” 喜马拉雅币上市庆典 （上）]({{site.baseurl}}/miles/transcript/2021/11/20211101-1093905)
+
+[郭文贵2021年11月1日直播 20211101_2“HCOIN TO THE MOON” 喜马拉雅币上市庆典 （下）]({{site.baseurl}}/miles/transcript/2021/11/20211101-1094058)
+
+
+## 頁面 15/111 [**<**]({{site.baseurl}}/miles/transcript/page14) [1]({{site.baseurl}}/miles/transcript/index) ... [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) **15** [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page16)

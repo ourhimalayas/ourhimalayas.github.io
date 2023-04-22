@@ -1,15 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 23/112 [**<**]({{site.baseurl}}/miles/transcript/page22) [1]({{site.baseurl}}/miles/transcript/index) ... [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) **23** [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page24)
-
-[郭文贵2021年8月3日盖特 20210803_2尊敬的战友们好：你们健身了吗？]({{site.baseurl}}/miles/transcript/2021/08/20210803-1092160)
-
-[郭文贵2021年8月2日盖特 20210802_1灭共灭贼容易·替SNOW理发难呢？]({{site.baseurl}}/miles/transcript/2021/08/20210802-1092140)
-
-[郭文贵2021年8月2日盖特 20210802_2灭共灭贼容易·替SNOW理发难呢？但是爱．耐心．执着……能让狗比人还懂事．识大体！有些人真不如狗！]({{site.baseurl}}/miles/transcript/2021/08/20210802-1092143)
-
-[郭文贵2021年8月2日盖特 20210802_3【有人还记得2017年每次郭先生直播时国内都大规模切断外网吗？每次直播刚开始，绝大部分VPN都失效，直到直播结束后几个小时才陆陆续续恢复。很多数码博主还在微博上讨论为什么经常在晚上所]({{site.baseurl}}/miles/transcript/2021/08/20210802-1092145)
+## 頁面 23/111 [**<**]({{site.baseurl}}/miles/transcript/page22) [1]({{site.baseurl}}/miles/transcript/index) ... [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) **23** [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page24)
 
 [郭文贵2021年8月2日盖特 20210802_4尊敬的战友们好，你们健身了吗？传播C C P病毒……香港危机真相．郑州人祸危机了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/08/20210802-1092150)
 
@@ -53,5 +45,13 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2021年7月27日盖特 20210727_4我要干什么呢？]({{site.baseurl}}/miles/transcript/2021/07/20210727-1091792)
 
+[郭文贵2021年7月27日盖特 20210727_5仅有的几瓶LATACHE拉他喜2000特别版．特制路易十三……BEVERLY HLLN酒店…….梦想成真大厅！准备干嘛呀！]({{site.baseurl}}/miles/transcript/2021/07/20210727-1091835)
 
-## 頁面 23/112 [**<**]({{site.baseurl}}/miles/transcript/page22) [1]({{site.baseurl}}/miles/transcript/index) ... [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) **23** [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page24)
+[郭文贵2021年7月25日盖特 20210725_1尊敬的战友们好，你们传播共产党的人道灾难的真相了吗？所有国内的同胞战友们回避．辛丑年最大的人灾和天祸的方式就是回到二三线的城市．远离城市中心．做好整个国家未来粮食短缺，药品]({{site.baseurl}}/miles/transcript/2021/07/20210725-1091784)
+
+[郭文贵2021年7月24日盖特 20210724_2这次在路大骗子和蛇妖闫的问题上站错立场的，爆料革命和新中国联邦不接受任何理由的道歉]({{site.baseurl}}/miles/transcript/2021/07/20210724-1091773)
+
+[郭文贵2021年7月24日盖特 20210724_3准备对诀海东兄弟的足球！]({{site.baseurl}}/miles/transcript/2021/07/20210724-1091776)
+
+
+## 頁面 23/111 [**<**]({{site.baseurl}}/miles/transcript/page22) [1]({{site.baseurl}}/miles/transcript/index) ... [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) **23** [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page24)

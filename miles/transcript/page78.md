@@ -1,13 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 78/112 [**<**]({{site.baseurl}}/miles/transcript/page77) [1]({{site.baseurl}}/miles/transcript/index) ... [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) **78** [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page79)
-
-[郭文贵2019年6月30日视频 20190630_2班农 文贵谈:G20 香港 台湾 北朝鲜]({{site.baseurl}}/miles/transcript/2019/06/20190630-1089271)
-
-[郭文贵2019年6月30日与班农直播 20190630班农 文贵谈 香港 台湾 北朝鲜]({{site.baseurl}}/miles/transcript/2019/06/20190630-1093282)
-
-[郭文贵2019年6月29日视频 20190629_1战友们的有关G20的失望情绪．就是我们反共的核心力量表现！也是检验谁是真反共的一个特别事件……一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/06/20190629-1089269)
+## 頁面 78/111 [**<**]({{site.baseurl}}/miles/transcript/page77) [1]({{site.baseurl}}/miles/transcript/index) ... [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) **78** [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page79)
 
 [2019年6月29日郭文贵先生直播全文字版：G20有协议，爆料革命大胜]({{site.baseurl}}/miles/transcript/2019/06/20190629-1098095)
 
@@ -53,5 +47,11 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年6月14日 20190614林郑月娥提出辞职，取消”逃犯条例”；叶刘淑仪提出硬挺通过”逃犯条例”]({{site.baseurl}}/miles/transcript/2019/06/20190614-1093261)
 
+[2019年6月14日郭文贵先生直播全文听写：林郑月娥必须提出辞职，取消“逃犯条例”]({{site.baseurl}}/miles/transcript/2019/06/20190614-1098081)
 
-## 頁面 78/112 [**<**]({{site.baseurl}}/miles/transcript/page77) [1]({{site.baseurl}}/miles/transcript/index) ... [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) **78** [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page79)
+[郭文贵2019年6月13日视频 20190613_5测试细丝和庄烈宏]({{site.baseurl}}/miles/transcript/2019/06/20190613-1088596)
+
+[郭文贵2019年6月13日视频 20190613_4]({{site.baseurl}}/miles/transcript/2019/06/20190613-1089259)
+
+
+## 頁面 78/111 [**<**]({{site.baseurl}}/miles/transcript/page77) [1]({{site.baseurl}}/miles/transcript/index) ... [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) **78** [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page79)

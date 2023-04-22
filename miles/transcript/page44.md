@@ -1,13 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 44/112 [**<**]({{site.baseurl}}/miles/transcript/page43) [1]({{site.baseurl}}/miles/transcript/index) ... [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) **44** [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page45)
-
-[郭文贵2020年11月15日盖特 20201115_2衷心地感谢新……中新国联邦人．为我们中国人．在11月14号在华盛顿地区的游行中展示的团结．伟大的精神面貌！]({{site.baseurl}}/miles/transcript/2020/11/20201115-1093183)
-
-[郭文贵2020年11月15日盖特 20201115_32心地感谢新……中新国联邦人．为我们中国人．在11月14号在华盛顿地区的游行中展示的团结．伟大的精神面貌！]({{site.baseurl}}/miles/transcript/2020/11/20201115-1093185)
-
-[郭文贵2020年11月15日直播 20201115_4连线唐平，威廉王]({{site.baseurl}}/miles/transcript/2020/11/20201115-1093212)
+## 頁面 44/111 [**<**]({{site.baseurl}}/miles/transcript/page43) [1]({{site.baseurl}}/miles/transcript/index) ... [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) **44** [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page45)
 
 [郭文贵2020年11月14日直播 20201114_1]({{site.baseurl}}/miles/transcript/2020/11/20201114-1093157)
 
@@ -53,5 +47,11 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2020年10月14日盖特 20201014兄弟姐妹们你们可搂住、明天放亨特拜登照片的时候......很黄很黄...不要让孩子们看阿.]({{site.baseurl}}/miles/transcript/2020/10/20201014-1093130)
 
+[郭文贵2020年10月13日直播 20201013文贵关于Gclub和GFashion上线前有关问题的声明直播]({{site.baseurl}}/miles/transcript/2020/10/20201013-1093154)
 
-## 頁面 44/112 [**<**]({{site.baseurl}}/miles/transcript/page43) [1]({{site.baseurl}}/miles/transcript/index) ... [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) **44** [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page45)
+[郭文贵2020年10月12日盖特 20201012_1爆料革命这碗洒……????????????敬天．敬地．敬战友！]({{site.baseurl}}/miles/transcript/2020/10/20201012-1093124)
+
+[郭文贵2020年10月12日盖特 20201012_2尊敬的战友们好，全球自发的惩贼．要真相．维护华人形象的现象．已经得到了很多正义的有识之士！和法律人士！的绝对的支持……我们]({{site.baseurl}}/miles/transcript/2020/10/20201012-1093129)
+
+
+## 頁面 44/111 [**<**]({{site.baseurl}}/miles/transcript/page43) [1]({{site.baseurl}}/miles/transcript/index) ... [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) **44** [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page45)

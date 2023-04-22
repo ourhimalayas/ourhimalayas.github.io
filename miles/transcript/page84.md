@@ -1,13 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 84/112 [**<**]({{site.baseurl}}/miles/transcript/page83) [1]({{site.baseurl}}/miles/transcript/index) ... [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) **84** [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page85)
-
-[郭文贵2019年2月22日谈摩根家族 20190222文贵报平安谈摩根家族及郭宝胜案情]({{site.baseurl}}/miles/transcript/2019/02/20190222-1092426)
-
-[郭文贵2019年2月21日视频 20190221尊敬的战友们好，你们健身了吗？再次谈法治基金捐款到底捐给了谁！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/02/20190221-1092858)
-
-[郭文贵2019年2月20日视频 20190220_1文贵接受郭宝胜律师庭外问询视频1]({{site.baseurl}}/miles/transcript/2019/02/20190220-1089132)
+## 頁面 84/111 [**<**]({{site.baseurl}}/miles/transcript/page83) [1]({{site.baseurl}}/miles/transcript/index) ... [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) **84** [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page85)
 
 [郭文贵2019年2月20日视频 20190220_2文贵接受郭宝胜律师庭外问询视频2]({{site.baseurl}}/miles/transcript/2019/02/20190220-1089145)
 
@@ -53,5 +47,11 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年1月28日视频 20190128_1身了吗？你们往身上浇水了吗？一切都是刚刚开始。]({{site.baseurl}}/miles/transcript/2019/01/20190128-1089049)
 
+[郭文贵2019年1月27日视频 20190127王岐山在达沃斯的讲话已经开始了世界的反习运动！]({{site.baseurl}}/miles/transcript/2019/01/20190127-1092365)
 
-## 頁面 84/112 [**<**]({{site.baseurl}}/miles/transcript/page83) [1]({{site.baseurl}}/miles/transcript/index) ... [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) **84** [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page85)
+[郭文贵2019年1月25日视频 20190125罗杰斯通感恩郭先生接受道歉]({{site.baseurl}}/miles/transcript/2019/01/20190125-1092356)
+
+[郭文贵2019年1月24日视频 20190124委内瑞拉的民主反独裁的运动对中国人民的意义与影响重大]({{site.baseurl}}/miles/transcript/2019/01/20190124-1092339)
+
+
+## 頁面 84/111 [**<**]({{site.baseurl}}/miles/transcript/page83) [1]({{site.baseurl}}/miles/transcript/index) ... [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) **84** [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page85)

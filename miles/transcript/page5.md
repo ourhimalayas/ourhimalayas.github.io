@@ -1,15 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 5/112 [**<**]({{site.baseurl}}/miles/transcript/page4) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) **5** [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page6)
-
-[郭文贵2022年9月17日盖特 20220917_1尊敬的战友们好！习太阳，普大帝．设计好了人类的未来——和方向后！给人类的未来开了很多药方和中药……急匆匆地……仓皇她……很不开心地……回到了自己安全都不能确定的地方，一切都]({{site.baseurl}}/miles/transcript/2022/09/20220917-1092357)
-
-[郭文贵2022年9月16日盖特 20220916_1尊敬的战友们好，世界巨变．和全球人民将面对的各种不确定性，和疫苗灾难，只有新中国联邦人……有无限美好的未来，我们要互相珍惜，永远不要忘了，消灭中国共产党，是我们凝聚的相聚．]({{site.baseurl}}/miles/transcript/2022/09/20220916-1092351)
-
-[郭文贵2022年9月15日直播 20220915_19月15号七哥乱聊直播]({{site.baseurl}}/miles/transcript/2022/09/20220915-1091938)
-
-[郭文贵2022年9月15日盖特 20220915_2尊敬的战友们好……从昨天到现在．几乎没有睡觉，一直在关注着习太阳．普大帝的会师！《台湾政策法》地落地，这是一场东西方大对决的游戏开始……是灭共最关键的一天之一，意义重大．天]({{site.baseurl}}/miles/transcript/2022/09/20220915-1092342)
+## 頁面 5/111 [**<**]({{site.baseurl}}/miles/transcript/page4) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) **5** [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page6)
 
 [郭文贵2022年9月14日盖特 20220914_1尊敬的战友们好小视频来了……]({{site.baseurl}}/miles/transcript/2022/09/20220914-1092332)
 
@@ -53,5 +45,13 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2022年5月2日直播 20220502_1七哥乱聊]({{site.baseurl}}/miles/transcript/2022/05/20220502-1091528)
 
+[郭文贵2022年5月1日直播 20220501_1俄乌战争台海局势；中共经济爆雷现状；疫苗灾难危及人类；世界经济面临崩塌]({{site.baseurl}}/miles/transcript/2022/05/20220501-1091523)
 
-## 頁面 5/112 [**<**]({{site.baseurl}}/miles/transcript/page4) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) **5** [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page6)
+[郭文贵2022年4月30日盖特 20220430_2尊敬的战友们好……世界的经济已经走向崩塌，崩溃已经开始！]({{site.baseurl}}/miles/transcript/2022/04/20220430-1091723)
+
+[郭文贵2022年4月29日直播 20220429_1认可分布式记账喜币大机遇；从纳粹大屠杀看中共大屠杀；法国大选结果分析欧洲未来]({{site.baseurl}}/miles/transcript/2022/04/20220429-1091452)
+
+[郭文贵2022年4月29日盖特 20220429_2尊敬的战友们好……今天的纽约．阳光明媚．美丽极了，今天取消了开庭．七哥与战友们分享这美好的时光！]({{site.baseurl}}/miles/transcript/2022/04/20220429-1091719)
+
+
+## 頁面 5/111 [**<**]({{site.baseurl}}/miles/transcript/page4) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) **5** [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page6)

@@ -1,7 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 2/112 [**<**]({{site.baseurl}}/miles/transcript/index) [1]({{site.baseurl}}/miles/transcript/index) **2** [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page3)
+## 頁面 2/111 [**<**]({{site.baseurl}}/miles/transcript/index) [1]({{site.baseurl}}/miles/transcript/index) **2** [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page3)
 
 [2023年1月27日郭先生盖特精粹]({{site.baseurl}}/miles/transcript/2023/01/20230127-1098179)
 
@@ -37,15 +37,7 @@ title: 郭文貴先生的視頻文字
 
 [2023年01月06 七哥试玩Studio新直播功能 全文字版]({{site.baseurl}}/miles/transcript/2023/01/20230106-1098136)
 
-[测试]({{site.baseurl}}/miles/transcript/2023/01/20230104-1098132)
-
-[测试]({{site.baseurl}}/miles/transcript/2023/01/20230104-1098133)
-
-[2023年01月04文贵大直播： 焰火革命是否成功]({{site.baseurl}}/miles/transcript/2023/01/20230104-1098127)
-
-[2023年01月04文贵大直播： 焰火革命是否成功全文字版]({{site.baseurl}}/miles/transcript/2023/01/20230104-1098130)
-
-[测试]({{site.baseurl}}/miles/transcript/2023/01/20230103-1098131)
+[2023年01月04文贵大直播： 焰火革命是否成功全文字版]({{site.baseurl}}/miles/transcript/2023/01/20230104-1098127)
 
 [2023年1月3日郭先生盖特精粹]({{site.baseurl}}/miles/transcript/2023/01/20230103-1098125)
 
@@ -53,5 +45,13 @@ title: 郭文貴先生的視頻文字
 
 [2023年01月01日新中国联邦2023元旦大直播 （第三部分）全文字版]({{site.baseurl}}/miles/transcript/2023/01/20230101-1098123)
 
+[2023年01月01日新中国联邦2023元旦大直播（第四部分）全文字版]({{site.baseurl}}/miles/transcript/2023/01/20230101-1098124)
 
-## 頁面 2/112 [**<**]({{site.baseurl}}/miles/transcript/index) [1]({{site.baseurl}}/miles/transcript/index) **2** [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page3)
+[2023年01月01日新中国联邦2023元旦大直播 （第二部分）全文字版]({{site.baseurl}}/miles/transcript/2023/01/20230101-1098129)
+
+[2022年12月29日 凤凰涅槃三度 生命浴火几重 无色无相无我 万法归于灭共 文贵闭关二十一天出关大直播  全文字版]({{site.baseurl}}/miles/transcript/2022/12/20221229-1098118)
+
+[2022年12月6日 文贵先生父亲离世公告视频《全文字版》]({{site.baseurl}}/miles/transcript/2022/12/20221206-1098112)
+
+
+## 頁面 2/111 [**<**]({{site.baseurl}}/miles/transcript/index) [1]({{site.baseurl}}/miles/transcript/index) **2** [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page3)

@@ -1,15 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 6/112 [**<**]({{site.baseurl}}/miles/transcript/page5) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) **6** [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page7)
-
-[郭文贵2022年5月1日直播 20220501_1俄乌战争台海局势；中共经济爆雷现状；疫苗灾难危及人类；世界经济面临崩塌]({{site.baseurl}}/miles/transcript/2022/05/20220501-1091523)
-
-[郭文贵2022年4月30日盖特 20220430_2尊敬的战友们好……世界的经济已经走向崩塌，崩溃已经开始！]({{site.baseurl}}/miles/transcript/2022/04/20220430-1091723)
-
-[郭文贵2022年4月29日直播 20220429_1认可分布式记账喜币大机遇；从纳粹大屠杀看中共大屠杀；法国大选结果分析欧洲未来]({{site.baseurl}}/miles/transcript/2022/04/20220429-1091452)
-
-[郭文贵2022年4月29日盖特 20220429_2尊敬的战友们好……今天的纽约．阳光明媚．美丽极了，今天取消了开庭．七哥与战友们分享这美好的时光！]({{site.baseurl}}/miles/transcript/2022/04/20220429-1091719)
+## 頁面 6/111 [**<**]({{site.baseurl}}/miles/transcript/page5) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) **6** [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page7)
 
 [郭文贵2022年4月28日直播 20220428_1七哥乱聊直播]({{site.baseurl}}/miles/transcript/2022/04/20220428-1091391)
 
@@ -53,5 +45,13 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2022年4月13日盖特 20220413_1尊敬的战友们好，俄乌战争……给中国人民……和世界人民．带来了千载难逢的机会，消灭马克思主义……彻底的消灭社会主义的伟大机会！]({{site.baseurl}}/miles/transcript/2022/04/20220413-1091680)
 
+[郭文贵2022年4月13日盖特 20220413_2尊敬的战友们好．收到了很多战友的信息．无法全部回复……非常的抱歉????????????????????????????????????????明天上午我会抽时间直播半小时左右，一切都已经开始！]({{site.baseurl}}/miles/transcript/2022/04/20220413-1091683)
 
-## 頁面 6/112 [**<**]({{site.baseurl}}/miles/transcript/page5) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) **6** [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page7)
+[郭文贵2022年4月12日盖特 20220412_1尊敬的战友们好，今天是新中国联邦……开天辟地的．重要的一天！]({{site.baseurl}}/miles/transcript/2022/04/20220412-1091678)
+
+[郭文贵2022年4月11日直播 20220411_1试试直播]({{site.baseurl}}/miles/transcript/2022/04/20220411-1090879)
+
+[郭文贵2022年4月11日盖特 20220411_2尊敬的战友们好……中国已经进入人道大灾难的时刻……]({{site.baseurl}}/miles/transcript/2022/04/20220411-1091675)
+
+
+## 頁面 6/111 [**<**]({{site.baseurl}}/miles/transcript/page5) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) **6** [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page7)

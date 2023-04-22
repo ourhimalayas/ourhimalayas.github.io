@@ -1,13 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 99/112 [**<**]({{site.baseurl}}/miles/transcript/page98) [1]({{site.baseurl}}/miles/transcript/index) ... [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) **99** [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page100)
-
-[郭文贵2018年3月31日做客郭友之声 20180331郭友访谈--郭先生与小蚂蚁亲密接触（戊戌年 3月31日）]({{site.baseurl}}/miles/transcript/2018/03/20180331-1092596)
-
-[郭文贵2018年3月30日视频 20180330谈香港股票市场、银行、律政司若全被香港警察控制会是什么样子]({{site.baseurl}}/miles/transcript/2018/03/20180330-1092528)
-
-[郭文贵2018年3月29日视频第三部分 20180329_3这车次纽约车展非常非常棒！今天晚上我与朋友一起看了布加迪．劳斯来斯．林宝坚尼……好多人对着我喝！一切都是刚刚开始！ Via：郭媒体]({{site.baseurl}}/miles/transcript/2018/03/20180329-1087673)
+## 頁面 99/111 [**<**]({{site.baseurl}}/miles/transcript/page98) [1]({{site.baseurl}}/miles/transcript/index) ... [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) **99** [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page100)
 
 [郭文贵2018年3月29日视频第一部分 20180329_1回答战友们香港警察查封各银行账号用的什么法律手续]({{site.baseurl}}/miles/transcript/2018/03/20180329-1092454)
 
@@ -53,5 +47,11 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2018年3月13日直播 20180313_1上天赐予的又一个巨大的礼物 —美国新国务卿！对盗国贼将是巨大打击]({{site.baseurl}}/miles/transcript/2018/03/20180313-1087843)
 
+[郭文贵2018年3月13日直播 20180313_2陈军拥有多少明镜股份？身为民运大佬，又被边控，为什么他可以随时进出中国？]({{site.baseurl}}/miles/transcript/2018/03/20180313-1087856)
 
-## 頁面 99/112 [**<**]({{site.baseurl}}/miles/transcript/page98) [1]({{site.baseurl}}/miles/transcript/index) ... [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) **99** [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page100)
+[郭文贵2018年3月13日直播 20180313_3明镜的股权用什么可以证明和陈军有关系！]({{site.baseurl}}/miles/transcript/2018/03/20180313-1087868)
+
+[郭文贵2018年3月12日视频第二部分 20180312_2文贵拜托战友们的新行动．推特拉黑．YouTube 取关不打盗国贼的任何人任何媒体！全力以赴支持自由中国．爆料！支持路上德就是无尚功德！]({{site.baseurl}}/miles/transcript/2018/03/20180312-1092066)
+
+
+## 頁面 99/111 [**<**]({{site.baseurl}}/miles/transcript/page98) [1]({{site.baseurl}}/miles/transcript/index) ... [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) **99** [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page100)

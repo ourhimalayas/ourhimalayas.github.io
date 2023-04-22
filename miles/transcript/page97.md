@@ -1,13 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 97/112 [**<**]({{site.baseurl}}/miles/transcript/page96) [1]({{site.baseurl}}/miles/transcript/index) ... [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) **97** [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page98)
-
-[郭文贵2018年5月12日视频 20180512在路德访谈节目中与95后海军陆战队队员深入交流]({{site.baseurl}}/miles/transcript/2018/05/20180512-1087697)
-
-[郭文贵2018年5月11日直播 20180511_1马航事件很快会水落石出！]({{site.baseurl}}/miles/transcript/2018/05/20180511-1088313)
-
-[郭文贵2018年5月11日视频2 20180511_2这是文贵首次挂出，我与刘彦平先生在2017年5月1日至2日斗沟通．有关来美国的过程！这些视频将成为西方看中国．看文贵的最好的事实样版！]({{site.baseurl}}/miles/transcript/2018/05/20180511-1093523)
+## 頁面 97/111 [**<**]({{site.baseurl}}/miles/transcript/page96) [1]({{site.baseurl}}/miles/transcript/index) ... [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) **97** [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page98)
 
 [郭文贵2018年5月10日视频 20180510生日直播，盗国贼不亡，独狼行动不止]({{site.baseurl}}/miles/transcript/2018/05/20180510-1088887)
 
@@ -53,5 +47,11 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2018年4月22日视频2 20180422_2盗国贼新的一波行动]({{site.baseurl}}/miles/transcript/2018/04/20180422-1088637)
 
+[郭文贵2018年4月22日视频1 20180422_1要射向明镜的10个问彈！]({{site.baseurl}}/miles/transcript/2018/04/20180422-1092827)
 
-## 頁面 97/112 [**<**]({{site.baseurl}}/miles/transcript/page96) [1]({{site.baseurl}}/miles/transcript/index) ... [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) **97** [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page98)
+[郭文贵2018年4月21日视频 20180421文贵在此庄严地严肃地向中南坑里的某些：妖和怪们．致以衷心的道歉，文贵不会让你们失望的！]({{site.baseurl}}/miles/transcript/2018/04/20180421-1092872)
+
+[郭文贵2018年4月20日视频 20180420将爆中南坑里的老婆．女儿！的性丑闻！]({{site.baseurl}}/miles/transcript/2018/04/20180420-1092860)
+
+
+## 頁面 97/111 [**<**]({{site.baseurl}}/miles/transcript/page96) [1]({{site.baseurl}}/miles/transcript/index) ... [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) **97** [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page98)

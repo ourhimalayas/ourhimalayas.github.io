@@ -1,13 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 49/112 [**<**]({{site.baseurl}}/miles/transcript/page48) [1]({{site.baseurl}}/miles/transcript/index) ... [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) **49** [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page50)
-
-[郭文贵2020年8月4日直播 20200804_3GTV的价值用金钱无法衡量，历史的机遇无法计算，这都是因为战友的信任和支持]({{site.baseurl}}/miles/transcript/2020/08/20200804-1092464)
-
-[郭文贵2020年8月4日直播 20200804_4共产党的内斗将是一场人类前所未有的政治大劫难]({{site.baseurl}}/miles/transcript/2020/08/20200804-1092485)
-
-[郭文贵2020年8月4日直播 20200804_5文贵与班农聊GTV和中共黑客]({{site.baseurl}}/miles/transcript/2020/08/20200804-1092492)
+## 頁面 49/111 [**<**]({{site.baseurl}}/miles/transcript/page48) [1]({{site.baseurl}}/miles/transcript/index) ... [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) **49** [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page50)
 
 [郭文贵2020年8月4日直播 20200804_6香港黑警的所作所为永不可饶恕，但对99.9%的党员大赦，因为爆料革命的绝对中坚力量还是在中共和国内战友]({{site.baseurl}}/miles/transcript/2020/08/20200804-1092498)
 
@@ -53,5 +47,11 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2020年7月22日直播 20200722拜请所有的海外华人一定要团结一致，做好准备迎接全世界灭共对华人安全和生活的影响！]({{site.baseurl}}/miles/transcript/2020/07/20200722-1092335)
 
+[郭文贵2020年7月20日视频 20200720_1大家想一想为什么郭先生和班农在船上待了这么久，就是为了做对中共的军事部署]({{site.baseurl}}/miles/transcript/2020/07/20200720-1089981)
 
-## 頁面 49/112 [**<**]({{site.baseurl}}/miles/transcript/page48) [1]({{site.baseurl}}/miles/transcript/index) ... [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) **49** [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page50)
+[郭文贵2020年7月19日直播 20200719_1不要受“缺爹党”的影响；灭共和解决CCP病毒都到了关键时刻；大力传播今天福克斯采访班农的节目]({{site.baseurl}}/miles/transcript/2020/07/20200719-1092484)
+
+[郭文贵2020年7月19日连线大卫上集 20200719_2]({{site.baseurl}}/miles/transcript/2020/07/20200719-1092497)
+
+
+## 頁面 49/111 [**<**]({{site.baseurl}}/miles/transcript/page48) [1]({{site.baseurl}}/miles/transcript/index) ... [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) **49** [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page50)

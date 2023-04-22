@@ -1,15 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 19/112 [**<**]({{site.baseurl}}/miles/transcript/page18) [1]({{site.baseurl}}/miles/transcript/index) ... [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) **19** [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page20)
-
-[郭文贵2021年9月17日直播 20210917_2新中国联邦庆贺马丁·班农先生百岁生日快乐！The New Federal State of China Wishes Mr. Marty Bannon A Happy 100th Birthday!]({{site.baseurl}}/miles/transcript/2021/09/20210917-1093150)
-
-[郭文贵2021年9月16日盖特 20210916_1尊敬的战友们好，昨天的直播，在国际政治和金融领域和有智慧的战友眼里是完全不同的一个直播的意义的结果。新中国联盟的国际大使……那瓦罗先生的加入！对我爆料革命和新中国联邦意味着]({{site.baseurl}}/miles/transcript/2021/09/20210916-1093153)
-
-[郭文贵2021年9月16日盖特 20210916_2共产党正在海外穷凶极恶的派遣他那些垃圾兵团……脑残兵团……伺机报复我们的爆料革命。继他们在美国的法律超限战巨大失败后，已经导致很多平爆小组的人被免职。我们的战友们要做好准备]({{site.baseurl}}/miles/transcript/2021/09/20210916-1093159)
-
-[郭文贵2021年9月16日盖特 20210916_3七哥今天有两场球赛????……一大1⃣️小……]({{site.baseurl}}/miles/transcript/2021/09/20210916-1093161)
+## 頁面 19/111 [**<**]({{site.baseurl}}/miles/transcript/page18) [1]({{site.baseurl}}/miles/transcript/index) ... [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) **19** [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page20)
 
 [郭文贵2021年9月16日盖特 20210916_4七哥在近两年后。来到了这个房子！让我极为的震惊，他们对房子的损坏伤害和这种极度的破坏，实在让我失望透顶！一个多月了，很多清洁工和维修工都不能完成整个房子有维修和清洁。已经面]({{site.baseurl}}/miles/transcript/2021/09/20210916-1093164)
 
@@ -53,5 +45,13 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2021年9月5日盖特 20210905_2吃饭饭啦……未来农场的必备菜！]({{site.baseurl}}/miles/transcript/2021/09/20210905-1092933)
 
+[郭文贵2021年9月5日直播 20210905_1从苏联切尔诺贝利核事件看今天的中共；最纯最多的青蒿素在美国和加拿大；克里访华将要谈判的内容；陆金所是对西方的经济炸弹，经济病毒，每一股的变化背后都是蓝金黄；马明哲就是中国的]({{site.baseurl}}/miles/transcript/2021/09/20210905-1092984)
 
-## 頁面 19/112 [**<**]({{site.baseurl}}/miles/transcript/page18) [1]({{site.baseurl}}/miles/transcript/index) ... [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) **19** [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page20)
+[郭文贵2021年9月4日盖特 20210904_1尊敬的战友们好！你们传播C C P病毒．疫苗的解药的真相了吗？]({{site.baseurl}}/miles/transcript/2021/09/20210904-1092921)
+
+[郭文贵2021年9月4日盖特 20210904_2解药的事儿太大了..太大了..太大了..]({{site.baseurl}}/miles/transcript/2021/09/20210904-1092925)
+
+[郭文贵2021年9月4日盖特 20210904_3G俱乐部所有会员的小玩貝！]({{site.baseurl}}/miles/transcript/2021/09/20210904-1092928)
+
+
+## 頁面 19/111 [**<**]({{site.baseurl}}/miles/transcript/page18) [1]({{site.baseurl}}/miles/transcript/index) ... [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) **19** [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page20)

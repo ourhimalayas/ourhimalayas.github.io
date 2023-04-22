@@ -1,13 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 58/112 [**<**]({{site.baseurl}}/miles/transcript/page57) [1]({{site.baseurl}}/miles/transcript/index) ... [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) **58** [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page59)
-
-[郭文贵2020年3月22日视频 20200322_1關於舉報Inty]({{site.baseurl}}/miles/transcript/2020/03/20200322-1089792)
-
-[郭文贵2020年3月22日视频 20200322_2關於舉報Inty]({{site.baseurl}}/miles/transcript/2020/03/20200322-1089794)
-
-[郭文贵2020年3月22日视频 20200322_3關於舉報Inty]({{site.baseurl}}/miles/transcript/2020/03/20200322-1089797)
+## 頁面 58/111 [**<**]({{site.baseurl}}/miles/transcript/page57) [1]({{site.baseurl}}/miles/transcript/index) ... [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) **58** [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page59)
 
 [郭文贵2020年3月22日视频 20200322_4文贵先生船上直播，inty不能取关和进行生命威胁一定要留好证据，我们一定会对他们进行法律诉讼，我们一定大赢，CCP Virus！]({{site.baseurl}}/miles/transcript/2020/03/20200322-1089800)
 
@@ -53,5 +47,11 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2020年3月7日 20200307谈CCP冠状病毒始于香港，必将终于香港！]({{site.baseurl}}/miles/transcript/2020/03/20200307-1091909)
 
+[郭文贵2020年3月6日视频 20200306_2感谢台湾，日本，香港的战友们为我们的战友还有法制基金的捐款者．几周以来冒着风险一直发送口罩！一切已经开始！]({{site.baseurl}}/miles/transcript/2020/03/20200306-1089018)
 
-## 頁面 58/112 [**<**]({{site.baseurl}}/miles/transcript/page57) [1]({{site.baseurl}}/miles/transcript/index) ... [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) **58** [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page59)
+[郭文贵2020年3月6日视频 20200306_1郭文贵先生直播晒画玩艺术品]({{site.baseurl}}/miles/transcript/2020/03/20200306-1089771)
+
+[郭文贵2020年3月5日视频 20200305_1与战友们分享文贵一天战役后韵晚餐……一切已经开始]({{site.baseurl}}/miles/transcript/2020/03/20200305-1089765)
+
+
+## 頁面 58/111 [**<**]({{site.baseurl}}/miles/transcript/page57) [1]({{site.baseurl}}/miles/transcript/index) ... [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) **58** [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page59)

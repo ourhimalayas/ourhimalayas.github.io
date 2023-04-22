@@ -1,15 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 35/112 [**<**]({{site.baseurl}}/miles/transcript/page34) [1]({{site.baseurl}}/miles/transcript/index) ... [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) **35** [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page36)
-
-[郭文贵2021年3月7日盖特 20210307_1国际巨头 (鳄鱼????￼)投资基金．在对大陆的金融市场价值．风险全面调查后．决定将投入大陆的资金撤出，可能部分????????????投入到我们G系列！一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/03/20210307-1090848)
-
-[郭文贵2021年3月6日盖特 20210306_1尊敬的战友们好！文贵和大家聊聊。西方媒体的堕落的真正的本质……和对我们所有每个人的危害是什么？香港的董栽倒？和当年的邓痰￼倒．撒切尔夫人之间有什么样的关系？意味着什么？]({{site.baseurl}}/miles/transcript/2021/03/20210306-1090846)
-
-[郭文贵2021年3月5日盖特 20210305_5尊敬的战友们好，我们会马上直播！]({{site.baseurl}}/miles/transcript/2021/03/20210305-1089834)
-
-[郭文贵2021年3月5日盖特 20210305_1回答无数个战友．问七哥的一个问题，现在可不可以迅速地加入……做空港币．挣大钱]({{site.baseurl}}/miles/transcript/2021/03/20210305-1090834)
+## 頁面 35/111 [**<**]({{site.baseurl}}/miles/transcript/page34) [1]({{site.baseurl}}/miles/transcript/index) ... [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) **35** [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page36)
 
 [郭文贵2021年3月5日盖特 20210305_2我最爱的Gfahion竟然是洗后大大缩水．变成了童装????????????……太疯狂了]({{site.baseurl}}/miles/transcript/2021/03/20210305-1090836)
 
@@ -53,5 +45,13 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2021年2月25日盖特 20210225_2今天七哥和战友开玩笑撒娇说．七哥变老的视频，发出后，收到了无数战友对七哥哥……的健康的关心的信息.…文贵万分的感谢，只要真心灭共．就不会衰老，这是最好的长生不老的妙方]({{site.baseurl}}/miles/transcript/2021/02/20210225-1090760)
 
+[郭文贵2021年2月24日直播 20210224_1美国沼泽地只能与新中国联邦合作；中共20大保江山，指定习的接班人；虚拟货币获得美国支付牌照的重大意义]({{site.baseurl}}/miles/transcript/2021/02/20210224-1090751)
 
-## 頁面 35/112 [**<**]({{site.baseurl}}/miles/transcript/page34) [1]({{site.baseurl}}/miles/transcript/index) ... [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) **35** [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page36)
+[郭文贵2021年2月24日盖特 20210224_2国内的很多战友发的信息不能一一回信息——请大家原谅、以毒灭共．以钱灭共！正在全世界全面火热????开始……无人可以阻挡新中国联邦拯救中国人和世界人民的胜利✌️✌️✌️✌️✌️……]({{site.baseurl}}/miles/transcript/2021/02/20210224-1090753)
+
+[郭文贵2021年2月23日盖特 20210223_1回答很多战友．关于江泽民家族．大本营移居新加坡的真正的用心……和对爆料革命的影响…]({{site.baseurl}}/miles/transcript/2021/02/20210223-1090745)
+
+[郭文贵2021年2月23日盖特 20210223_2很多战友给我发来的有关信息没发一回复在这里自己衷心地抱歉，很多战友让我回答刚刚习近平的讲话……中国共产党的江山．属于人民的……是什么意思？]({{site.baseurl}}/miles/transcript/2021/02/20210223-1090748)
+
+
+## 頁面 35/111 [**<**]({{site.baseurl}}/miles/transcript/page34) [1]({{site.baseurl}}/miles/transcript/index) ... [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) **35** [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page36)

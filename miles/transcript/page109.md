@@ -1,13 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 109/112 [**<**]({{site.baseurl}}/miles/transcript/page108) [1]({{site.baseurl}}/miles/transcript/index) ... [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) **109** [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page110)
-
-[郭文贵2017年7月6日 20170706王岐山的新豪宅．及孟建柱傅政华的真实关系与丰富多彩的性生活！]({{site.baseurl}}/miles/transcript/2017/07/20170706-1094397)
-
-[郭文贵2017年7月5日 20170705文贵又要试试网络了！谈谈王岐山．孟建柱．傅政华．在十九大到底想要什么？]({{site.baseurl}}/miles/transcript/2017/07/20170705-1094391)
-
-[郭文贵2017年7月4日 20170704文贵个人如何看美国与中国不同！美国为什么没有王岐山傅政华这样的盗国贼？]({{site.baseurl}}/miles/transcript/2017/07/20170704-1094369)
+## 頁面 109/111 [**<**]({{site.baseurl}}/miles/transcript/page108) [1]({{site.baseurl}}/miles/transcript/index) ... [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) **109** [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page110)
 
 [郭文贵2017年7月3日第一次直播 20170703_1王岐山和傅政华将如何毁掉中国]({{site.baseurl}}/miles/transcript/2017/07/20170703-1094342)
 
@@ -53,5 +47,11 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2017年5月29日关于王歧山 20170529关于王歧山]({{site.baseurl}}/miles/transcript/2017/05/20170529-1094349)
 
+[郭文贵2017年5月26日 20170526现在随时爆料，随时爆料啊]({{site.baseurl}}/miles/transcript/2017/05/20170526-1094616)
 
-## 頁面 109/112 [**<**]({{site.baseurl}}/miles/transcript/page108) [1]({{site.baseurl}}/miles/transcript/index) ... [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) **109** [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page110)
+[郭文贵2017年5月25日 20170525回应胡舒立报道 托尼 布萊尔]({{site.baseurl}}/miles/transcript/2017/05/20170525-1094338)
+
+[郭文贵2017年5月24日 20170524呼吁推友不要冲动]({{site.baseurl}}/miles/transcript/2017/05/20170524-1094328)
+
+
+## 頁面 109/111 [**<**]({{site.baseurl}}/miles/transcript/page108) [1]({{site.baseurl}}/miles/transcript/index) ... [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) **109** [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page110)

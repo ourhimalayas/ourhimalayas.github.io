@@ -1,15 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 25/112 [**<**]({{site.baseurl}}/miles/transcript/page24) [1]({{site.baseurl}}/miles/transcript/index) ... [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) **25** [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page26)
-
-[郭文贵2021年7月9日盖特 20210709_2感拜自由女神．新中国联邦的自由女神]({{site.baseurl}}/miles/transcript/2021/07/20210709-1091697)
-
-[郭文贵2021年7月8日直播 20210708_1在新办公室迎接Q妹，正义小Sara等战友]({{site.baseurl}}/miles/transcript/2021/07/20210708-1091665)
-
-[郭文贵2021年7月7日盖特 20210707_1尊敬的战友们好，你们健身了吗？传播C C P病毒．香港危机真相了吗？国内的金融．上市．银行．企业．国际大玩家纷纷倒闭……接下来将发生什么样的事情呢？]({{site.baseurl}}/miles/transcript/2021/07/20210707-1091669)
-
-[郭文贵2021年7月6日盖特 20210706_1尊敬的战友们好．共产党内部已经开始瓦解了，请跟随并珍惜新中国联邦、爆料革命。]({{site.baseurl}}/miles/transcript/2021/07/20210706-1091674)
+## 頁面 25/111 [**<**]({{site.baseurl}}/miles/transcript/page24) [1]({{site.baseurl}}/miles/transcript/index) ... [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) **25** [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page26)
 
 [郭文贵2021年7月6日盖特 20210706_2尊敬的兄弟姐妹们，七哥的盖特太少人关注了．班农都10万了，我才3万啊，好可怜呢。]({{site.baseurl}}/miles/transcript/2021/07/20210706-1091676)
 
@@ -53,5 +45,13 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2021年6月26日盖特 20210626_2尊敬的兄弟姐妹们好，我常用的那个手机号又被黑了，请战友们互相通告，尽快加上我的新的联系方式！]({{site.baseurl}}/miles/transcript/2021/06/20210626-1091633)
 
+[郭文贵2021年6月25日直播 20210625_1国际形势已发生重大变化；西方对华人看法的改变；西方在南海有统一行动；一旦病毒来源确定，将对中南坑直接斩首！]({{site.baseurl}}/miles/transcript/2021/06/20210625-1091580)
 
-## 頁面 25/112 [**<**]({{site.baseurl}}/miles/transcript/page24) [1]({{site.baseurl}}/miles/transcript/index) ... [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) **25** [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page26)
+[郭文贵2021年6月24日盖特 20210624_1尊敬的战友们好……共产党的内部斗争，加速了侵略台湾的可能！新中国联邦……绝对不能成为自私投机贪婪人的发财平台！]({{site.baseurl}}/miles/transcript/2021/06/20210624-1091592)
+
+[郭文贵2021年6月24日盖特 20210624_2第二段：关于很多想加入GTV工作的战友们的一些问题的回复！]({{site.baseurl}}/miles/transcript/2021/06/20210624-1091596)
+
+[郭文贵2021年6月23日直播 20210623_1东利诉SV案历时三年，文贵从未放弃，这次胜诉的重大意义；共产党利用其控制的律师事务所进行司法超限战对美国的威胁；文贵给大家带来G系列新的希望与未来！]({{site.baseurl}}/miles/transcript/2021/06/20210623-1091618)
+
+
+## 頁面 25/111 [**<**]({{site.baseurl}}/miles/transcript/page24) [1]({{site.baseurl}}/miles/transcript/index) ... [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) **25** [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page26)

@@ -1,13 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 69/112 [**<**]({{site.baseurl}}/miles/transcript/page68) [1]({{site.baseurl}}/miles/transcript/index) ... [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) **69** [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page70)
-
-[郭文贵2019年10月4日 20191004谈香港动用紧急法，出台禁止蒙面条例]({{site.baseurl}}/miles/transcript/2019/10/20191004-1093733)
-
-[2019年10月4日文贵大直播全文字版：谈香港动用紧急法，出台禁止蒙面条例]({{site.baseurl}}/miles/transcript/2019/10/20191004-1098243)
-
-[郭文贵2019年10月3日视频 20191003_1香港将实施宵禁令 变相戒严 大抓捕]({{site.baseurl}}/miles/transcript/2019/10/20191003-1089547)
+## 頁面 69/111 [**<**]({{site.baseurl}}/miles/transcript/page68) [1]({{site.baseurl}}/miles/transcript/index) ... [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) **69** [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page70)
 
 [郭文贵2019年10月2日视频 20191002_1美国CAI通过最高技术 扫描‘十一’军演无人机 发现都是假的]({{site.baseurl}}/miles/transcript/2019/10/20191002-1089541)
 
@@ -53,5 +47,11 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年9月24日视频 20190924_3直播吃红烧肉，阅兵后美女按需分配]({{site.baseurl}}/miles/transcript/2019/09/20190924-1088578)
 
+[郭文贵2019年9月24日第二次直播 20190924_2红烧肉真香，ccp给人民吃瘟猪肉，还把阅兵后的帅哥美女按领导级別分配，美女当小三，帅哥当领导夫人保镖.]({{site.baseurl}}/miles/transcript/2019/09/20190924-1093675)
 
-## 頁面 69/112 [**<**]({{site.baseurl}}/miles/transcript/page68) [1]({{site.baseurl}}/miles/transcript/index) ... [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) **69** [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page70)
+[郭文贵2019年9月24日第一次直播 20190924_1郭文贵先生和江财神路德三人谈政治经济爱情以及外星人！妄图弹劾总统是好事！]({{site.baseurl}}/miles/transcript/2019/09/20190924-1093697)
+
+[2019年9月24日文贵大直播全文字版：红烧肉真香，ccp给人民吃瘟猪肉，还把阅兵后的帅哥美女按领导级別分配，美女当小三，帅哥当领导夫人保镖.]({{site.baseurl}}/miles/transcript/2019/09/20190924-1098239)
+
+
+## 頁面 69/111 [**<**]({{site.baseurl}}/miles/transcript/page68) [1]({{site.baseurl}}/miles/transcript/index) ... [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) **69** [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page70)

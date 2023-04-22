@@ -1,15 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 37/112 [**<**]({{site.baseurl}}/miles/transcript/page36) [1]({{site.baseurl}}/miles/transcript/index) ... [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) **37** [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page38)
-
-[郭文贵2021年2月11日直播 20210211_1辛丑年文贵看春晚]({{site.baseurl}}/miles/transcript/2021/02/20210211-1090623)
-
-[郭文贵2021年2月9日盖特 20210209_12月9号尊敬的战友您好，上海的几个老杂毛为什么要说……庚政辛丑钱．民生不稳要出大麻烦……？]({{site.baseurl}}/miles/transcript/2021/02/20210209-1090615)
-
-[郭文贵2021年2月8日盖特 20210208_1尊敬的战友们好，你们健身了吗？中共即将崩塌的经济和党员们对未来财富安全的恐惧，正在改变着世界的经济的格局……，美国总统拜登将与习近平新春通话……]({{site.baseurl}}/miles/transcript/2021/02/20210208-1090611)
-
-[郭文贵2021年2月7日直播 20210207_1 给战友们做美食；要用行动反击九指妖]({{site.baseurl}}/miles/transcript/2021/02/20210207-1090609)
+## 頁面 37/111 [**<**]({{site.baseurl}}/miles/transcript/page36) [1]({{site.baseurl}}/miles/transcript/index) ... [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) **37** [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page38)
 
 [郭文贵2021年2月6日盖特 20210206_1尊敬的战友们好……为什么有些国家和中共减少往来．停止合作后，共产党病毒的感染率和死亡率双双下降，为什么共产党的高官．和家人都不带口罩，却不被传染．C C P的经济已经到了崩溃的边缘]({{site.baseurl}}/miles/transcript/2021/02/20210206-1090591)
 
@@ -53,5 +45,13 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2021年1月29日盖特 20210129_1为人民服务的共产党．现在是为人民掏肛的共产党，????????????一个经济强大的共产党，却要将在人民的肛门中????掏出几万亿人民币，却让王岐山主席．控制的中国最大的私人企业．海南航空．破产]({{site.baseurl}}/miles/transcript/2021/01/20210129-1090496)
 
+[郭文贵2021年1月29日盖特 20210129_2从昨天到今天火爆了的我们的爆料革命．和新中国联邦.和G系列．与这个疯狂的世界的疯狂几个事件的内在逻辑的重要性……]({{site.baseurl}}/miles/transcript/2021/01/20210129-1090501)
 
-## 頁面 37/112 [**<**]({{site.baseurl}}/miles/transcript/page36) [1]({{site.baseurl}}/miles/transcript/index) ... [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) **37** [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page38)
+[郭文贵2021年1月28日直播 20210128_1受骗九指王的战友们要行动；美四大帮派都来找文贵合作，美，欧，日，俄将形成灭共联盟；Gclub年会预告]({{site.baseurl}}/miles/transcript/2021/01/20210128-1090487)
+
+[郭文贵2021年1月28日盖特 20210128_2关于几club春节年会的一些战友咨询的问题的回答．再次呼吁被VOG ．九指王．欺骗的战友们！积极提供各种证据和信息，以维护战友的安全和利益！]({{site.baseurl}}/miles/transcript/2021/01/20210128-1090492)
+
+[郭文贵2021年1月27日直播 20210127_1GTV已经创造神话；因投资VOG受威胁的战友请与喜联盟联系；共和党与共产党的对决现在已经开始，美国两党的目标都是灭共]({{site.baseurl}}/miles/transcript/2021/01/20210127-1090474)
+
+
+## 頁面 37/111 [**<**]({{site.baseurl}}/miles/transcript/page36) [1]({{site.baseurl}}/miles/transcript/index) ... [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) **37** [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page38)

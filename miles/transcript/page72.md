@@ -1,13 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 72/112 [**<**]({{site.baseurl}}/miles/transcript/page71) [1]({{site.baseurl}}/miles/transcript/index) ... [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) **72** [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page73)
-
-[郭文贵2019年8月31日视频 20190831_1文贵与班农先生直播，关注831香港]({{site.baseurl}}/miles/transcript/2019/08/20190831-1089504)
-
-[郭文贵2019年8月29日视频 20190829_1王雁平起訴亂倫彪案 解放軍進港]({{site.baseurl}}/miles/transcript/2019/08/20190829-1089460)
-
-[郭文贵2019年8月29日视频 20190829_2马上起飞往華盛頓了……到了再向战友们报告！一切都是刚刚开始！(一)]({{site.baseurl}}/miles/transcript/2019/08/20190829-1089464)
+## 頁面 72/111 [**<**]({{site.baseurl}}/miles/transcript/page71) [1]({{site.baseurl}}/miles/transcript/index) ... [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) **72** [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page73)
 
 [郭文贵2019年8月29日视频 20190829_3马上起飞往華盛頓了……到了再向战友们报告！一切都是刚刚开始！(二)]({{site.baseurl}}/miles/transcript/2019/08/20190829-1089468)
 
@@ -53,5 +47,11 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年8月17日 20190817（原声） 班农与文贵先生谈：香港危机 美国即将必须采取的行动]({{site.baseurl}}/miles/transcript/2019/08/20190817-1093591)
 
+[2019年8月17号文贵大直播全文字版：回复有关今早直播后，大家发来的私信问题……]({{site.baseurl}}/miles/transcript/2019/08/20190817-1098189)
 
-## 頁面 72/112 [**<**]({{site.baseurl}}/miles/transcript/page71) [1]({{site.baseurl}}/miles/transcript/index) ... [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) **72** [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page73)
+[郭文贵2019年8月16日视频 20190816尊敬的战友们好．你们传播香港危机的真相了吗？香港反送中运动．已经变成了国际集体反共的运动，战友们和香港同胞们一定要抓住机会，赢得这场前所未有的灭共战争，一切]({{site.baseurl}}/miles/transcript/2019/08/20190816-1093561)
+
+[2019年8月16日文貴大直播全文字版：你们传播香港危机的真相了吗？香港反送中运动......]({{site.baseurl}}/miles/transcript/2019/08/20190816-1098188)
+
+
+## 頁面 72/111 [**<**]({{site.baseurl}}/miles/transcript/page71) [1]({{site.baseurl}}/miles/transcript/index) ... [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) **72** [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page73)

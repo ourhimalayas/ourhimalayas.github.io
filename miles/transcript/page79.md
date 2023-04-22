@@ -1,13 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 79/112 [**<**]({{site.baseurl}}/miles/transcript/page78) [1]({{site.baseurl}}/miles/transcript/index) ... [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) **79** [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page80)
-
-[2019年6月14日郭文贵先生直播全文听写：林郑月娥必须提出辞职，取消“逃犯条例”]({{site.baseurl}}/miles/transcript/2019/06/20190614-1098081)
-
-[郭文贵2019年6月13日视频 20190613_5测试细丝和庄烈宏]({{site.baseurl}}/miles/transcript/2019/06/20190613-1088596)
-
-[郭文贵2019年6月13日视频 20190613_4]({{site.baseurl}}/miles/transcript/2019/06/20190613-1089259)
+## 頁面 79/111 [**<**]({{site.baseurl}}/miles/transcript/page78) [1]({{site.baseurl}}/miles/transcript/index) ... [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) **79** [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page80)
 
 [郭文贵2019年6月13日视频 20190613_3班農郭文贵直播]({{site.baseurl}}/miles/transcript/2019/06/20190613-1089761)
 
@@ -53,5 +47,11 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年6月3日视频 20190603_1华盛顿战友不要上街]({{site.baseurl}}/miles/transcript/2019/06/20190603-1089197)
 
+[郭文贵2019年6月2日谈林郑卖港 20190602班农与郭文贵谈林郑卖港、6月4日新中国建国日、欧洲反共革命]({{site.baseurl}}/miles/transcript/2019/06/20190602-1093021)
 
-## 頁面 79/112 [**<**]({{site.baseurl}}/miles/transcript/page78) [1]({{site.baseurl}}/miles/transcript/index) ... [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) **79** [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page80)
+[郭文贵2019年6月1日视频 20190601_2两狗相遇勇者胜，snow与笨笨的抢食之战，输赢不在大小]({{site.baseurl}}/miles/transcript/2019/06/20190601-1089190)
+
+[郭文贵2019年6月1日视频 20190601文贵报平安直播！无论任何方式的任何人的＂偷＂都是错的．都应感到可耻……我们今天的爆料革命！就是为了我们中国儿童！有一个美好的健康的国家和未来]({{site.baseurl}}/miles/transcript/2019/06/20190601-1093008)
+
+
+## 頁面 79/111 [**<**]({{site.baseurl}}/miles/transcript/page78) [1]({{site.baseurl}}/miles/transcript/index) ... [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) **79** [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page80)

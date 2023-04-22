@@ -1,15 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 24/112 [**<**]({{site.baseurl}}/miles/transcript/page23) [1]({{site.baseurl}}/miles/transcript/index) ... [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) **24** [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page25)
-
-[郭文贵2021年7月27日盖特 20210727_5仅有的几瓶LATACHE拉他喜2000特别版．特制路易十三……BEVERLY HLLN酒店…….梦想成真大厅！准备干嘛呀！]({{site.baseurl}}/miles/transcript/2021/07/20210727-1091835)
-
-[郭文贵2021年7月25日盖特 20210725_1尊敬的战友们好，你们传播共产党的人道灾难的真相了吗？所有国内的同胞战友们回避．辛丑年最大的人灾和天祸的方式就是回到二三线的城市．远离城市中心．做好整个国家未来粮食短缺，药品]({{site.baseurl}}/miles/transcript/2021/07/20210725-1091784)
-
-[郭文贵2021年7月24日盖特 20210724_2这次在路大骗子和蛇妖闫的问题上站错立场的，爆料革命和新中国联邦不接受任何理由的道歉]({{site.baseurl}}/miles/transcript/2021/07/20210724-1091773)
-
-[郭文贵2021年7月24日盖特 20210724_3准备对诀海东兄弟的足球！]({{site.baseurl}}/miles/transcript/2021/07/20210724-1091776)
+## 頁面 24/111 [**<**]({{site.baseurl}}/miles/transcript/page23) [1]({{site.baseurl}}/miles/transcript/index) ... [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) **24** [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page25)
 
 [郭文贵2021年7月24日盖特 20210724_4尊敬的战友好，爆料革命将开启. 以毒灭共. 以灾灭共！]({{site.baseurl}}/miles/transcript/2021/07/20210724-1091778)
 
@@ -53,5 +45,13 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2021年7月9日盖特 20210709_1尊敬的战友好，你们健身了吗？你们传播学C CP病毒香港危机的真相了吗？感谢战友们对七哥身体的关心！]({{site.baseurl}}/miles/transcript/2021/07/20210709-1091668)
 
+[郭文贵2021年7月9日盖特 20210709_2感拜自由女神．新中国联邦的自由女神]({{site.baseurl}}/miles/transcript/2021/07/20210709-1091697)
 
-## 頁面 24/112 [**<**]({{site.baseurl}}/miles/transcript/page23) [1]({{site.baseurl}}/miles/transcript/index) ... [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) **24** [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page25)
+[郭文贵2021年7月8日直播 20210708_1在新办公室迎接Q妹，正义小Sara等战友]({{site.baseurl}}/miles/transcript/2021/07/20210708-1091665)
+
+[郭文贵2021年7月7日盖特 20210707_1尊敬的战友们好，你们健身了吗？传播C C P病毒．香港危机真相了吗？国内的金融．上市．银行．企业．国际大玩家纷纷倒闭……接下来将发生什么样的事情呢？]({{site.baseurl}}/miles/transcript/2021/07/20210707-1091669)
+
+[郭文贵2021年7月6日盖特 20210706_1尊敬的战友们好．共产党内部已经开始瓦解了，请跟随并珍惜新中国联邦、爆料革命。]({{site.baseurl}}/miles/transcript/2021/07/20210706-1091674)
+
+
+## 頁面 24/111 [**<**]({{site.baseurl}}/miles/transcript/page23) [1]({{site.baseurl}}/miles/transcript/index) ... [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) **24** [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page25)

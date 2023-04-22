@@ -1,15 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 39/112 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page40)
-
-[郭文贵2021年1月18日盖特 20210118_2]({{site.baseurl}}/miles/transcript/2021/01/20210118-1089842)
-
-[郭文贵2021年1月18日盖特 20210118_3]({{site.baseurl}}/miles/transcript/2021/01/20210118-1089845)
-
-[郭文贵2021年1月18日盖特 20210118_4]({{site.baseurl}}/miles/transcript/2021/01/20210118-1089859)
-
-[郭文贵2021年1月18日盖特 20210118_5]({{site.baseurl}}/miles/transcript/2021/01/20210118-1089865)
+## 頁面 39/111 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page40)
 
 [郭文贵2021年1月18日盖特 20210118_6]({{site.baseurl}}/miles/transcript/2021/01/20210118-1089869)
 
@@ -53,5 +45,13 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2021年1月6日直播 20210106_1文贵直播：美国大选决战时刻（一）]({{site.baseurl}}/miles/transcript/2021/01/20210106-1090298)
 
+[郭文贵2021年1月6日直播 20210106_2文贵直播：美国大选决战时刻（二）]({{site.baseurl}}/miles/transcript/2021/01/20210106-1090322)
 
-## 頁面 39/112 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page40)
+[郭文贵2021年1月5日盖特 20210105_1北京在过去24小时发生了什么？华尔街为什么出尔反尔……取消对中共的电信公司的制裁，一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/01/20210105-1090295)
+
+[郭文贵2021年1月4日直播 20210104_1]({{site.baseurl}}/miles/transcript/2021/01/20210104-1090265)
+
+[郭文贵2021年1月4日盖特 20210104_2刚刚直播当中忘掉两个问题在这里向战友们再报告一下，希望战友们高度配合．喜马拉雅联盟委员会的战友之家．为战友们解决麻烦！和提供可靠的帮助！]({{site.baseurl}}/miles/transcript/2021/01/20210104-1090267)
+
+
+## 頁面 39/111 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page40)

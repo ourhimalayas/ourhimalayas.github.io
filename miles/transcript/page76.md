@@ -1,13 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 76/112 [**<**]({{site.baseurl}}/miles/transcript/page75) [1]({{site.baseurl}}/miles/transcript/index) ... [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) **76** [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page77)
-
-[郭文贵2019年7月22日视频 20190722聊聊．钥匙吴．和．Walle  French．造谣：欺骗的伎俩]({{site.baseurl}}/miles/transcript/2019/07/20190722-1093361)
-
-[2019年7月22日 直播全文字版]({{site.baseurl}}/miles/transcript/2019/07/20190722-1098117)
-
-[郭文贵2019年7月21日视频 20190721_2喜马拉雅大使馆直播测试版]({{site.baseurl}}/miles/transcript/2019/07/20190721-1089349)
+## 頁面 76/111 [**<**]({{site.baseurl}}/miles/transcript/page75) [1]({{site.baseurl}}/miles/transcript/index) ... [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) **76** [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page77)
 
 [郭文贵2019年7月21日视频 20190721爆料革命进入全球共同灭共的新时代 Miles live stream: the Exposé Revolution has entered a new age of eliminating the CCP...]({{site.baseurl}}/miles/transcript/2019/07/20190721-1093343)
 
@@ -53,5 +47,11 @@ title: 郭文貴先生的視頻文字
 
 [2019年7月9日直播全文字版：香港逃犯法为什么死亡了？香港还会有抗议吗？会实现双普选吗？]({{site.baseurl}}/miles/transcript/2019/07/20190709-1098105)
 
+[郭文贵2019年7月8日视频 20190708_2刚刚完成一个两个小会．现在马上上快船……跨越一个海湾……去另外一个地方开大会，现在正在去见一个牛叉叉的人物……一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/07/20190708-1089300)
 
-## 頁面 76/112 [**<**]({{site.baseurl}}/miles/transcript/page75) [1]({{site.baseurl}}/miles/transcript/index) ... [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) **76** [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page77)
+[郭文贵2019年7月8日视频 20190708_3灭共的路上……幸福的战斗着]({{site.baseurl}}/miles/transcript/2019/07/20190708-1089302)
+
+[郭文贵2019年7月8日视频 20190708_4文贵开两个小会开一个大会的路上．在船上与战友们聊天]({{site.baseurl}}/miles/transcript/2019/07/20190708-1089307)
+
+
+## 頁面 76/111 [**<**]({{site.baseurl}}/miles/transcript/page75) [1]({{site.baseurl}}/miles/transcript/index) ... [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) **76** [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page77)

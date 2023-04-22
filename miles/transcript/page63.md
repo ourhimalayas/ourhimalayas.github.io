@@ -1,13 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 63/112 [**<**]({{site.baseurl}}/miles/transcript/page62) [1]({{site.baseurl}}/miles/transcript/index) ... [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) **63** [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page64)
-
-[郭文贵2019年12月9日第一次直播 20191209_1文贵成为国际外汇交易中心；GPOST募捐比特币是被黑客，假信息]({{site.baseurl}}/miles/transcript/2019/12/20191209-1094205)
-
-[郭文贵2019年12月9日第二次直播 20191209_2爆王健彩色尸体照片 “王健死亡真相大披露”下部]({{site.baseurl}}/miles/transcript/2019/12/20191209-1094233)
-
-[郭文贵2019年12月8日第一次直播 20191208_1审判郭宝胜的最后一天]({{site.baseurl}}/miles/transcript/2019/12/20191208-1094069)
+## 頁面 63/111 [**<**]({{site.baseurl}}/miles/transcript/page62) [1]({{site.baseurl}}/miles/transcript/index) ... [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) **63** [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page64)
 
 [郭文贵2019年12月8日第二次直播 20191208_2昨天香港游行又一次震惊世界；香港抗议最大价值：教会大陆人上街和如何坚持到底，共产党必灭]({{site.baseurl}}/miles/transcript/2019/12/20191208-1094183)
 
@@ -53,5 +47,11 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年11月24日视频 20191124_3为了庆祝香港区议会选举的伟大胜利，今天我们要做了家常菜来庆祝庆祝，一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/11/20191124-1089673)
 
+[郭文贵2019年11月24日视频 20191124_4 燉魚頭慶賀香港區議員選舉大贏]({{site.baseurl}}/miles/transcript/2019/11/20191124-1089675)
 
-## 頁面 63/112 [**<**]({{site.baseurl}}/miles/transcript/page62) [1]({{site.baseurl}}/miles/transcript/index) ... [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) **63** [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page64)
+[郭文贵2019年11月24日 20191124马装助威香港公投选举议员]({{site.baseurl}}/miles/transcript/2019/11/20191124-1093943)
+
+[郭文贵2019年11月23日视频 20191123川普总统在福克斯电台爆料习近平对港举动震惊了全世界]({{site.baseurl}}/miles/transcript/2019/11/20191123-1094161)
+
+
+## 頁面 63/111 [**<**]({{site.baseurl}}/miles/transcript/page62) [1]({{site.baseurl}}/miles/transcript/index) ... [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) **63** [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page64)

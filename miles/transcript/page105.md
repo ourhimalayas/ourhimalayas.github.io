@@ -1,13 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 105/112 [**<**]({{site.baseurl}}/miles/transcript/page104) [1]({{site.baseurl}}/miles/transcript/index) ... [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) **105** [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page106)
-
-[郭文贵2017年10月12日视频 20171012_2准备资料避开郭七条里不反的人，国内人不要冲动]({{site.baseurl}}/miles/transcript/2017/10/20171012-1098260)
-
-[郭文贵2017年10月10日视频 20171010博讯造谣胡锦涛温家宝被抓，美国检查官调查吴征经济政治诈骗资料]({{site.baseurl}}/miles/transcript/2017/10/20171010-1098255)
-
-[郭文贵2017年10月8日 20171008吴征杨澜将引爆中美巨大政治丑闻]({{site.baseurl}}/miles/transcript/2017/10/20171008-1094619)
+## 頁面 105/111 [**<**]({{site.baseurl}}/miles/transcript/page104) [1]({{site.baseurl}}/miles/transcript/index) ... [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) **105** [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) ... [**>**]({{site.baseurl}}/miles/transcript/page106)
 
 [郭文贵2017年10月7日视频 20171007Snow上镜了]({{site.baseurl}}/miles/transcript/2017/10/20171007-1094128)
 
@@ -53,5 +47,11 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2017年9月14日视频 20170914将在48小时内爆政法王的情人之一]({{site.baseurl}}/miles/transcript/2017/09/20170914-1094091)
 
+[郭文贵2017年9月13日视频 20170913_2一小时后爆盗国贼们的生殖器治国首篇]({{site.baseurl}}/miles/transcript/2017/09/20170913-1094089)
 
-## 頁面 105/112 [**<**]({{site.baseurl}}/miles/transcript/page104) [1]({{site.baseurl}}/miles/transcript/index) ... [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) **105** [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page106)
+[郭文贵2017年9月13日视频 20170913姚依林王岐山孟建柱孙力军傅政华的生殖器治国首篇！姚依林与姚明瑞．刘呈杰．刘新扬的乱伦！刘呈杰的法人爹是谁？]({{site.baseurl}}/miles/transcript/2017/09/20170913-1094498)
+
+[郭文贵2017年9月12日视频 20170912大家不要上了盗国贼们生殖器大战的当]({{site.baseurl}}/miles/transcript/2017/09/20170912-1094087)
+
+
+## 頁面 105/111 [**<**]({{site.baseurl}}/miles/transcript/page104) [1]({{site.baseurl}}/miles/transcript/index) ... [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) **105** [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) ... [**>**]({{site.baseurl}}/miles/transcript/page106)

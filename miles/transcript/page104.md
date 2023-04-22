@@ -1,13 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 104/112 [**<**]({{site.baseurl}}/miles/transcript/page103) [1]({{site.baseurl}}/miles/transcript/index) ... [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) **104** [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page105)
-
-[郭文贵2017年11月15日第二次直播 20171115_2文贵与网友分享迈 阿密的穷人区新发展出来的新的设计区，这 才是真正地产开发商该干的事！创造财富以 报社会！并该恶帮穷从善！]({{site.baseurl}}/miles/transcript/2017/11/20171115-1094392)
-
-[郭文贵2017年11月15日第一次直播 20171115_1在Instagram直播痛斥唐柏桥]({{site.baseurl}}/miles/transcript/2017/11/20171115-1094706)
-
-[郭文贵2017年11月13日直播 20171113_1]({{site.baseurl}}/miles/transcript/2017/11/20171113-1093319)
+## 頁面 104/111 [**<**]({{site.baseurl}}/miles/transcript/page103) [1]({{site.baseurl}}/miles/transcript/index) ... [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) **104** [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page105)
 
 [郭文贵2017年11月12日第一次直播 20171112_1马阿拉哥庄园 与网友们聊聊天]({{site.baseurl}}/miles/transcript/2017/11/20171112-1094390)
 
@@ -53,5 +47,11 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2017年10月12日 20171012分享纽约城市天际线，想大家]({{site.baseurl}}/miles/transcript/2017/10/20171012-1094623)
 
+[郭文贵2017年10月12日视频 20171012_2准备资料避开郭七条里不反的人，国内人不要冲动]({{site.baseurl}}/miles/transcript/2017/10/20171012-1098260)
 
-## 頁面 104/112 [**<**]({{site.baseurl}}/miles/transcript/page103) [1]({{site.baseurl}}/miles/transcript/index) ... [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) **104** [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page105)
+[郭文贵2017年10月10日视频 20171010博讯造谣胡锦涛温家宝被抓，美国检查官调查吴征经济政治诈骗资料]({{site.baseurl}}/miles/transcript/2017/10/20171010-1098255)
+
+[郭文贵2017年10月8日 20171008吴征杨澜将引爆中美巨大政治丑闻]({{site.baseurl}}/miles/transcript/2017/10/20171008-1094619)
+
+
+## 頁面 104/111 [**<**]({{site.baseurl}}/miles/transcript/page103) [1]({{site.baseurl}}/miles/transcript/index) ... [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) **104** [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page105)

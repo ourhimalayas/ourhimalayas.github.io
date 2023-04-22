@@ -1,13 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 61/112 [**<**]({{site.baseurl}}/miles/transcript/page60) [1]({{site.baseurl}}/miles/transcript/index) ... [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) **61** [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page62)
-
-[郭文贵2020年1月19日 20200119惊天的新闻．中美协议是卖香港的交易。这就是中共所谓的外溢效应！]({{site.baseurl}}/miles/transcript/2020/01/20200119-1092312)
-
-[郭文贵2020年1月18日 20200118刘鹤招待会取消预示着什么]({{site.baseurl}}/miles/transcript/2020/01/20200118-1092293)
-
-[郭文贵2020年1月17日谈中美贸易战内幕 20200117贸易协议为何一定是滑稽的结]({{site.baseurl}}/miles/transcript/2020/01/20200117-1091616)
+## 頁面 61/111 [**<**]({{site.baseurl}}/miles/transcript/page60) [1]({{site.baseurl}}/miles/transcript/index) ... [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) **61** [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page62)
 
 [郭文贵2020年1月15日第一次直播 20200115_1谈美国白宫建筑意义]({{site.baseurl}}/miles/transcript/2020/01/20200115-1091598)
 
@@ -53,5 +47,11 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年12月30日第二次直播 20191230_2第二次直播向战友询问1/22和春节晚会的举办形式，有惊人王健死亡照片出示]({{site.baseurl}}/miles/transcript/2019/12/20191230-1094155)
 
+[郭文贵2019年12月29日连线钢铁侠 20191229聊中国的教育和如何面对的性]({{site.baseurl}}/miles/transcript/2019/12/20191229-1094163)
 
-## 頁面 61/112 [**<**]({{site.baseurl}}/miles/transcript/page60) [1]({{site.baseurl}}/miles/transcript/index) ... [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) **61** [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page62)
+[郭文贵2019年12月28日谈细丝的行为 20191228又一个郭宝胜欺诈的案例]({{site.baseurl}}/miles/transcript/2019/12/20191228-1094145)
+
+[郭文贵2019年12月27日视频 20191227文貴衷心的感谢洛杉矶⋯⋯的战友们，⋯⋯⋯⋯一切都是剛剛開始！]({{site.baseurl}}/miles/transcript/2019/12/20191227-1094124)
+
+
+## 頁面 61/111 [**<**]({{site.baseurl}}/miles/transcript/page60) [1]({{site.baseurl}}/miles/transcript/index) ... [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) **61** [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page62)

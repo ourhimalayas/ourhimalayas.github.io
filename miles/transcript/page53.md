@@ -1,13 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 53/112 [**<**]({{site.baseurl}}/miles/transcript/page52) [1]({{site.baseurl}}/miles/transcript/index) ... [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) **53** [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page54)
-
-[郭文贵2020年6月10日 20200610关于G币GTV投资者被澳大利亚等银行非法强迫退款的各种事宜]({{site.baseurl}}/miles/transcript/2020/06/20200610-1092566)
-
-[郭文贵2020年6月9日视频 20200609_3新中国联邦庆典-Lady May 胜利归航全记录]({{site.baseurl}}/miles/transcript/2020/06/20200609-1089033)
-
-[郭文贵2020年6月9日 20200609_2新中国联邦的护照什么时候可以获得？及新中国联邦接下来的几个重要工作重点？]({{site.baseurl}}/miles/transcript/2020/06/20200609-1092363)
+## 頁面 53/111 [**<**]({{site.baseurl}}/miles/transcript/page52) [1]({{site.baseurl}}/miles/transcript/index) ... [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) **53** [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page54)
 
 [郭文贵2020年6月9日 20200609_1关于G币的退款．诉讼．赔偿．一些问题．及如何拥有投资GTV老股的机会！的一些回答。]({{site.baseurl}}/miles/transcript/2020/06/20200609-1092536)
 
@@ -53,5 +47,11 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2020年5月25日视频 20200525_2共产党对战友们涌跃的投资的恐惧????用威胁其他国银行不配合投资付款！]({{site.baseurl}}/miles/transcript/2020/05/20200525-1092059)
 
+[郭文贵2020年5月25日视频 20200525_3如何解决共产党对我们投资的封杀．请战友们准备好六四宣言，讲遇到的挑战和挫折。]({{site.baseurl}}/miles/transcript/2020/05/20200525-1092378)
 
-## 頁面 53/112 [**<**]({{site.baseurl}}/miles/transcript/page52) [1]({{site.baseurl}}/miles/transcript/index) ... [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) **53** [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page54)
+[郭文贵2020年5月23日视频 20200523_4在班农War Room对美国的呐喊]({{site.baseurl}}/miles/transcript/2020/05/20200523-1089009)
+
+[郭文贵2020年5月23日第一次GTV直播 20200523_1从中国的五四民主运动和北京天安门的六四事件与美国的七四建国日．来看今天人类的大灾难……]({{site.baseurl}}/miles/transcript/2020/05/20200523-1092041)
+
+
+## 頁面 53/111 [**<**]({{site.baseurl}}/miles/transcript/page52) [1]({{site.baseurl}}/miles/transcript/index) ... [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) **53** [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page54)

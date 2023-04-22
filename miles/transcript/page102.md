@@ -1,13 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 102/112 [**<**]({{site.baseurl}}/miles/transcript/page101) [1]({{site.baseurl}}/miles/transcript/index) ... [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) **102** [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page103)
-
-[郭文贵2018年2月7日第二次直播 20180207_2再谈陈军先生和流氓袁健斌，吴征陷害文贵！再次感谢战友们发来的有关河北高院和政法委书记犯罪腐败证据]({{site.baseurl}}/miles/transcript/2018/02/20180207-1094566)
-
-[郭文贵2018年2月6日第二次直播 20180206_2再次呼吁战友们提供有关韦石、西诺、陈闯创、胡平利用办理假政庇骗钱的证据！一个把老婆放在大街上让人“乱干”的人不可能为大家“干出”民主自由！]({{site.baseurl}}/miles/transcript/2018/02/20180206-1094471)
-
-[郭文贵2018年2月6日第一次直播 20180206_1有关河北高院院长卫彦明]({{site.baseurl}}/miles/transcript/2018/02/20180206-1094476)
+## 頁面 102/111 [**<**]({{site.baseurl}}/miles/transcript/page101) [1]({{site.baseurl}}/miles/transcript/index) ... [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) **102** [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page103)
 
 [郭文贵2018年2月6日第三次直播 20180206_3向大家报告关于今天2月6日取消与陈军先生见面的过程！]({{site.baseurl}}/miles/transcript/2018/02/20180206-1094562)
 
@@ -53,5 +47,11 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2018年1月15日视频 20180115谈蓝金黄陈小平的夫人，孟建柱、王歧山一手策划假报习家财富]({{site.baseurl}}/miles/transcript/2018/01/20180115-1094475)
 
+[郭文贵2018年1月13日 20180113加拿大挺郭后援会2018年首次挺郭聚会（2）]({{site.baseurl}}/miles/transcript/2018/01/20180113-1094711)
 
-## 頁面 102/112 [**<**]({{site.baseurl}}/miles/transcript/page101) [1]({{site.baseurl}}/miles/transcript/index) ... [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) **102** [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page103)
+[郭文贵2018年1月11日直播 20180111_1]({{site.baseurl}}/miles/transcript/2018/01/20180111-1093335)
+
+[郭文贵2018年1月11日直播 20180111_2]({{site.baseurl}}/miles/transcript/2018/01/20180111-1093337)
+
+
+## 頁面 102/111 [**<**]({{site.baseurl}}/miles/transcript/page101) [1]({{site.baseurl}}/miles/transcript/index) ... [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) **102** [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page103)

@@ -1,13 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 47/112 [**<**]({{site.baseurl}}/miles/transcript/page46) [1]({{site.baseurl}}/miles/transcript/index) ... [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) **47** [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page48)
-
-[郭文贵2020年9月3日盖特 202009039月3号 尊敬的战友们好．全球联合灭共！和全球联合依法灭贼！进入了新的时代，为了维护新中国联邦……和战友们安全．与利益。和家人应有的尊]({{site.baseurl}}/miles/transcript/2020/09/20200903-1092730)
-
-[郭文贵2020年9月1日直播 20200901我们的GTV首次使用OBS全功能平台摄像机直播共产党在蒙古正在幻想灭族罪。]({{site.baseurl}}/miles/transcript/2020/09/20200901-1092721)
-
-[郭文贵2020年9月1日盖特 20200901_29月1号 尊敬的战友们好，你们健身了吗？传播C C P病毒．香港危机真相了吗？感谢战友们的文字。昨天这跑调的歌声的包容和支持，希望不要再传]({{site.baseurl}}/miles/transcript/2020/09/20200901-1092727)
+## 頁面 47/111 [**<**]({{site.baseurl}}/miles/transcript/page46) [1]({{site.baseurl}}/miles/transcript/index) ... [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) **47** [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page48)
 
 [郭文贵2020年8月31日盖特 20200831_1尊敬的战友们好，你们健身了吗？传播C C P病毒香港危机真相了吗？听说又要有大锤要落下呀，谁知道啊？文贵想了解正义力量]({{site.baseurl}}/miles/transcript/2020/08/20200831-1092695)
 
@@ -53,5 +47,11 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2020年8月21日盖特 20200821_28月21号 我们要让吴争．马云．哀立搏一敌．泥扣大V死．华尔街的．死地方夫汶……一个个地为共产党效劳，伤害，爆料革命的人付出必须付出代]({{site.baseurl}}/miles/transcript/2020/08/20200821-1092610)
 
+[郭文贵2020年8月20日直播 20200820_1文贵紧急直播：班农先生被捕是共产党的垂死反击，只会让灭共意志更坚定，让灭共力量更强大！]({{site.baseurl}}/miles/transcript/2020/08/20200820-1092739)
 
-## 頁面 47/112 [**<**]({{site.baseurl}}/miles/transcript/page46) [1]({{site.baseurl}}/miles/transcript/index) ... [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) **47** [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page48)
+[郭文贵2020年8月20日盖特 20200820_28月20号 尊敬的战友们好，我一直以来所说的。新中国联邦．爆料革命灭共运动，在八月份．九月份是最重要的]({{site.baseurl}}/miles/transcript/2020/08/20200820-1092748)
+
+[郭文贵2020年8月19日视频 20200819_3三马要出大事了吗？]({{site.baseurl}}/miles/transcript/2020/08/20200819-1090020)
+
+
+## 頁面 47/111 [**<**]({{site.baseurl}}/miles/transcript/page46) [1]({{site.baseurl}}/miles/transcript/index) ... [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) **47** [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page48)

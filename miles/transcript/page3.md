@@ -1,15 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 3/112 [**<**]({{site.baseurl}}/miles/transcript/page2) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) **3** [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page4)
-
-[2023年01月01日新中国联邦2023元旦大直播（第四部分）全文字版]({{site.baseurl}}/miles/transcript/2023/01/20230101-1098124)
-
-[2023年01月01日新中国联邦2023元旦大直播 （第二部分）全文字版]({{site.baseurl}}/miles/transcript/2023/01/20230101-1098129)
-
-[2022年12月29日 凤凰涅槃三度 生命浴火几重 无色无相无我 万法归于灭共 文贵闭关二十一天出关大直播  全文字版]({{site.baseurl}}/miles/transcript/2022/12/20221229-1098118)
-
-[2022年12月6日 文贵先生父亲离世公告视频《全文字版》]({{site.baseurl}}/miles/transcript/2022/12/20221206-1098112)
+## 頁面 3/111 [**<**]({{site.baseurl}}/miles/transcript/page2) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) **3** [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page4)
 
 [2022年12月4日《文贵大直播》全文字版 共产党将会如何使用核酸检测这个政治武器]({{site.baseurl}}/miles/transcript/2022/12/20221204-1098111)
 
@@ -53,5 +45,13 @@ title: 郭文貴先生的視頻文字
 
 [2022年10月19日《文贵大直播》全文字版：如何和新中国联邦的战友们一起面对有史以来最大的生存危机]({{site.baseurl}}/miles/transcript/2022/10/20221019-1098070)
 
+[2022年10月18日郭文贵盖特 共产党的腐败、傲慢狂妄自]({{site.baseurl}}/miles/transcript/2022/10/20221018-1098069)
 
-## 頁面 3/112 [**<**]({{site.baseurl}}/miles/transcript/page2) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) **3** [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page4)
+[2022年10月17日郭文贵盖特 坚持为真不破是灭共的绝对利器]({{site.baseurl}}/miles/transcript/2022/10/20221017-1098068)
+
+[2022年10月16日《文贵大直播》中共二十大究竟想干什么？]({{site.baseurl}}/miles/transcript/2022/10/20221016-1098067)
+
+[2022年10月14日 新中国联邦三剑客浪漫聚核晚餐 全文字版]({{site.baseurl}}/miles/transcript/2022/10/20221014-1098065)
+
+
+## 頁面 3/111 [**<**]({{site.baseurl}}/miles/transcript/page2) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) **3** [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page4)

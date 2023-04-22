@@ -1,15 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 27/112 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page28)
-
-[郭文贵2021年6月10日盖特 20210610_1今天上午10:30在国会山询问关于闫博士来美国，以及他给美国政府的报告的有关事情！说明了什么？新中国联邦和爆料革命走到今天实在实在太不容易，无数个背后的伟大的．有巨大成功的影响力的]({{site.baseurl}}/miles/transcript/2021/06/20210610-1091530)
-
-[郭文贵2021年6月9日盖特 20210609_1尊敬的战友们好！复旦．南京等地区爆发的一系列的抗议事件．和在中共国的国内发生一系列的残暴杀人……都是共产党奴隶抢夺和非法统治中国人民必然发生的一个轮回的结果，欧中协议失败和]({{site.baseurl}}/miles/transcript/2021/06/20210609-1091526)
-
-[郭文贵2021年6月8日盖特 20210608_1尊敬的战友们好14亿同胞．和孩子们的绝望……中共经济的即将的崩溃……和社会治安的动乱……和美军即将长期派驻台湾……保护台湾……宣布台湾成为主权独立的国家……这些事件的发生这意味]({{site.baseurl}}/miles/transcript/2021/06/20210608-1091524)
-
-[郭文贵2021年6月7日直播 20210607_164后大家需要抓紧完成的几件大事，与各农场联系；宣布联盟农场的变动，介绍铁血组新成员]({{site.baseurl}}/miles/transcript/2021/06/20210607-1091520)
+## 頁面 27/111 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page28)
 
 [郭文贵2021年6月6日盖特 20210606_1尊敬的战友们好！新中国联邦的宣言．和爆料革命的．行动力．正在对冲掉共产党在中共的一切谎言．爆料革命将横扫中共在世界上任何一个角落的黑暗的力量！]({{site.baseurl}}/miles/transcript/2021/06/20210606-1091509)
 
@@ -53,5 +45,13 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2021年5月29日盖特 20210529_2尊敬的战友们好！全人类都面临着．共产党倒闭……引起的世界的政治动荡，战争带来的不可确定性的毁灭和伤害，美国及世界经济的灾难．必将到来．所造成的不可估量的影响，以及人类货币．]({{site.baseurl}}/miles/transcript/2021/05/20210529-1091453)
 
+[郭文贵2021年5月29日盖特 20210529_3尊敬的菜弄好应很多专业的要求发一个Snow 的视频！]({{site.baseurl}}/miles/transcript/2021/05/20210529-1091454)
 
-## 頁面 27/112 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page28)
+[郭文贵2021年5月29日盖特 20210529_47哥边开会边做着我们山东莘县的古城郭氏烧鸡．这是我小时候最想吃的最爱吃的，我老家古城的郭氏烧鸡！我会将共产党如同楚，这个机一样，慢慢地将它们煮熟煮透……而且要程序化的耐心的将]({{site.baseurl}}/miles/transcript/2021/05/20210529-1091456)
+
+[郭文贵2021年5月28日盖特 20210528_1尊敬的战友们好！为什么躺平币．在国内造成这么大的影响？在这里公开回复很多战友．要求加入关于．G系列的将获得新GTV股票奖励的一些细节！]({{site.baseurl}}/miles/transcript/2021/05/20210528-1091447)
+
+[郭文贵2021年5月27日直播 20210527_1中共把贸易全球化变成全球贸易中国化，强奸联合国组织，新中国联邦拯救了世界；关于武汉实验室在过去48小时已发生根本变化；6月4号新中国联邦一周年活动意义非凡]({{site.baseurl}}/miles/transcript/2021/05/20210527-1091431)
+
+
+## 頁面 27/111 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page28)

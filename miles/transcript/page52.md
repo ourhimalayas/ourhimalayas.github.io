@@ -1,13 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 52/112 [**<**]({{site.baseurl}}/miles/transcript/page51) [1]({{site.baseurl}}/miles/transcript/index) ... [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) **52** [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page53)
-
-[郭文贵2020年6月25日直播 20200625_1杨洁篪来美国都说了什么？共产党最快三个月彻底灭亡！]({{site.baseurl}}/miles/transcript/2020/06/20200625-1092129)
-
-[郭文贵2020年6月25日直播 20200625_2夏威夷会面杨洁篪再次的威胁，美国和将华人都列为犯罪分子的背后故事]({{site.baseurl}}/miles/transcript/2020/06/20200625-1092221)
-
-[郭文贵2020年6月24日视频 20200624_1文贵与战友们分享今天媳妇做的大锅菜]({{site.baseurl}}/miles/transcript/2020/06/20200624-1089886)
+## 頁面 52/111 [**<**]({{site.baseurl}}/miles/transcript/page51) [1]({{site.baseurl}}/miles/transcript/index) ... [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) **52** [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page53)
 
 [郭文贵2020年6月21日视频 20200621_1祝天下所有的父亲父亲节快乐文贵在父亲节与战友分享为所有的身边的工作人员和家人蒸玉米面馒头和山东大卷子和花卷素菜包子的时刻]({{site.baseurl}}/miles/transcript/2020/06/20200621-1089878)
 
@@ -53,5 +47,11 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2020年6月13日连线江财神 20200613畅谈喜马拉雅农场和新中国联邦未来]({{site.baseurl}}/miles/transcript/2020/06/20200613-1094251)
 
+[郭文贵2020年6月10日 20200610关于G币GTV投资者被澳大利亚等银行非法强迫退款的各种事宜]({{site.baseurl}}/miles/transcript/2020/06/20200610-1092566)
 
-## 頁面 52/112 [**<**]({{site.baseurl}}/miles/transcript/page51) [1]({{site.baseurl}}/miles/transcript/index) ... [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) **52** [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page53)
+[郭文贵2020年6月9日视频 20200609_3新中国联邦庆典-Lady May 胜利归航全记录]({{site.baseurl}}/miles/transcript/2020/06/20200609-1089033)
+
+[郭文贵2020年6月9日 20200609_2新中国联邦的护照什么时候可以获得？及新中国联邦接下来的几个重要工作重点？]({{site.baseurl}}/miles/transcript/2020/06/20200609-1092363)
+
+
+## 頁面 52/111 [**<**]({{site.baseurl}}/miles/transcript/page51) [1]({{site.baseurl}}/miles/transcript/index) ... [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) **52** [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page53)

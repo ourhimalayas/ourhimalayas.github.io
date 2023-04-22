@@ -1,15 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 29/112 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page30)
-
-[郭文贵2021年5月18日盖特 20210518_2从早晨6:00到现在，基本上没有吃任何东西．开了一整天的会和采访，但是还是要锻炼．不要给自己任何理由放弃自己的目标……和背叛自己的承诺！]({{site.baseurl}}/miles/transcript/2021/05/20210518-1091377)
-
-[郭文贵2021年5月18日盖特 20210518_3第三次兄弟姐妹们，这个看上去容易的锻炼模式……非常非常的艰难，非常非常的危险．千万千万不要模仿．务必注意自己的身体安全第一！科学锻炼．才能达到，我们健身强心的目的！]({{site.baseurl}}/miles/transcript/2021/05/20210518-1091381)
-
-[郭文贵2021年5月17日盖特 20210517_1回答很多国内战友问七哥．是否应该投资刚刚复出的过去的中国亿万富豪们的项目！七哥如何看待，现在比特币和加密货币的混乱！]({{site.baseurl}}/miles/transcript/2021/05/20210517-1091369)
-
-[郭文贵2021年5月17日盖特 20210517_2尊敬的战友们好，由于明天一整天的特别重要的事情的安排，上午没有时间发盖特，所以现在先发一个盖特！谈谈今天共产党操控的火鸡龚．????粑傅．在华盛顿邮报和所谓的一个．AI黑客网站。两]({{site.baseurl}}/miles/transcript/2021/05/20210517-1091371)
+## 頁面 29/111 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page30)
 
 [郭文贵2021年5月16日直播 20210516_1为什么文贵反对西方国家对中共子女的签证限制；怎样理解文贵坚决灭共，对99%党员大赦，反共不反华]({{site.baseurl}}/miles/transcript/2021/05/20210516-1091359)
 
@@ -53,5 +45,13 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2021年5月9日盖特 20210509_2衷心地祝愿所有天下的母亲．母亲节快乐????????????????????????????????永远平安健康！]({{site.baseurl}}/miles/transcript/2021/05/20210509-1091299)
 
+[郭文贵2021年5月8日盖特 20210508_1七哥要给所有的战友们．每个人准备一个看不着摸不着，却每个人都想要的礼物……作为6月4号的，新中国联邦一周年礼物．大家猜猜是什么呢？]({{site.baseurl}}/miles/transcript/2021/05/20210508-1091287)
 
-## 頁面 29/112 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page30)
+[郭文贵2021年5月7日盖特 20210507_1中国共产党这个流氓政府．为什么要在全国封杀购买比特币．和加密货币？只要共产党不让干的事儿，都是世界上最伟大的事儿，只要共产党让干的事儿．一定是世界上最坏的事！]({{site.baseurl}}/miles/transcript/2021/05/20210507-1091276)
+
+[郭文贵2021年5月7日盖特 20210507_2应很多战友的要求．再录制第二段盖特．加密货币的最重要的价值是．无阻碍的全球即时流通．绝对的隐私和保密性．更重要的是零成本的点对点的绝对安全交易！还有很多很多与人类的尊严．民]({{site.baseurl}}/miles/transcript/2021/05/20210507-1091278)
+
+[郭文贵2021年5月7日盖特 20210507_3加密货币，如果被枪顶着脑袋支付给非关的第三方意味着什么？共产党为什么大肆的宣传，不让买虚拟货币和加密货币！可自己去推广D C E P的中共加密货币呢？]({{site.baseurl}}/miles/transcript/2021/05/20210507-1091281)
+
+
+## 頁面 29/111 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page30)

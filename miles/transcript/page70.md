@@ -1,13 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 70/112 [**<**]({{site.baseurl}}/miles/transcript/page69) [1]({{site.baseurl}}/miles/transcript/index) ... [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) **70** [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page71)
-
-[郭文贵2019年9月24日第二次直播 20190924_2红烧肉真香，ccp给人民吃瘟猪肉，还把阅兵后的帅哥美女按领导级別分配，美女当小三，帅哥当领导夫人保镖.]({{site.baseurl}}/miles/transcript/2019/09/20190924-1093675)
-
-[郭文贵2019年9月24日第一次直播 20190924_1郭文贵先生和江财神路德三人谈政治经济爱情以及外星人！妄图弹劾总统是好事！]({{site.baseurl}}/miles/transcript/2019/09/20190924-1093697)
-
-[2019年9月24日文贵大直播全文字版：红烧肉真香，ccp给人民吃瘟猪肉，还把阅兵后的帅哥美女按领导级別分配，美女当小三，帅哥当领导夫人保镖.]({{site.baseurl}}/miles/transcript/2019/09/20190924-1098239)
+## 頁面 70/111 [**<**]({{site.baseurl}}/miles/transcript/page69) [1]({{site.baseurl}}/miles/transcript/index) ... [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) **70** [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page71)
 
 [郭文贵2019年9月23日视频 20190923_1(無侵權版, 原版已被CCTV裡的雞舉報刪除)中共全面实施“驭民五术”，国庆军演民不聊生。应对中共“三大战役”，美国只会打口炮么？美国武力介入香港问题的可能性有多大？]({{site.baseurl}}/miles/transcript/2019/09/20190923-1089523)
 
@@ -53,5 +47,11 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年9月11日视频 20190911_1(前段)博尔顿离开白宫内幕！全世界各方面灭共人士灭共力量大聚集！]({{site.baseurl}}/miles/transcript/2019/09/20190911-1089513)
 
+[郭文贵2019年9月11日 20190911博尔顿离开白宫内幕！全世界各方面灭共人士灭共力量大聚集！]({{site.baseurl}}/miles/transcript/2019/09/20190911-1093585)
 
-## 頁面 70/112 [**<**]({{site.baseurl}}/miles/transcript/page69) [1]({{site.baseurl}}/miles/transcript/index) ... [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) **70** [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page71)
+[2019年9月11日文贵大直播全文字版：博尔顿离开白宫内幕！全世界各方面灭共人士灭共力量大聚集！]({{site.baseurl}}/miles/transcript/2019/09/20190911-1098221)
+
+[郭文贵2019年9月10日视频 20190910_1文贵在凌晨6 00先向大家报平安了，昨天路德的晚餐, 加上他兒子弄壞船上的沙發, 至少毀了我十萬美元, TNND, 非叫路德賠不可]({{site.baseurl}}/miles/transcript/2019/09/20190910-1089510)
+
+
+## 頁面 70/111 [**<**]({{site.baseurl}}/miles/transcript/page69) [1]({{site.baseurl}}/miles/transcript/index) ... [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) **70** [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page71)
