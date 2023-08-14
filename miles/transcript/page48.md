@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 48/111 [**<**]({{site.baseurl}}/miles/transcript/page47) [1]({{site.baseurl}}/miles/transcript/index) ... [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) **48** [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page49)
 
+[郭文贵2020年8月19日视频 20200819_3三马要出大事了吗？]({{site.baseurl}}/miles/transcript/2020/08/20200819-1090020)
+
 [郭文贵2020年8月19日盖特 20200819_1尊敬的战友们好，你们健身了吗？你们传播C C P病毒香港危机真相了吗？一切都已经开始]({{site.baseurl}}/miles/transcript/2020/08/20200819-1092726)
 
 [郭文贵2020年8月19日盖特 20200819_2英雄科学家 正在干啥子呢?]({{site.baseurl}}/miles/transcript/2020/08/20200819-1092728)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年8月4日直播 20200804_3GTV的价值用金钱无法衡量，历史的机遇无法计算，这都是因为战友的信任和支持]({{site.baseurl}}/miles/transcript/2020/08/20200804-1092464)
 
 [郭文贵2020年8月4日直播 20200804_4共产党的内斗将是一场人类前所未有的政治大劫难]({{site.baseurl}}/miles/transcript/2020/08/20200804-1092485)
-
-[郭文贵2020年8月4日直播 20200804_5文贵与班农聊GTV和中共黑客]({{site.baseurl}}/miles/transcript/2020/08/20200804-1092492)
 
 
 ## 頁面 48/111 [**<**]({{site.baseurl}}/miles/transcript/page47) [1]({{site.baseurl}}/miles/transcript/index) ... [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) **48** [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page49)

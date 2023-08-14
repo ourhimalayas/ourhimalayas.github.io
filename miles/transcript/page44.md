@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 44/111 [**<**]({{site.baseurl}}/miles/transcript/page43) [1]({{site.baseurl}}/miles/transcript/index) ... [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) **44** [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page45)
 
+[郭文贵2020年11月15日直播 20201115_4连线唐平，威廉王]({{site.baseurl}}/miles/transcript/2020/11/20201115-1093212)
+
 [郭文贵2020年11月14日直播 20201114_1]({{site.baseurl}}/miles/transcript/2020/11/20201114-1093157)
 
 [郭文贵2020年11月14日连线香草山 20201114_2纽约香草山农场DC挺川大游行]({{site.baseurl}}/miles/transcript/2020/11/20201114-1093166)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年10月13日直播 20201013文贵关于Gclub和GFashion上线前有关问题的声明直播]({{site.baseurl}}/miles/transcript/2020/10/20201013-1093154)
 
 [郭文贵2020年10月12日盖特 20201012_1爆料革命这碗洒……????????????敬天．敬地．敬战友！]({{site.baseurl}}/miles/transcript/2020/10/20201012-1093124)
-
-[郭文贵2020年10月12日盖特 20201012_2尊敬的战友们好，全球自发的惩贼．要真相．维护华人形象的现象．已经得到了很多正义的有识之士！和法律人士！的绝对的支持……我们]({{site.baseurl}}/miles/transcript/2020/10/20201012-1093129)
 
 
 ## 頁面 44/111 [**<**]({{site.baseurl}}/miles/transcript/page43) [1]({{site.baseurl}}/miles/transcript/index) ... [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) **44** [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page45)

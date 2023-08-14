@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 18/111 [**<**]({{site.baseurl}}/miles/transcript/page17) [1]({{site.baseurl}}/miles/transcript/index) ... [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) **18** [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page19)
 
+[郭文贵2021年10月3日盖特 20211003_4人性啊……人……性啊……人性——啊人……性……啊]({{site.baseurl}}/miles/transcript/2021/10/20211003-1093262)
+
+[郭文贵2021年10月3日直播 20211003_1中共外交部是情报机关；爆料程国平，大使倪坚；王毅，杨洁篪，王沪宁一定被抓；外交部和政法委的腐败黑暗关系；傅政华与文贵的通话录音变声的真相；习王江曾厮杀的核心；病毒解药一定都]({{site.baseurl}}/miles/transcript/2021/10/20211003-1093570)
+
 [郭文贵2021年10月3日盖特 20211003_2衷心地感谢，今天所有的战友们，参与的六个小时的大直播，感谢所有的台前幕后的工作的兄弟姐妹们，七哥还是感觉，意犹未尽，????????????现在还想马上直播，咋弄咧咋弄咧？]({{site.baseurl}}/miles/transcript/2021/10/20211003-1093571)
 
 [郭文贵2021年10月2日盖特 20211002_1尊敬的战友们好！你们健身了吗？传播疫苗灾难，CCP病毒的真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/10/20211002-1093450)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年9月17日直播 20210917_2新中国联邦庆贺马丁·班农先生百岁生日快乐！The New Federal State of China Wishes Mr. Marty Bannon A Happy 100th Birthday!]({{site.baseurl}}/miles/transcript/2021/09/20210917-1093150)
 
 [郭文贵2021年9月16日盖特 20210916_1尊敬的战友们好，昨天的直播，在国际政治和金融领域和有智慧的战友眼里是完全不同的一个直播的意义的结果。新中国联盟的国际大使……那瓦罗先生的加入！对我爆料革命和新中国联邦意味着]({{site.baseurl}}/miles/transcript/2021/09/20210916-1093153)
-
-[郭文贵2021年9月16日盖特 20210916_2共产党正在海外穷凶极恶的派遣他那些垃圾兵团……脑残兵团……伺机报复我们的爆料革命。继他们在美国的法律超限战巨大失败后，已经导致很多平爆小组的人被免职。我们的战友们要做好准备]({{site.baseurl}}/miles/transcript/2021/09/20210916-1093159)
-
-[郭文贵2021年9月16日盖特 20210916_3七哥今天有两场球赛????……一大1⃣️小……]({{site.baseurl}}/miles/transcript/2021/09/20210916-1093161)
 
 
 ## 頁面 18/111 [**<**]({{site.baseurl}}/miles/transcript/page17) [1]({{site.baseurl}}/miles/transcript/index) ... [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) **18** [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page19)

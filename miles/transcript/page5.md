@@ -15,6 +15,10 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2022年9月10日直播 20220910_1回響 ∙ 水调歌头 2022年中秋特别节目]({{site.baseurl}}/miles/transcript/2022/09/20220910-1091817)
 
+[test]({{site.baseurl}}/miles/transcript/2022/07/20220701-1552498)
+
+[2022年6月3日《郭先生战友见面会直播》全文字版]({{site.baseurl}}/miles/transcript/2022/06/20220603-1552460)
+
 [郭文贵2022年5月13日直播 20220513_1最新疫苗灾难信息防护；数字货币价格变动比较；喜币流通应用突出优势；区块链的政治领域应用]({{site.baseurl}}/miles/transcript/2022/05/20220513-1091627)
 
 [郭文贵2022年5月13日直播 20220513_2七哥与战友们连线吃播]({{site.baseurl}}/miles/transcript/2022/05/20220513-1091656)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2022年5月1日直播 20220501_1俄乌战争台海局势；中共经济爆雷现状；疫苗灾难危及人类；世界经济面临崩塌]({{site.baseurl}}/miles/transcript/2022/05/20220501-1091523)
 
 [郭文贵2022年4月30日盖特 20220430_2尊敬的战友们好……世界的经济已经走向崩塌，崩溃已经开始！]({{site.baseurl}}/miles/transcript/2022/04/20220430-1091723)
-
-[郭文贵2022年4月29日直播 20220429_1认可分布式记账喜币大机遇；从纳粹大屠杀看中共大屠杀；法国大选结果分析欧洲未来]({{site.baseurl}}/miles/transcript/2022/04/20220429-1091452)
-
-[郭文贵2022年4月29日盖特 20220429_2尊敬的战友们好……今天的纽约．阳光明媚．美丽极了，今天取消了开庭．七哥与战友们分享这美好的时光！]({{site.baseurl}}/miles/transcript/2022/04/20220429-1091719)
 
 
 ## 頁面 5/111 [**<**]({{site.baseurl}}/miles/transcript/page4) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) **5** [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page6)

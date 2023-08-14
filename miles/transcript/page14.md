@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 14/111 [**<**]({{site.baseurl}}/miles/transcript/page13) [1]({{site.baseurl}}/miles/transcript/index) ... [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) **14** [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page15)
 
+[郭文贵2021年11月28日直播 20211128_1新变种Omicron 如临大敌；青蒿素妙药必将解救众生；中共国世界股票剧烈震荡；新中国联邦坚守唯真不破]({{site.baseurl}}/miles/transcript/2021/11/20211128-1094249)
+
+[郭文贵2021年11月27日盖特 20211127_1尊敬的战友们好……你们建身了吗？你们传播CCP病毒和疫苗解药的真相了吗？一切都已经开始!]({{site.baseurl}}/miles/transcript/2021/11/20211127-1093666)
+
 [郭文贵2021年11月26日盖特 20211126_2昨天发出这个视频没有声音，这是怎么回事呢？在发发试试……]({{site.baseurl}}/miles/transcript/2021/11/20211126-1093663)
 
 [郭文贵2021年11月26日直播 20211126_1再谈青蒿素病毒疫苗解药；感恩节五千万人旅行后果；近日币安数字货币大变；喜币价值新中国联邦实力]({{site.baseurl}}/miles/transcript/2021/11/20211126-1094198)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年11月16日盖特直播 20211116_2无论是对神和人都要兑现你的承诺]({{site.baseurl}}/miles/transcript/2021/11/20211116-1093626)
 
 [郭文贵2021年11月15日盖特 20211115_1尊敬的战友们好，你们健身了吗？传播C C P病毒和疫苗解药的真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/11/20211115-1093600)
-
-[郭文贵2021年11月15日盖特 20211115_2尊敬的战友们好，全世界都在准备着……共产党擀面杖子的虚假经济．即将崩塌，而准备各自的经济大逃亡……]({{site.baseurl}}/miles/transcript/2021/11/20211115-1093604)
-
-[郭文贵2021年11月15日盖特 20211115_3尊敬的战友们好，我们开始吃馍馍．吃饭饭喽……]({{site.baseurl}}/miles/transcript/2021/11/20211115-1093610)
 
 
 ## 頁面 14/111 [**<**]({{site.baseurl}}/miles/transcript/page13) [1]({{site.baseurl}}/miles/transcript/index) ... [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) **14** [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page15)

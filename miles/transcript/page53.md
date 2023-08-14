@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 53/111 [**<**]({{site.baseurl}}/miles/transcript/page52) [1]({{site.baseurl}}/miles/transcript/index) ... [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) **53** [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page54)
 
+[郭文贵2020年6月9日 20200609_2新中国联邦的护照什么时候可以获得？及新中国联邦接下来的几个重要工作重点？]({{site.baseurl}}/miles/transcript/2020/06/20200609-1092363)
+
 [郭文贵2020年6月9日 20200609_1关于G币的退款．诉讼．赔偿．一些问题．及如何拥有投资GTV老股的机会！的一些回答。]({{site.baseurl}}/miles/transcript/2020/06/20200609-1092536)
 
 [郭文贵2020年6月8日连线木兰乱聊 20200608GTV恢复连线等功能；新中国联邦成立在中国国内和台湾的影响；中共持续造谣抹黑郝海东夫妇]({{site.baseurl}}/miles/transcript/2020/06/20200608-1092508)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年5月25日视频 20200525_3如何解决共产党对我们投资的封杀．请战友们准备好六四宣言，讲遇到的挑战和挫折。]({{site.baseurl}}/miles/transcript/2020/05/20200525-1092378)
 
 [郭文贵2020年5月23日视频 20200523_4在班农War Room对美国的呐喊]({{site.baseurl}}/miles/transcript/2020/05/20200523-1089009)
-
-[郭文贵2020年5月23日第一次GTV直播 20200523_1从中国的五四民主运动和北京天安门的六四事件与美国的七四建国日．来看今天人类的大灾难……]({{site.baseurl}}/miles/transcript/2020/05/20200523-1092041)
 
 
 ## 頁面 53/111 [**<**]({{site.baseurl}}/miles/transcript/page52) [1]({{site.baseurl}}/miles/transcript/index) ... [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) **53** [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page54)

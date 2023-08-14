@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 62/111 [**<**]({{site.baseurl}}/miles/transcript/page61) [1]({{site.baseurl}}/miles/transcript/index) ... [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) **62** [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page63)
 
+[郭文贵2019年12月27日视频 20191227文貴衷心的感谢洛杉矶⋯⋯的战友们，⋯⋯⋯⋯一切都是剛剛開始！]({{site.baseurl}}/miles/transcript/2019/12/20191227-1094124)
+
 [郭文贵2019年12月26日视频 20191226_2要往下一站了 衷心地感謝鳳凰城Phoenix 所有的兄弟姐妹們]({{site.baseurl}}/miles/transcript/2019/12/20191226-1089745)
 
 [郭文贵2019年12月26日视频 20191226谈中共经济正在崩溃 习王之战全面开启]({{site.baseurl}}/miles/transcript/2019/12/20191226-1094119)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年12月9日第一次直播 20191209_1文贵成为国际外汇交易中心；GPOST募捐比特币是被黑客，假信息]({{site.baseurl}}/miles/transcript/2019/12/20191209-1094205)
 
 [郭文贵2019年12月9日第二次直播 20191209_2爆王健彩色尸体照片 “王健死亡真相大披露”下部]({{site.baseurl}}/miles/transcript/2019/12/20191209-1094233)
-
-[郭文贵2019年12月8日第一次直播 20191208_1审判郭宝胜的最后一天]({{site.baseurl}}/miles/transcript/2019/12/20191208-1094069)
 
 
 ## 頁面 62/111 [**<**]({{site.baseurl}}/miles/transcript/page61) [1]({{site.baseurl}}/miles/transcript/index) ... [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) **62** [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page63)

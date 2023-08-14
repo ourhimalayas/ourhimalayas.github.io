@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 41/111 [**<**]({{site.baseurl}}/miles/transcript/page40) [1]({{site.baseurl}}/miles/transcript/index) ... [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) **41** [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page42)
 
+[郭文贵2020年12月25日音频聊天 20201225_2郭先生喜马拉雅大使馆discord群答疑录音]({{site.baseurl}}/miles/transcript/2020/12/20201225-1090289)
+
+[郭文贵2020年12月24日盖特 20201224_4郝海東夫婦中大獎了 買了八個中了三個20201224之4]({{site.baseurl}}/miles/transcript/2020/12/20201224-1089734)
+
 [郭文贵2020年12月24日盖特 20201224_1平安夜快乐……你们感受到最不平安夜的感觉了吗？]({{site.baseurl}}/miles/transcript/2020/12/20201224-1090139)
 
 [郭文贵2020年12月24日盖特 20201224_2平安夜????文贵向战友们再次的祝福，明天．25号上午9:00至10:00……文贵圣诞直播！]({{site.baseurl}}/miles/transcript/2020/12/20201224-1090140)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年12月13日盖特 20201213_1GTV的投资者用自己的智慧和金钱证明了自己到底是聪明人……还是大笨蛋……好日子只是刚刚开始！]({{site.baseurl}}/miles/transcript/2020/12/20201213-1090069)
 
 [郭文贵2020年12月13日盖特 20201213_2明天14号后天15号就像几周以前，我说过的一样，这是关键的日子，你们会很开心，会很兴奋的]({{site.baseurl}}/miles/transcript/2020/12/20201213-1090072)
-
-[郭文贵2020年12月12日盖特 20201212_1文贵喝咖啡喝醉了……乱聊，并回答很多朋友在昨天直播后的一些有关沼泽地里的关切！]({{site.baseurl}}/miles/transcript/2020/12/20201212-1090067)
-
-[郭文贵2020年12月11日直播 20201211_1文贵直播谈真实的川普总统；正义的力量超乎我们的想象！]({{site.baseurl}}/miles/transcript/2020/12/20201211-1090042)
 
 
 ## 頁面 41/111 [**<**]({{site.baseurl}}/miles/transcript/page40) [1]({{site.baseurl}}/miles/transcript/index) ... [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) **41** [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page42)

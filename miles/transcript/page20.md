@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 20/111 [**<**]({{site.baseurl}}/miles/transcript/page19) [1]({{site.baseurl}}/miles/transcript/index) ... [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) **20** [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page21)
 
+[郭文贵2021年9月4日盖特 20210904_2解药的事儿太大了..太大了..太大了..]({{site.baseurl}}/miles/transcript/2021/09/20210904-1092925)
+
+[郭文贵2021年9月4日盖特 20210904_3G俱乐部所有会员的小玩貝！]({{site.baseurl}}/miles/transcript/2021/09/20210904-1092928)
+
 [郭文贵2021年9月4日盖特 20210904_5两轮摩托车在草地上滑……弄了个三轮摩托车试试……]({{site.baseurl}}/miles/transcript/2021/09/20210904-1092929)
 
 [郭文贵2021年9月4日盖特 20210904_4蒙古铁马在大草原上]({{site.baseurl}}/miles/transcript/2021/09/20210904-1092931)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年8月26日直播 20210826_2摇滚歌神文贵先生现场签名直播]({{site.baseurl}}/miles/transcript/2021/08/20210826-1092650)
 
 [郭文贵2021年8月25日直播 20210825_1如果疫苗不被停止，世界从过去政治家利用疫苗将成为所有政治家的噩梦！]({{site.baseurl}}/miles/transcript/2021/08/20210825-1092372)
-
-[郭文贵2021年8月24日盖特 20210824_2尊敬的战友们好．马上要开始的直播，继续谈疫苗灾难将给世界的经济，我们每个人生活．带来什么样的影响，从昨天到今天．太多战友给我发来的自己家人．朋友．打疫苗后的严重的后果的一个]({{site.baseurl}}/miles/transcript/2021/08/20210824-1092194)
-
-[郭文贵2021年8月24日直播 20210824_1中共病毒和疫苗的生化超限战对世界经济的前所未有的打击；疫苗灾难给人类带来什么样危机；经济负增长意味着什么；有毒的口罩和疫苗都含有氧化石墨烯；新中国联邦农场战友全面开始互助互]({{site.baseurl}}/miles/transcript/2021/08/20210824-1092799)
 
 
 ## 頁面 20/111 [**<**]({{site.baseurl}}/miles/transcript/page19) [1]({{site.baseurl}}/miles/transcript/index) ... [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) **20** [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page21)

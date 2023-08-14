@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 45/111 [**<**]({{site.baseurl}}/miles/transcript/page44) [1]({{site.baseurl}}/miles/transcript/index) ... [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) **45** [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page46)
 
+[郭文贵2020年10月12日盖特 20201012_2尊敬的战友们好，全球自发的惩贼．要真相．维护华人形象的现象．已经得到了很多正义的有识之士！和法律人士！的绝对的支持……我们]({{site.baseurl}}/miles/transcript/2020/10/20201012-1093129)
+
 [郭文贵2020年10月9日盖特 20201009尊敬的战友们好……任何事情，只要依法做事，没有任何人可以伤害我们——我们要绝对的相信美国的司法系统！在美国的法律面前绝对人人]({{site.baseurl}}/miles/transcript/2020/10/20201009-1093105)
 
 [郭文贵2020年10月8日盖特 20201008尊敬的战友们好……全球的战友的一致行动……和坚定地灭掉共产党和惩罚贼行动，正在得到全世界有良知的人认可和支持……维护海外的华人]({{site.baseurl}}/miles/transcript/2020/10/20201008-1093101)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年9月19日做客战斗室 20200919_7班农战斗室 郭文贵专场 E395 中文整理]({{site.baseurl}}/miles/transcript/2020/09/20200919-1092855)
 
 [郭文贵2020年9月19日直播 20200919_1谈班农百岁老父亲献给路德节目处男秀，强力支持灭共的感受（一）]({{site.baseurl}}/miles/transcript/2020/09/20200919-1092924)
-
-[郭文贵2020年9月19日直播 20200919_2谈班农百岁老父亲献给路德节目处男秀，强力支持灭共的感受（二）]({{site.baseurl}}/miles/transcript/2020/09/20200919-1092930)
 
 
 ## 頁面 45/111 [**<**]({{site.baseurl}}/miles/transcript/page44) [1]({{site.baseurl}}/miles/transcript/index) ... [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) **45** [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page46)

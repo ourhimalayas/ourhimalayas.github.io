@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 59/111 [**<**]({{site.baseurl}}/miles/transcript/page58) [1]({{site.baseurl}}/miles/transcript/index) ... [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) **59** [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page60)
 
+[郭文贵2020年3月5日视频 20200305_1与战友们分享文贵一天战役后韵晚餐……一切已经开始]({{site.baseurl}}/miles/transcript/2020/03/20200305-1089765)
+
 [郭文贵2020年3月4日全世界反击CCP 20200304等着看吧，全世界反击CCP！一切已经开始！]({{site.baseurl}}/miles/transcript/2020/03/20200304-1091891)
 
 [郭文贵2020年3月3日车上直播 20200303谈17件大事正在发生中]({{site.baseurl}}/miles/transcript/2020/03/20200303-1091879)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年2月6日视频 20200206_2文贵接受班农先生War Room 访问]({{site.baseurl}}/miles/transcript/2020/02/20200206-1088896)
 
 [郭文贵2020年2月6日视频 20200206接受班农先生战斗室访谈 谈武]({{site.baseurl}}/miles/transcript/2020/02/20200206-1091713)
-
-[郭文贵2020年2月5日视频 20200205_1我们法治基金已经准备好了一亿个口罩！请问中共我们该如何送到我们血缘的同胞手里？寄诸囗罩．善至血缘！]({{site.baseurl}}/miles/transcript/2020/02/20200205-1089764)
 
 
 ## 頁面 59/111 [**<**]({{site.baseurl}}/miles/transcript/page58) [1]({{site.baseurl}}/miles/transcript/index) ... [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) **59** [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page60)

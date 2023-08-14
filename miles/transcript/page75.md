@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 75/111 [**<**]({{site.baseurl}}/miles/transcript/page74) [1]({{site.baseurl}}/miles/transcript/index) ... [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) **75** [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page76)
 
+[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分]({{site.baseurl}}/miles/transcript/2019/07/20190727-1098140)
+
+[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分]({{site.baseurl}}/miles/transcript/2019/07/20190727-1098141)
+
 [2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分]({{site.baseurl}}/miles/transcript/2019/07/20190727-1098142)
 
 [2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分]({{site.baseurl}}/miles/transcript/2019/07/20190727-1098143)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年7月22日视频 20190722_2戰友之間要不忘記 不放棄 不拋棄 不互相攻擊]({{site.baseurl}}/miles/transcript/2019/07/20190722-1089353)
 
 [郭文贵2019年7月22日视频 20190722聊聊．钥匙吴．和．Walle  French．造谣：欺骗的伎俩]({{site.baseurl}}/miles/transcript/2019/07/20190722-1093361)
-
-[2019年7月22日 直播全文字版]({{site.baseurl}}/miles/transcript/2019/07/20190722-1098117)
-
-[郭文贵2019年7月21日视频 20190721_2喜马拉雅大使馆直播测试版]({{site.baseurl}}/miles/transcript/2019/07/20190721-1089349)
 
 
 ## 頁面 75/111 [**<**]({{site.baseurl}}/miles/transcript/page74) [1]({{site.baseurl}}/miles/transcript/index) ... [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) **75** [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page76)

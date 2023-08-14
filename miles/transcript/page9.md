@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 9/111 [**<**]({{site.baseurl}}/miles/transcript/page8) [1]({{site.baseurl}}/miles/transcript/index) ... [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) **9** [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page10)
 
+[郭文贵2022年2月24日盖特 20220224_2尊敬的战友们好．世界被邪恶的共产党和魔鬼制造的战争所笼罩……7哥想说的话，都在下面的视频中了！]({{site.baseurl}}/miles/transcript/2022/02/20220224-1090202)
+
+[郭文贵2022年2月23日直播 20220223_1普京群狼战术夺乌克兰；解封 英 澳 法 日 集体免疫；锁链女引人权安全恐慌；七哥何以掌握世界大事；继2月18日大直播后 世界发生了哪些改变；喜币、喜贷款、喜抵押]({{site.baseurl}}/miles/transcript/2022/02/20220223-1090184)
+
 [郭文贵2022年2月21日直播 20220221_1谁是郭文贵 第三集 《灭共决心》]({{site.baseurl}}/miles/transcript/2022/02/20220221-1090136)
 
 [郭文贵2022年2月21日盖特 20220221_2尊敬的战友们好中共国的化肥．农产品．以及粮食都在大涨价，这是为什么呢？所谓的最成功的北京冬奥会开完以后……中国人的生活有什么改变呢？世界形势巨变，为什么中国人又成了牺牲品呢]({{site.baseurl}}/miles/transcript/2022/02/20220221-1090201)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2022年2月5日盖特 20220205_1尊敬的战友们好！所谓的冬奥会开幕式后，所有的参加的外国来宾和现场的战友们的反馈，就是这．三句话……]({{site.baseurl}}/miles/transcript/2022/02/20220205-1090314)
 
 [郭文贵2022年2月4日直播 20220204_1]({{site.baseurl}}/miles/transcript/2022/02/20220204-1090255)
-
-[郭文贵2022年2月4日直播 20220204_2冬奥会媒体中心与世界冲突；灭共的雪轰轰烈烈漫山遍野；美国世界经济状况摇摇欲坠；HPay数字货币市场谁主沉浮]({{site.baseurl}}/miles/transcript/2022/02/20220204-1090306)
-
-[郭文贵2022年2月3日盖特 20220203_1尊敬的战友们好……共产党制造的生化武器和毒疫苗的危害⚠️正在被更多的人认清真相，并且将带动全球病毒溯源停止疫苗灾难的大运动????……全球灭共全面开始！共产党你玩球蛋了！]({{site.baseurl}}/miles/transcript/2022/02/20220203-1090311)
 
 
 ## 頁面 9/111 [**<**]({{site.baseurl}}/miles/transcript/page8) [1]({{site.baseurl}}/miles/transcript/index) ... [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) **9** [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page10)

@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 103/111 [**<**]({{site.baseurl}}/miles/transcript/page102) [1]({{site.baseurl}}/miles/transcript/index) ... [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) **103** [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page104)
 
+[郭文贵2018年1月11日直播 20180111_1]({{site.baseurl}}/miles/transcript/2018/01/20180111-1093335)
+
+[郭文贵2018年1月11日直播 20180111_2]({{site.baseurl}}/miles/transcript/2018/01/20180111-1093337)
+
 [郭文贵2018年1月4日 20180104郭先生谈习近平李克强的女儿进北大背后的故事]({{site.baseurl}}/miles/transcript/2018/01/20180104-1094490)
 
 [郭文贵2018年1月3日视频 20180103_2接受日本媒体采访说日语]({{site.baseurl}}/miles/transcript/2018/01/20180103-1087472)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年11月15日视频 20171115_4HBO專訪 Exiled Chinese Billionaire Uses YouTube To Wage A War On Corruption HBO]({{site.baseurl}}/miles/transcript/2017/11/20171115-1087906)
 
 [郭文贵2017年11月15日第二次直播 20171115_2文贵与网友分享迈 阿密的穷人区新发展出来的新的设计区，这 才是真正地产开发商该干的事！创造财富以 报社会！并该恶帮穷从善！]({{site.baseurl}}/miles/transcript/2017/11/20171115-1094392)
-
-[郭文贵2017年11月15日第一次直播 20171115_1在Instagram直播痛斥唐柏桥]({{site.baseurl}}/miles/transcript/2017/11/20171115-1094706)
-
-[郭文贵2017年11月13日直播 20171113_1]({{site.baseurl}}/miles/transcript/2017/11/20171113-1093319)
 
 
 ## 頁面 103/111 [**<**]({{site.baseurl}}/miles/transcript/page102) [1]({{site.baseurl}}/miles/transcript/index) ... [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) **103** [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page104)

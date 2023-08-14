@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 65/111 [**<**]({{site.baseurl}}/miles/transcript/page64) [1]({{site.baseurl}}/miles/transcript/index) ... [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) **65** [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page66)
 
+[2019年11月12日文贵大直播全文字版：关于香港最新局势紧急直播]({{site.baseurl}}/miles/transcript/2019/11/20191112-1078972)
+
+[郭文贵2019年11月12日视频 20191112关于香港最新局势紧急直播]({{site.baseurl}}/miles/transcript/2019/11/20191112-1093948)
+
 [2019年11月11日文贵大直播全文字版：文贵与班农先生紧急直播关于香港]({{site.baseurl}}/miles/transcript/2019/11/20191111-1079328)
 
 [郭文贵2019年11月11日 20191111与班农先生紧急直播关于香港]({{site.baseurl}}/miles/transcript/2019/11/20191111-1093942)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年11月2日第二次直播 20191102_2文贵讲成功，胜利和信仰：中国现在像灭亡前的大清朝 谈共产党即将倒台的三大因素]({{site.baseurl}}/miles/transcript/2019/11/20191102-1093913)
 
 [郭文贵2019年11月2日第一次直播 20191102_1在中央公园与战友分享美景]({{site.baseurl}}/miles/transcript/2019/11/20191102-1093919)
-
-[2019年10月30日 郭文贵先生在喜马拉雅大使馆谈区块链 特别节目上集 全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191030-1080376)
-
-[郭文贵2019年10月30日特别节目下集 20191030_1与路德，sara，江财神在喜马拉雅谈区块链]({{site.baseurl}}/miles/transcript/2019/10/20191030-1088553)
 
 
 ## 頁面 65/111 [**<**]({{site.baseurl}}/miles/transcript/page64) [1]({{site.baseurl}}/miles/transcript/index) ... [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) **65** [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page66)

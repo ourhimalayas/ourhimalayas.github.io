@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 63/111 [**<**]({{site.baseurl}}/miles/transcript/page62) [1]({{site.baseurl}}/miles/transcript/index) ... [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) **63** [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page64)
 
+[郭文贵2019年12月8日第一次直播 20191208_1审判郭宝胜的最后一天]({{site.baseurl}}/miles/transcript/2019/12/20191208-1094069)
+
 [郭文贵2019年12月8日第二次直播 20191208_2昨天香港游行又一次震惊世界；香港抗议最大价值：教会大陆人上街和如何坚持到底，共产党必灭]({{site.baseurl}}/miles/transcript/2019/12/20191208-1094183)
 
 [郭文贵2019年12月7日视频 20191207_1火鸡龚的造谣诽谤对法治基金造成伤害，她一定要赔偿]({{site.baseurl}}/miles/transcript/2019/12/20191207-1088009)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年11月24日视频 20191124_4 燉魚頭慶賀香港區議員選舉大贏]({{site.baseurl}}/miles/transcript/2019/11/20191124-1089675)
 
 [郭文贵2019年11月24日 20191124马装助威香港公投选举议员]({{site.baseurl}}/miles/transcript/2019/11/20191124-1093943)
-
-[郭文贵2019年11月23日视频 20191123川普总统在福克斯电台爆料习近平对港举动震惊了全世界]({{site.baseurl}}/miles/transcript/2019/11/20191123-1094161)
 
 
 ## 頁面 63/111 [**<**]({{site.baseurl}}/miles/transcript/page62) [1]({{site.baseurl}}/miles/transcript/index) ... [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) **63** [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page64)

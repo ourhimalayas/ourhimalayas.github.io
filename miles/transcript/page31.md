@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 31/111 [**<**]({{site.baseurl}}/miles/transcript/page30) [1]({{site.baseurl}}/miles/transcript/index) ... [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) **31** [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page32)
 
+[郭文贵2021年4月24日盖特 20210424_1天津哈爾濱上海抓捕了很多的官員, 很多是王岐山在中紀委時的親信馬仔; 國內現在最具實力的絕不是習近平而是曾慶紅, 增的家人全是軍方的, 級別又高; 文貴爆了航空母艦的事後中南坑震怒]({{site.baseurl}}/miles/transcript/2021/04/20210424-1091233)
+
+[郭文贵2021年4月23日直播 20210423_1智囊团失信，军事被美打击，数字人民币DCEP被全世界抵制，习成孤家寡人；国内政治变化正在发生中；此次开庭希望能让新中国联邦人认识到媒体和法律的力量]({{site.baseurl}}/miles/transcript/2021/04/20210423-1091220)
+
 [郭文贵2021年4月22日盖特 20210422_1尊敬的战友们好……文贵又来爆尿爆尿了！]({{site.baseurl}}/miles/transcript/2021/04/20210422-1091224)
 
 [郭文贵2021年4月22日盖特 20210422_2为什么这么多人喜欢snow呢！我好羡慕呀]({{site.baseurl}}/miles/transcript/2021/04/20210422-1091229)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年4月12日盖特 20210412_3七哥分享鍛鍊身體的時刻！]({{site.baseurl}}/miles/transcript/2021/04/20210412-1091094)
 
 [郭文贵2021年4月11日直播 20210411_1与战友们分享与美国知中派的秘密会议；王岐山现在怎么看文贵和新中国联邦；Ｇ系列是为人类终极之战的长远准备]({{site.baseurl}}/miles/transcript/2021/04/20210411-1091196)
-
-[郭文贵2021年4月10日盖特 20210410_1尊敬的战友好????????????共产党的战狼外交．为什么迅速地变成了疯狗外交……人人喊打，美国将对台湾有一系列的行动，这是我们爆料革命在三年前就说过的．全球联合灭共是我们三年前在全球推]({{site.baseurl}}/miles/transcript/2021/04/20210410-1091184)
-
-[郭文贵2021年4月9日直播 20210409_1中共的意淫反而将帮助更快灭共；国内富豪都是复制偷窃技术，不是企业家；美国只能与英日印合作联合灭共；中共控制比特币，人民币数字化，消灭美元；美国人已经相信能灭共]({{site.baseurl}}/miles/transcript/2021/04/20210409-1091147)
 
 
 ## 頁面 31/111 [**<**]({{site.baseurl}}/miles/transcript/page30) [1]({{site.baseurl}}/miles/transcript/index) ... [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) **31** [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page32)

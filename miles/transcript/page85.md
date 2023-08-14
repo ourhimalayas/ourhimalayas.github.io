@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 85/111 [**<**]({{site.baseurl}}/miles/transcript/page84) [1]({{site.baseurl}}/miles/transcript/index) ... [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) **85** [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page86)
 
+[郭文贵2019年1月25日视频 20190125罗杰斯通感恩郭先生接受道歉]({{site.baseurl}}/miles/transcript/2019/01/20190125-1092356)
+
+[郭文贵2019年1月24日视频 20190124委内瑞拉的民主反独裁的运动对中国人民的意义与影响重大]({{site.baseurl}}/miles/transcript/2019/01/20190124-1092339)
+
 [郭文贵2019年1月23日视频 20190123华盛顿上空弥漫这共同的目标：灭共]({{site.baseurl}}/miles/transcript/2019/01/20190123-1092324)
 
 [郭文贵2019年1月22日视频 20190122_1文贵在战斗途中！正在完成战友希望我完成的任务中！一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/01/20190122-1089046)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年1月10日视频 20190110文贵请战友投票决定：文贵看春晚包不包...]({{site.baseurl}}/miles/transcript/2019/01/20190110-1092156)
 
 [郭文贵2019年1月9日视频 20190109_1袁建斌败诉后会赔多少钱？美国的法律会给出答案]({{site.baseurl}}/miles/transcript/2019/01/20190109-1089010)
-
-[郭文贵2019年1月8日视频 20190108春晚搞不搞，听听战友们的心声]({{site.baseurl}}/miles/transcript/2019/01/20190108-1092417)
-
-[郭文贵2019年1月7日视频 20190107_2-财新再一次造谣说陈刚和郭文贵有关系；郭媒体可以定位黑客IP地址；春晚邀请凯琳女做一个节目回答网友提问。]({{site.baseurl}}/miles/transcript/2019/01/20190107-1089008)
 
 
 ## 頁面 85/111 [**<**]({{site.baseurl}}/miles/transcript/page84) [1]({{site.baseurl}}/miles/transcript/index) ... [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) **85** [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page86)

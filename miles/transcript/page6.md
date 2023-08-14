@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 6/111 [**<**]({{site.baseurl}}/miles/transcript/page5) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) **6** [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page7)
 
+[郭文贵2022年4月29日直播 20220429_1认可分布式记账喜币大机遇；从纳粹大屠杀看中共大屠杀；法国大选结果分析欧洲未来]({{site.baseurl}}/miles/transcript/2022/04/20220429-1091452)
+
+[郭文贵2022年4月29日盖特 20220429_2尊敬的战友们好……今天的纽约．阳光明媚．美丽极了，今天取消了开庭．七哥与战友们分享这美好的时光！]({{site.baseurl}}/miles/transcript/2022/04/20220429-1091719)
+
 [郭文贵2022年4月28日直播 20220428_1七哥乱聊直播]({{site.baseurl}}/miles/transcript/2022/04/20220428-1091391)
 
 [郭文贵2022年4月27日盖特 20220427_1尊敬的战友们好．七哥在开庭的路上．和战友们聊聊，我们将揭开深藏在美国的、中国共产党间谍们……在美国违法犯罪的金融政治渗透的集团。卸下P A X的邪恶的假面具！让西方的国家法律系统重]({{site.baseurl}}/miles/transcript/2022/04/20220427-1091711)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2022年4月13日盖特 20220413_2尊敬的战友们好．收到了很多战友的信息．无法全部回复……非常的抱歉????????????????????????????????????????明天上午我会抽时间直播半小时左右，一切都已经开始！]({{site.baseurl}}/miles/transcript/2022/04/20220413-1091683)
 
 [郭文贵2022年4月12日盖特 20220412_1尊敬的战友们好，今天是新中国联邦……开天辟地的．重要的一天！]({{site.baseurl}}/miles/transcript/2022/04/20220412-1091678)
-
-[郭文贵2022年4月11日直播 20220411_1试试直播]({{site.baseurl}}/miles/transcript/2022/04/20220411-1090879)
-
-[郭文贵2022年4月11日盖特 20220411_2尊敬的战友们好……中国已经进入人道大灾难的时刻……]({{site.baseurl}}/miles/transcript/2022/04/20220411-1091675)
 
 
 ## 頁面 6/111 [**<**]({{site.baseurl}}/miles/transcript/page5) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) **6** [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page7)

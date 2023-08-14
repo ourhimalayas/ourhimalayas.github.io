@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 8/111 [**<**]({{site.baseurl}}/miles/transcript/page7) [1]({{site.baseurl}}/miles/transcript/index) ... [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) **8** [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page9)
 
+[郭文贵2022年3月17日直播 20220317_1俄乌战争普京退缩或发生戏剧性转变；中共拉抬恒生指数香港中共经济走向]({{site.baseurl}}/miles/transcript/2022/03/20220317-1090817)
+
+[郭文贵2022年3月16日盖特 20220316_1尊敬的战友们好，香港病毒大流行，正在导致香港大量人员，被秘密死亡，一切死亡和感染的数据都是假的……共产党的经济和将实行的攻台计划！引发了党内的剧烈的政治斗争。共产党人为了保]({{site.baseurl}}/miles/transcript/2022/03/20220316-1090666)
+
 [郭文贵2022年3月15日直播 20220315_1香港股市跌破两万点；擀面杖经济难以为继；中共全球拉仇恨行径；疫苗大灾难如何面对]({{site.baseurl}}/miles/transcript/2022/03/20220315-1090722)
 
 [郭文贵2022年3月14日盖特 20220314_1尊敬的战友们好，新中国联邦人．正在以消灭中国共产党……追求国际正义，人道．人权的新亚洲人……广泛得到国际的好评和尊重，我们要为亚洲人发声，我们要让全世界知道，我们是消灭中国]({{site.baseurl}}/miles/transcript/2022/03/20220314-1091482)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2022年2月25日直播 20220225_1乌克兰形势与第三次世界大战；加停止紧急状态法与疫苗灾难；中共攻台进入即时戰备状态；世界经济如何面对战争与病毒]({{site.baseurl}}/miles/transcript/2022/02/20220225-1090232)
 
 [郭文贵2022年2月24日直播 20220224_1台湾危机，请台湾同胞们尽快撤离，能够提供帮助的战友请与联盟委员会联系。为台湾同胞，乌克兰人民祈福????????????]({{site.baseurl}}/miles/transcript/2022/02/20220224-1090190)
-
-[郭文贵2022年2月24日盖特 20220224_2尊敬的战友们好．世界被邪恶的共产党和魔鬼制造的战争所笼罩……7哥想说的话，都在下面的视频中了！]({{site.baseurl}}/miles/transcript/2022/02/20220224-1090202)
-
-[郭文贵2022年2月23日直播 20220223_1普京群狼战术夺乌克兰；解封 英 澳 法 日 集体免疫；锁链女引人权安全恐慌；七哥何以掌握世界大事；继2月18日大直播后 世界发生了哪些改变；喜币、喜贷款、喜抵押]({{site.baseurl}}/miles/transcript/2022/02/20220223-1090184)
 
 
 ## 頁面 8/111 [**<**]({{site.baseurl}}/miles/transcript/page7) [1]({{site.baseurl}}/miles/transcript/index) ... [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) **8** [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page9)

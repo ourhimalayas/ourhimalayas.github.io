@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 71/111 [**<**]({{site.baseurl}}/miles/transcript/page70) [1]({{site.baseurl}}/miles/transcript/index) ... [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) **71** [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page72)
 
+[2019年9月11日文贵大直播全文字版：博尔顿离开白宫内幕！全世界各方面灭共人士灭共力量大聚集！]({{site.baseurl}}/miles/transcript/2019/09/20190911-1098221)
+
+[郭文贵2019年9月10日视频 20190910_1文贵在凌晨6 00先向大家报平安了，昨天路德的晚餐, 加上他兒子弄壞船上的沙發, 至少毀了我十萬美元, TNND, 非叫路德賠不可]({{site.baseurl}}/miles/transcript/2019/09/20190910-1089510)
+
 [郭文贵2019年9月9日第二次直播 20190909_2尊敬的战友们好！你们健身了吗？你们传播香港危机的真相了吗？为什么香港的富豪．被威胁他们隐蔽海外资产共产党可以没收！昨天香港的金融市场再次地被共产党用电脑控制，这意味着什么？]({{site.baseurl}}/miles/transcript/2019/09/20190909-1093564)
 
 [郭文贵2019年9月9日第一次直播 20190909_1路德访谈文贵、班农先生：川普会什么时候决定脱钩？马云离开阿里以后的结局？美国到底是否值得中国人民依靠？]({{site.baseurl}}/miles/transcript/2019/09/20190909-1093573)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年9月1日文贵与班农先生直播习近平与王岐山的攻台计划！全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190901-1098216)
 
 [郭文贵2019年8月31日视频 20190831_1文贵与班农先生直播，关注831香港]({{site.baseurl}}/miles/transcript/2019/08/20190831-1089504)
-
-[郭文贵2019年8月29日视频 20190829_1王雁平起訴亂倫彪案 解放軍進港]({{site.baseurl}}/miles/transcript/2019/08/20190829-1089460)
-
-[郭文贵2019年8月29日视频 20190829_2马上起飞往華盛頓了……到了再向战友们报告！一切都是刚刚开始！(一)]({{site.baseurl}}/miles/transcript/2019/08/20190829-1089464)
 
 
 ## 頁面 71/111 [**<**]({{site.baseurl}}/miles/transcript/page70) [1]({{site.baseurl}}/miles/transcript/index) ... [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) **71** [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page72)

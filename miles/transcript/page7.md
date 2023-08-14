@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 7/111 [**<**]({{site.baseurl}}/miles/transcript/page6) [1]({{site.baseurl}}/miles/transcript/index) ... [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) **7** [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page8)
 
+[郭文贵2022年4月11日直播 20220411_1试试直播]({{site.baseurl}}/miles/transcript/2022/04/20220411-1090879)
+
+[郭文贵2022年4月11日盖特 20220411_2尊敬的战友们好……中国已经进入人道大灾难的时刻……]({{site.baseurl}}/miles/transcript/2022/04/20220411-1091675)
+
 [郭文贵2022年4月10日直播 20220410_1习王在上海的大隔离体现报复心理；中共在塞尔维亚等地部署红旗导弹；借疫情搞垮港沪粤经济中国人遭殃；乌克兰救援行动灭共目标得到共鸣]({{site.baseurl}}/miles/transcript/2022/04/20220410-1090863)
 
 [郭文贵2022年4月9日盖特 20220409_1]({{site.baseurl}}/miles/transcript/2022/04/20220409-1091667)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2022年3月18日盖特 20220318_3尊敬的战友们好，你们健身了吗？看到共产党今天如何自寻死路了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2022/03/20220318-1090675)
 
 [郭文贵2022年3月18日直播 20220318_1]({{site.baseurl}}/miles/transcript/2022/03/20220318-1090829)
-
-[郭文贵2022年3月17日直播 20220317_1俄乌战争普京退缩或发生戏剧性转变；中共拉抬恒生指数香港中共经济走向]({{site.baseurl}}/miles/transcript/2022/03/20220317-1090817)
-
-[郭文贵2022年3月16日盖特 20220316_1尊敬的战友们好，香港病毒大流行，正在导致香港大量人员，被秘密死亡，一切死亡和感染的数据都是假的……共产党的经济和将实行的攻台计划！引发了党内的剧烈的政治斗争。共产党人为了保]({{site.baseurl}}/miles/transcript/2022/03/20220316-1090666)
 
 
 ## 頁面 7/111 [**<**]({{site.baseurl}}/miles/transcript/page6) [1]({{site.baseurl}}/miles/transcript/index) ... [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) **7** [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page8)

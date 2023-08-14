@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 67/111 [**<**]({{site.baseurl}}/miles/transcript/page66) [1]({{site.baseurl}}/miles/transcript/index) ... [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) **67** [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page68)
 
+[2019年10月23日 郭文贵先生直播：中共将低头认错秋后算账解决香港问题弱化彭斯副总统演讲，灭共是赚大钱的生意！王岐山危险了！全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191023-1087424)
+
+[郭文贵2019年10月23日视频 20191023_2Snow練習走伸展台]({{site.baseurl}}/miles/transcript/2019/10/20191023-1089592)
+
 [郭文贵2019年10月23日视频 20191023_3 (漏網視頻)喜馬拉雅大使管正在酝酿一场世纪灭共风暴]({{site.baseurl}}/miles/transcript/2019/10/20191023-1089596)
 
 [郭文贵2019年10月23日视频 20191023中共将低头认错秋后算账解决香港问题弱化彭斯副总统演讲，灭共是赚大钱的生意！王岐山危险了！]({{site.baseurl}}/miles/transcript/2019/10/20191023-1093738)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年10月13日视频 20191013传播香港真相，反对暴力，中共启动大量沉默力量挑拨离间战友, 美国将严加製裁， 只有灭掉共产党人类才有未来]({{site.baseurl}}/miles/transcript/2019/10/20191013-1093836)
 
 [2019年10月13日文贵大直播全文字版：报平安直播，传播香港真相，反对暴力，中共启动大量沉默力量挑拨离间战友, 美国将严加製裁， 只有灭掉共产党人类才有未来]({{site.baseurl}}/miles/transcript/2019/10/20191013-1098251)
-
-[2019年10月12日 中美达成的初步协议 对爆料革命无影响，但绝对是最糟糕；香港同胞最受影响；灭共要靠我们自己！ 全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191012-1087414)
-
-[2019年10月12日郭文贵先生船上直播跟战友分享夜景，香港人权法案，反共灭共之势无人能阻挡全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191012-1087418)
 
 
 ## 頁面 67/111 [**<**]({{site.baseurl}}/miles/transcript/page66) [1]({{site.baseurl}}/miles/transcript/index) ... [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) **67** [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page68)

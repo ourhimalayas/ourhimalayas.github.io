@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 12/111 [**<**]({{site.baseurl}}/miles/transcript/page11) [1]({{site.baseurl}}/miles/transcript/index) ... [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) **12** [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page13)
 
+[郭文贵2022年1月1日直播 20220101_1文贵大直播 元旦特别节目 正道至善 除恶建邦]({{site.baseurl}}/miles/transcript/2022/01/20220101-1094270)
+
+[郭文贵2021年12月31日直播 20211231_1《我是音雄》第二季总决赛暨跨年颁奖典礼]({{site.baseurl}}/miles/transcript/2021/12/20211231-1094004)
+
 [郭文贵2021年12月31日盖特 20211231_2尊敬的战友们好又蒸馍馍……卷子啦，吃饭饭啦……]({{site.baseurl}}/miles/transcript/2021/12/20211231-1094272)
 
 [郭文贵2021年12月30日盖特直播 20211230_1共产党的内部斗争已经成为共产党政治生活的主题。]({{site.baseurl}}/miles/transcript/2021/12/20211230-1093995)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年12月23日盖特 20211223_1尊敬的战友们好！共产党内部清理官二代·富二代．的时代已经全面开始。北京的冬奥会面临着全球的挑战……即将成为灾难性的笑话……昨天播放the HBO的流氓采访……引起的世界各大媒体的重视]({{site.baseurl}}/miles/transcript/2021/12/20211223-1093881)
 
 [郭文贵2021年12月22日直播 20211222_1iTunes全球打榜记录- Hcoin To The Moon；中美之间会取消关税，Vice的报导在冬奥会之前帮助中共做的一场政治宣传，中国老百姓将付出巨大代价；莘县古城鸳鸯饼和河南胡辣汤；疫苗灾难的最新数据；彭]({{site.baseurl}}/miles/transcript/2021/12/20211222-1094211)
-
-[郭文贵2021年12月22日视频 20211222_2关于郭文贵先生接受HBO Vice采访的背后真相]({{site.baseurl}}/miles/transcript/2021/12/20211222-1094294)
-
-[郭文贵2021年12月20日盖特 20211220_1尊敬的战友们好，你们健身了吗？传播C C P的病毒和疫苗解药的真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/12/20211220-1093871)
 
 
 ## 頁面 12/111 [**<**]({{site.baseurl}}/miles/transcript/page11) [1]({{site.baseurl}}/miles/transcript/index) ... [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) **12** [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page13)

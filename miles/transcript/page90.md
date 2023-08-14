@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 90/111 [**<**]({{site.baseurl}}/miles/transcript/page89) [1]({{site.baseurl}}/miles/transcript/index) ... [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) **90** [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page91)
 
+[郭文贵2018年10月14日视频 20181014_1]({{site.baseurl}}/miles/transcript/2018/10/20181014-1088868)
+
+[郭文贵2018年10月14日视频 20181014_2]({{site.baseurl}}/miles/transcript/2018/10/20181014-1088872)
+
 [郭文贵2018年10月13日视频 20181013_1]({{site.baseurl}}/miles/transcript/2018/10/20181013-1088862)
 
 [郭文贵2018年10月13日视频 20181013_2]({{site.baseurl}}/miles/transcript/2018/10/20181013-1088867)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年10月3日视频 20181003_1]({{site.baseurl}}/miles/transcript/2018/10/20181003-1088818)
 
 [郭文贵2018年10月3日视频 20181003_2]({{site.baseurl}}/miles/transcript/2018/10/20181003-1088821)
-
-[郭文贵2018年10月3日视频 20181003_3]({{site.baseurl}}/miles/transcript/2018/10/20181003-1088827)
-
-[郭文贵2018年10月3日视频 20181003_4]({{site.baseurl}}/miles/transcript/2018/10/20181003-1088829)
 
 
 ## 頁面 90/111 [**<**]({{site.baseurl}}/miles/transcript/page89) [1]({{site.baseurl}}/miles/transcript/index) ... [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) **90** [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page91)

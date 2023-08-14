@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 107/111 [**<**]({{site.baseurl}}/miles/transcript/page106) [1]({{site.baseurl}}/miles/transcript/index) ... [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) **107** [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page108)
 
+[郭文贵2017年8月27日直播 20170827_1]({{site.baseurl}}/miles/transcript/2017/08/20170827-1093298)
+
+[郭文贵2017年8月27日视频 20170827_2黑客攻击郭文贵手机 军方的高科技]({{site.baseurl}}/miles/transcript/2017/08/20170827-1094056)
+
 [郭文贵2017年8月27日视频 20170827_3盗国贼们的疯狂与愚蠢 这样的黑客攻击方式是最好的证明文贵的爆料是真实]({{site.baseurl}}/miles/transcript/2017/08/20170827-1094059)
 
 [郭文贵2017年8月26日视频 20170826老兵通过新加坡发来视频 翻墙软件偷信息 美政府对海航的关注达到我们的目的]({{site.baseurl}}/miles/transcript/2017/08/20170826-1094053)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年8月9日第一次直播 20170809_1试试网络：一个台湾老朋友一个国内老领导与我通过电话后的感受]({{site.baseurl}}/miles/transcript/2017/08/20170809-1094424)
 
 [郭文贵2017年8月7日直播 20170807_2马英九是...]({{site.baseurl}}/miles/transcript/2017/08/20170807-1094022)
-
-[郭文贵2017年8月7日直播 20170807_1报平安直播---台湾香港的危与机．王岐山为什么要用三条杀规威胁范冰冰！]({{site.baseurl}}/miles/transcript/2017/08/20170807-1094405)
-
-[郭文贵2017年8月6日直播 20170806党内已怨声载道，北戴河会议群魔乱咬.]({{site.baseurl}}/miles/transcript/2017/08/20170806-1094023)
 
 
 ## 頁面 107/111 [**<**]({{site.baseurl}}/miles/transcript/page106) [1]({{site.baseurl}}/miles/transcript/index) ... [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) **107** [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page108)

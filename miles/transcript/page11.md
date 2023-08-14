@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 11/111 [**<**]({{site.baseurl}}/miles/transcript/page10) [1]({{site.baseurl}}/miles/transcript/index) ... [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) **11** [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page12)
 
+[郭文贵2022年1月21日直播 20220121_2喜马拉雅纽约磐石农场开幕典礼]({{site.baseurl}}/miles/transcript/2022/01/20220121-1089689)
+
+[郭文贵2022年1月20日盖特 20220120_1尊敬的战友们好……共产党正在被冬季奥林匹克运动会．房地产崩盘．内部政治斗争……释放观状病毒等等一系列的事情埋葬中！希望中国同胞们不要成为他们的殉葬品，一切都已经开始！]({{site.baseurl}}/miles/transcript/2022/01/20220120-1089726)
+
 [郭文贵2022年1月19日直播 20220119_1太平联盟官司背后的故事；达沃斯已成中共倒闭论坛；与西方经济脱钩洞察其奸；疫苗政策盼转机有备无患]({{site.baseurl}}/miles/transcript/2022/01/20220119-1089545)
 
 [郭文贵2022年1月19日盖特 20220119_2吃饭饭喽……吃包包喽……]({{site.baseurl}}/miles/transcript/2022/01/20220119-1089722)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2022年1月3日盖特直播 20220103_1健身乱聊吃过]({{site.baseurl}}/miles/transcript/2022/01/20220103-1088546)
 
 [郭文贵2022年1月2日盖特 20220102_1尊敬的战友们好，万分感谢在国内战友发来的各种关于昨天元旦节大直播的信息，有一些战友的问题无法一一回复，我在这里．一并回答，一切都已经开始！]({{site.baseurl}}/miles/transcript/2022/01/20220102-1088526)
-
-[郭文贵2022年1月1日直播 20220101_1文贵大直播 元旦特别节目 正道至善 除恶建邦]({{site.baseurl}}/miles/transcript/2022/01/20220101-1094270)
-
-[郭文贵2021年12月31日直播 20211231_1《我是音雄》第二季总决赛暨跨年颁奖典礼]({{site.baseurl}}/miles/transcript/2021/12/20211231-1094004)
 
 
 ## 頁面 11/111 [**<**]({{site.baseurl}}/miles/transcript/page10) [1]({{site.baseurl}}/miles/transcript/index) ... [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) **11** [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page12)

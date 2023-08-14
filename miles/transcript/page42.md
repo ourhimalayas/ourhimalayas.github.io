@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 42/111 [**<**]({{site.baseurl}}/miles/transcript/page41) [1]({{site.baseurl}}/miles/transcript/index) ... [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) **42** [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page43)
 
+[郭文贵2020年12月12日盖特 20201212_1文贵喝咖啡喝醉了……乱聊，并回答很多朋友在昨天直播后的一些有关沼泽地里的关切！]({{site.baseurl}}/miles/transcript/2020/12/20201212-1090067)
+
+[郭文贵2020年12月11日直播 20201211_1文贵直播谈真实的川普总统；正义的力量超乎我们的想象！]({{site.baseurl}}/miles/transcript/2020/12/20201211-1090042)
+
 [郭文贵2020年12月11日盖特 20201211_2有時間的話今晚直播 沒時間的話 我想明天早上來個大聊亂聊直播(90%概率)]({{site.baseurl}}/miles/transcript/2020/12/20201211-1090062)
 
 [郭文贵2020年12月11日盖特 20201211_3收到了很多战友的有关一旦灭共战争发生……战友们应该做什么……？这样的问题，我在这里简单地回答！]({{site.baseurl}}/miles/transcript/2020/12/20201211-1090065)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年11月30日直播 20201130_1新中国联邦人一定要团结有集体观念，我们靠情报和实力唤醒世界]({{site.baseurl}}/miles/transcript/2020/11/20201130-1093366)
 
 [郭文贵2020年11月30日盖特 20201130_2尊敬的戰友們好，你們健身了嗎？你們傳播CCP病毒，香港危機真相了嗎？一切都已經開始！]({{site.baseurl}}/miles/transcript/2020/11/20201130-1093372)
-
-[郭文贵2020年11月29日盖特 20201129_1尊敬的戰友們好，你們健身了嗎？你們傳播CCP病毒……香港危機真相了嗎？一切都已經開始！]({{site.baseurl}}/miles/transcript/2020/11/20201129-1093160)
-
-[郭文贵2020年11月28日直播 20201128_1习下定决心攻打台湾，香港经济正处在最后崩盘的挣扎中，美国大选越滑稽我们越有机会！]({{site.baseurl}}/miles/transcript/2020/11/20201128-1093331)
 
 
 ## 頁面 42/111 [**<**]({{site.baseurl}}/miles/transcript/page41) [1]({{site.baseurl}}/miles/transcript/index) ... [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) **42** [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page43)

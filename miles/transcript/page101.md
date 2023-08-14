@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 101/111 [**<**]({{site.baseurl}}/miles/transcript/page100) [1]({{site.baseurl}}/miles/transcript/index) ... [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) **101** [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page102)
 
+[郭文贵2018年2月23日直播 20180223_1谈Steve Wynn的价值两亿八千万美元的船]({{site.baseurl}}/miles/transcript/2018/02/20180223-1087748)
+
+[郭文贵2018年2月21日直播 20180221_1被盗国贼宣传的一无是处的美帝国主义！咋这么自然！这么多别墅呢？而且都是私人拥有！ Via：郭媒体]({{site.baseurl}}/miles/transcript/2018/02/20180221-1087732)
+
 [郭文贵2018年2月21日直播 20180221_2幾秒前被盗国贼宣传的一无是处的美帝国主义！咋这么自然！这么多别墅呢？而且都是私人拥有！ V]({{site.baseurl}}/miles/transcript/2018/02/20180221-1087737)
 
 [郭文贵2018年2月19日直播 20180219_1Snow 也上桌了…… Via：郭媒体]({{site.baseurl}}/miles/transcript/2018/02/20180219-1087722)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年2月7日第一次直播 20180207_1从海航王健的年终讲话看出海航及王岐山、孟建柱欲将他们的盗国行径变成习主席责任及国家行为、国家扩张战略、一带一路需要]({{site.baseurl}}/miles/transcript/2018/02/20180207-1094482)
 
 [郭文贵2018年2月7日第二次直播 20180207_2再谈陈军先生和流氓袁健斌，吴征陷害文贵！再次感谢战友们发来的有关河北高院和政法委书记犯罪腐败证据]({{site.baseurl}}/miles/transcript/2018/02/20180207-1094566)
-
-[郭文贵2018年2月6日第二次直播 20180206_2再次呼吁战友们提供有关韦石、西诺、陈闯创、胡平利用办理假政庇骗钱的证据！一个把老婆放在大街上让人“乱干”的人不可能为大家“干出”民主自由！]({{site.baseurl}}/miles/transcript/2018/02/20180206-1094471)
-
-[郭文贵2018年2月6日第一次直播 20180206_1有关河北高院院长卫彦明]({{site.baseurl}}/miles/transcript/2018/02/20180206-1094476)
 
 
 ## 頁面 101/111 [**<**]({{site.baseurl}}/miles/transcript/page100) [1]({{site.baseurl}}/miles/transcript/index) ... [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) **101** [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page102)

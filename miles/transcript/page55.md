@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 55/111 [**<**]({{site.baseurl}}/miles/transcript/page54) [1]({{site.baseurl}}/miles/transcript/index) ... [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) **55** [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page56)
 
+[郭文贵2020年5月3日视频 20200503_1GTV简短录播。CCTV疯了..]({{site.baseurl}}/miles/transcript/2020/05/20200503-1089003)
+
 [郭文贵2020年5月3日视频 20200503_2GTV简短录播 2 ：”好事太多，答应战友的雪茄，以后别忘了问我要。”]({{site.baseurl}}/miles/transcript/2020/05/20200503-1089005)
 
 [郭文贵2020年5月2日 20200502爆料香港P3实验室和国际共产联盟]({{site.baseurl}}/miles/transcript/2020/05/20200502-1091995)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年4月15日视频 20200415]({{site.baseurl}}/miles/transcript/2020/04/20200415-1091897)
 
 [郭文贵2020年4月14日视频 20200414_2过去的24小时华盛顿、欧洲、日本、俄罗斯全面开始了依法灭共、全球自动灭共的新的时代]({{site.baseurl}}/miles/transcript/2020/04/20200414-1089815)
-
-[郭文贵2020年4月14日视频 20200414爆料革命拯救的同胞和战友们留言，彻底感动了文贵]({{site.baseurl}}/miles/transcript/2020/04/20200414-1091882)
 
 
 ## 頁面 55/111 [**<**]({{site.baseurl}}/miles/transcript/page54) [1]({{site.baseurl}}/miles/transcript/index) ... [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) **55** [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page56)

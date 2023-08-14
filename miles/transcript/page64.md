@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 64/111 [**<**]({{site.baseurl}}/miles/transcript/page63) [1]({{site.baseurl}}/miles/transcript/index) ... [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) **64** [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page65)
 
+[郭文贵2019年11月23日视频 20191123川普总统在福克斯电台爆料习近平对港举动震惊了全世界]({{site.baseurl}}/miles/transcript/2019/11/20191123-1094161)
+
 [郭文贵2019年11月22日视频 20191122_1Snow 尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？文贵今天上午没有直播，一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/11/20191122-1089670)
 
 [郭文贵2019年11月21日视频 20191121_2 郭文貴來電 13604~21016妄议热线 328期 2019年11月21日 郭文贵爆料证实王健是被精心策划的谋杀，郭文贵来电，王健可能没死，墓里疑是日本人]({{site.baseurl}}/miles/transcript/2019/11/20191121-1089668)
@@ -16,6 +18,8 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年11月20日视频 20191120_3即將開始的直播將是滅共歷史上的傳奇]({{site.baseurl}}/miles/transcript/2019/11/20191120-1089662)
 
 [郭文贵2019年11月20日 20191120“纪念1120新闻发布会一周：揭秘王健之死”下部]({{site.baseurl}}/miles/transcript/2019/11/20191120-1094024)
+
+[2019年11月20日文贵大直播全文字版：王建之死 两周年（上）]({{site.baseurl}}/miles/transcript/2019/11/20191120-1243310)
 
 [郭文贵2019年11月19日第二次直播 20191119_2一整天直播的大概安排和香港理工大的背后故事。]({{site.baseurl}}/miles/transcript/2019/11/20191119-1093981)
 
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年11月14日第二次直播 20191114_2香港一定赢！三分钟香港抗议实况]({{site.baseurl}}/miles/transcript/2019/11/20191114-1093952)
 
 [郭文贵2019年11月14日第一次直播 20191114_1]({{site.baseurl}}/miles/transcript/2019/11/20191114-1093958)
-
-[2019年11月12日文贵大直播全文字版：关于香港最新局势紧急直播]({{site.baseurl}}/miles/transcript/2019/11/20191112-1078972)
-
-[郭文贵2019年11月12日视频 20191112关于香港最新局势紧急直播]({{site.baseurl}}/miles/transcript/2019/11/20191112-1093948)
 
 
 ## 頁面 64/111 [**<**]({{site.baseurl}}/miles/transcript/page63) [1]({{site.baseurl}}/miles/transcript/index) ... [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) **64** [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page65)

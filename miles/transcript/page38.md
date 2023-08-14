@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 38/111 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page39)
 
+[郭文贵2021年1月28日盖特 20210128_2关于几club春节年会的一些战友咨询的问题的回答．再次呼吁被VOG ．九指王．欺骗的战友们！积极提供各种证据和信息，以维护战友的安全和利益！]({{site.baseurl}}/miles/transcript/2021/01/20210128-1090492)
+
+[郭文贵2021年1月27日直播 20210127_1GTV已经创造神话；因投资VOG受威胁的战友请与喜联盟联系；共和党与共产党的对决现在已经开始，美国两党的目标都是灭共]({{site.baseurl}}/miles/transcript/2021/01/20210127-1090474)
+
 [郭文贵2021年1月27日盖特 20210127_2全球联合灭共……全球为了自己的生存，必须灭共……和爆料革命新联邦中国的联合灭共．将是世界正义的力量！和政治安全必然的结果……共产党你完了！]({{site.baseurl}}/miles/transcript/2021/01/20210127-1090478)
 
 [郭文贵2021年1月27日盖特 20210127_3回答，战友们．关于共产党中南坑的老杂毛们……为什么把中国的唯一的龙形建筑……龙头，改成鸟头！]({{site.baseurl}}/miles/transcript/2021/01/20210127-1090482)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年1月18日盖特 20210118_2]({{site.baseurl}}/miles/transcript/2021/01/20210118-1089842)
 
 [郭文贵2021年1月18日盖特 20210118_3]({{site.baseurl}}/miles/transcript/2021/01/20210118-1089845)
-
-[郭文贵2021年1月18日盖特 20210118_4]({{site.baseurl}}/miles/transcript/2021/01/20210118-1089859)
-
-[郭文贵2021年1月18日盖特 20210118_5]({{site.baseurl}}/miles/transcript/2021/01/20210118-1089865)
 
 
 ## 頁面 38/111 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page39)

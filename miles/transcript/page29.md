@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 29/111 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page30)
 
+[郭文贵2021年5月17日盖特 20210517_1回答很多国内战友问七哥．是否应该投资刚刚复出的过去的中国亿万富豪们的项目！七哥如何看待，现在比特币和加密货币的混乱！]({{site.baseurl}}/miles/transcript/2021/05/20210517-1091369)
+
+[郭文贵2021年5月17日盖特 20210517_2尊敬的战友们好，由于明天一整天的特别重要的事情的安排，上午没有时间发盖特，所以现在先发一个盖特！谈谈今天共产党操控的火鸡龚．????粑傅．在华盛顿邮报和所谓的一个．AI黑客网站。两]({{site.baseurl}}/miles/transcript/2021/05/20210517-1091371)
+
 [郭文贵2021年5月16日直播 20210516_1为什么文贵反对西方国家对中共子女的签证限制；怎样理解文贵坚决灭共，对99%党员大赦，反共不反华]({{site.baseurl}}/miles/transcript/2021/05/20210516-1091359)
 
 [郭文贵2021年5月16日盖特 20210516_2尊敬的战友们好！分享直播后的黄色故事的继续……大家知道康康，come come with me空空with me。是什么意思吗？]({{site.baseurl}}/miles/transcript/2021/05/20210516-1091362)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年5月8日盖特 20210508_1七哥要给所有的战友们．每个人准备一个看不着摸不着，却每个人都想要的礼物……作为6月4号的，新中国联邦一周年礼物．大家猜猜是什么呢？]({{site.baseurl}}/miles/transcript/2021/05/20210508-1091287)
 
 [郭文贵2021年5月7日盖特 20210507_1中国共产党这个流氓政府．为什么要在全国封杀购买比特币．和加密货币？只要共产党不让干的事儿，都是世界上最伟大的事儿，只要共产党让干的事儿．一定是世界上最坏的事！]({{site.baseurl}}/miles/transcript/2021/05/20210507-1091276)
-
-[郭文贵2021年5月7日盖特 20210507_2应很多战友的要求．再录制第二段盖特．加密货币的最重要的价值是．无阻碍的全球即时流通．绝对的隐私和保密性．更重要的是零成本的点对点的绝对安全交易！还有很多很多与人类的尊严．民]({{site.baseurl}}/miles/transcript/2021/05/20210507-1091278)
-
-[郭文贵2021年5月7日盖特 20210507_3加密货币，如果被枪顶着脑袋支付给非关的第三方意味着什么？共产党为什么大肆的宣传，不让买虚拟货币和加密货币！可自己去推广D C E P的中共加密货币呢？]({{site.baseurl}}/miles/transcript/2021/05/20210507-1091281)
 
 
 ## 頁面 29/111 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page30)

@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 36/111 [**<**]({{site.baseurl}}/miles/transcript/page35) [1]({{site.baseurl}}/miles/transcript/index) ... [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) **36** [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page37)
 
+[郭文贵2021年2月23日盖特 20210223_1回答很多战友．关于江泽民家族．大本营移居新加坡的真正的用心……和对爆料革命的影响…]({{site.baseurl}}/miles/transcript/2021/02/20210223-1090745)
+
+[郭文贵2021年2月23日盖特 20210223_2很多战友给我发来的有关信息没发一回复在这里自己衷心地抱歉，很多战友让我回答刚刚习近平的讲话……中国共产党的江山．属于人民的……是什么意思？]({{site.baseurl}}/miles/transcript/2021/02/20210223-1090748)
+
 [郭文贵2021年2月22日盖特 20210222_1尊敬的战友们好，你们健身了吗？你们传播C C P病毒．香港危机真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/02/20210222-1090739)
 
 [郭文贵2021年2月22日盖特 20210222_2第二次发盖特．在欧洲的．我们的战友们……已经和欧洲的军事部门开展了全面的合作，以毒灭共……进入新的时刻……]({{site.baseurl}}/miles/transcript/2021/02/20210222-1090740)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年2月11日直播 20210211_1辛丑年文贵看春晚]({{site.baseurl}}/miles/transcript/2021/02/20210211-1090623)
 
 [郭文贵2021年2月9日盖特 20210209_12月9号尊敬的战友您好，上海的几个老杂毛为什么要说……庚政辛丑钱．民生不稳要出大麻烦……？]({{site.baseurl}}/miles/transcript/2021/02/20210209-1090615)
-
-[郭文贵2021年2月8日盖特 20210208_1尊敬的战友们好，你们健身了吗？中共即将崩塌的经济和党员们对未来财富安全的恐惧，正在改变着世界的经济的格局……，美国总统拜登将与习近平新春通话……]({{site.baseurl}}/miles/transcript/2021/02/20210208-1090611)
-
-[郭文贵2021年2月7日直播 20210207_1 给战友们做美食；要用行动反击九指妖]({{site.baseurl}}/miles/transcript/2021/02/20210207-1090609)
 
 
 ## 頁面 36/111 [**<**]({{site.baseurl}}/miles/transcript/page35) [1]({{site.baseurl}}/miles/transcript/index) ... [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) **36** [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page37)

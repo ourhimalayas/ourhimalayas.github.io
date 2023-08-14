@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 66/111 [**<**]({{site.baseurl}}/miles/transcript/page65) [1]({{site.baseurl}}/miles/transcript/index) ... [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) **66** [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page67)
 
+[2019年10月30日 郭文贵先生在喜马拉雅大使馆谈区块链 特别节目上集 全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191030-1080376)
+
+[郭文贵2019年10月30日特别节目下集 20191030_1与路德，sara，江财神在喜马拉雅谈区块链]({{site.baseurl}}/miles/transcript/2019/10/20191030-1088553)
+
 [郭文贵2019年10月30日视频 20191030_2厨师，从今天凌晨300为我们的Sara女士．老江．路德．庄烈宏先生的午餐．烹制的法国鸭腿和5A级的日本和牛肉，我们一起在直播中吃]({{site.baseurl}}/miles/transcript/2019/10/20191030-1089620)
 
 [郭文贵2019年10月30日视频 20191030_3凯琳、酒庄及文贵私人厨师现场烹煮过程直播，sara、江财神、路徳先生和庄烈宏先生一起享受美食、美酒——特别节目]({{site.baseurl}}/miles/transcript/2019/10/20191030-1089635)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年10月24日文贵大直播全文字版：谈彭斯副总统演讲]({{site.baseurl}}/miles/transcript/2019/10/20191024-1087427)
 
 [郭文贵2019年10月24日 20191024谈彭斯副总统演讲]({{site.baseurl}}/miles/transcript/2019/10/20191024-1093743)
-
-[2019年10月23日 郭文贵先生直播：中共将低头认错秋后算账解决香港问题弱化彭斯副总统演讲，灭共是赚大钱的生意！王岐山危险了！全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191023-1087424)
-
-[郭文贵2019年10月23日视频 20191023_2Snow練習走伸展台]({{site.baseurl}}/miles/transcript/2019/10/20191023-1089592)
 
 
 ## 頁面 66/111 [**<**]({{site.baseurl}}/miles/transcript/page65) [1]({{site.baseurl}}/miles/transcript/index) ... [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) **66** [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page67)

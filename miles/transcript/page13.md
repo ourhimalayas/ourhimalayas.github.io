@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 13/111 [**<**]({{site.baseurl}}/miles/transcript/page12) [1]({{site.baseurl}}/miles/transcript/index) ... [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) **13** [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page14)
 
+[郭文贵2021年12月22日视频 20211222_2关于郭文贵先生接受HBO Vice采访的背后真相]({{site.baseurl}}/miles/transcript/2021/12/20211222-1094294)
+
+[郭文贵2021年12月20日盖特 20211220_1尊敬的战友们好，你们健身了吗？传播C C P的病毒和疫苗解药的真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/12/20211220-1093871)
+
 [郭文贵2021年12月20日盖特 20211220_2尊敬的战友们好．冬奥会的政治游戏唯一的受伤害的就10亿中国人民……所有的中国人将为这个完全没有任何价值的政治国际上的愚蠢的秀……付出几千亿美元的代价可悲，可怜．可恨至极……这是]({{site.baseurl}}/miles/transcript/2021/12/20211220-1093878)
 
 [郭文贵2021年12月19日直播 20211219_1超发货币导致的通胀、通缩对世界经济与格局的影响；中共房地产持续暴雷破产；病毒疫苗虚假经济；强办奥运后果严重；欧美惩罚中共难逃；疫苗灾难大事将至]({{site.baseurl}}/miles/transcript/2021/12/20211219-1093990)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年11月30日直播 20211130_1健身直播]({{site.baseurl}}/miles/transcript/2021/11/20211130-1094257)
 
 [郭文贵2021年11月29日盖特 20211129_1全世界的经济即将崩溃之时，随之而来的是社会动乱……政治危机，以及局域战争的开始……新中国联邦人要团结在一起，共同渡过这个人类的世纪大灾难！]({{site.baseurl}}/miles/transcript/2021/11/20211129-1093668)
-
-[郭文贵2021年11月28日直播 20211128_1新变种Omicron 如临大敌；青蒿素妙药必将解救众生；中共国世界股票剧烈震荡；新中国联邦坚守唯真不破]({{site.baseurl}}/miles/transcript/2021/11/20211128-1094249)
-
-[郭文贵2021年11月27日盖特 20211127_1尊敬的战友们好……你们建身了吗？你们传播CCP病毒和疫苗解药的真相了吗？一切都已经开始!]({{site.baseurl}}/miles/transcript/2021/11/20211127-1093666)
 
 
 ## 頁面 13/111 [**<**]({{site.baseurl}}/miles/transcript/page12) [1]({{site.baseurl}}/miles/transcript/index) ... [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) **13** [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page14)

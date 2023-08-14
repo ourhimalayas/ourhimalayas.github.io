@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 50/111 [**<**]({{site.baseurl}}/miles/transcript/page49) [1]({{site.baseurl}}/miles/transcript/index) ... [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) **50** [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page51)
 
+[郭文贵2020年7月19日连线大卫上集 20200719_2]({{site.baseurl}}/miles/transcript/2020/07/20200719-1092497)
+
 [郭文贵2020年7月19日连线大卫下集 20200719_3]({{site.baseurl}}/miles/transcript/2020/07/20200719-1092513)
 
 [郭文贵2020年7月18日视频 20200718_1同声传译⎢班农战斗室特别节目⎢回击：美国的全球灭共行动 嘉宾郭文贵先生谈虚假经济，超限战，信息战，科技战，和国内洪灾]({{site.baseurl}}/miles/transcript/2020/07/20200718-1089977)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年7月11日视频 20200711_6我终于明白了为什么在三个小时前我船的旁边突然间出现了彩虹️天佑中华儿女️天佑️新中国联邦]({{site.baseurl}}/miles/transcript/2020/07/20200711-1089943)
 
 [郭文贵2020年7月10日视频 20200710_1文贵先生再次参加班农战斗室节目片段（1）]({{site.baseurl}}/miles/transcript/2020/07/20200710-1089907)
-
-[郭文贵2020年7月10日视频 20200710_2文贵先生再次参加班农战斗室节目片段（2）]({{site.baseurl}}/miles/transcript/2020/07/20200710-1089909)
 
 
 ## 頁面 50/111 [**<**]({{site.baseurl}}/miles/transcript/page49) [1]({{site.baseurl}}/miles/transcript/index) ... [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) **50** [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page51)

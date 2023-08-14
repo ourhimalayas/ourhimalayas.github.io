@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 98/111 [**<**]({{site.baseurl}}/miles/transcript/page97) [1]({{site.baseurl}}/miles/transcript/index) ... [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) **98** [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page99)
 
+[郭文贵2018年4月21日视频 20180421文贵在此庄严地严肃地向中南坑里的某些：妖和怪们．致以衷心的道歉，文贵不会让你们失望的！]({{site.baseurl}}/miles/transcript/2018/04/20180421-1092872)
+
+[郭文贵2018年4月20日视频 20180420将爆中南坑里的老婆．女儿！的性丑闻！]({{site.baseurl}}/miles/transcript/2018/04/20180420-1092860)
+
 [郭文贵2018年4月19日第三次直播 20180419_3VOG断播一周年回顾之——路德提问]({{site.baseurl}}/miles/transcript/2018/04/20180419-1088143)
 
 [郭文贵2018年4月19日第四次直播 20180419_4-419VOA断播门一周年回顾 網友提問 & 評何頻的為人]({{site.baseurl}}/miles/transcript/2018/04/20180419-1088189)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年4月2日 20180402吴晓辉如果要是王岐山外甥女婿结果会如何？]({{site.baseurl}}/miles/transcript/2018/04/20180402-1094195)
 
 [郭文贵2018年3月31日做客郭友之声 20180331郭友访谈--郭先生与小蚂蚁亲密接触（戊戌年 3月31日）]({{site.baseurl}}/miles/transcript/2018/03/20180331-1092596)
-
-[郭文贵2018年3月30日视频 20180330谈香港股票市场、银行、律政司若全被香港警察控制会是什么样子]({{site.baseurl}}/miles/transcript/2018/03/20180330-1092528)
-
-[郭文贵2018年3月29日视频第三部分 20180329_3这车次纽约车展非常非常棒！今天晚上我与朋友一起看了布加迪．劳斯来斯．林宝坚尼……好多人对着我喝！一切都是刚刚开始！ Via：郭媒体]({{site.baseurl}}/miles/transcript/2018/03/20180329-1087673)
 
 
 ## 頁面 98/111 [**<**]({{site.baseurl}}/miles/transcript/page97) [1]({{site.baseurl}}/miles/transcript/index) ... [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) **98** [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page99)

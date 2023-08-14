@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 51/111 [**<**]({{site.baseurl}}/miles/transcript/page50) [1]({{site.baseurl}}/miles/transcript/index) ... [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) **51** [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page52)
 
+[郭文贵2020年7月10日视频 20200710_2文贵先生再次参加班农战斗室节目片段（2）]({{site.baseurl}}/miles/transcript/2020/07/20200710-1089909)
+
 [郭文贵2020年7月10日视频 20200710_3文贵先生再次参加班农战斗室节目片段（3）]({{site.baseurl}}/miles/transcript/2020/07/20200710-1089910)
 
 [郭文贵2020年7月10日视频 20200710_4文贵先生再次参加班农战斗室节目片段（4）]({{site.baseurl}}/miles/transcript/2020/07/20200710-1089914)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年6月25日直播 20200625_1杨洁篪来美国都说了什么？共产党最快三个月彻底灭亡！]({{site.baseurl}}/miles/transcript/2020/06/20200625-1092129)
 
 [郭文贵2020年6月25日直播 20200625_2夏威夷会面杨洁篪再次的威胁，美国和将华人都列为犯罪分子的背后故事]({{site.baseurl}}/miles/transcript/2020/06/20200625-1092221)
-
-[郭文贵2020年6月24日视频 20200624_1文贵与战友们分享今天媳妇做的大锅菜]({{site.baseurl}}/miles/transcript/2020/06/20200624-1089886)
 
 
 ## 頁面 51/111 [**<**]({{site.baseurl}}/miles/transcript/page50) [1]({{site.baseurl}}/miles/transcript/index) ... [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) **51** [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page52)

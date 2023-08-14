@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 74/111 [**<**]({{site.baseurl}}/miles/transcript/page73) [1]({{site.baseurl}}/miles/transcript/index) ... [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) **74** [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page75)
 
+[郭文贵2019年8月5日视频 20190805香港大劫在即……希望香港的四个不要脸群体．能站在正义的一边帮助上街的孩子们。]({{site.baseurl}}/miles/transcript/2019/08/20190805-1093464)
+
+[2019年8月5日文贵大直播全文字版：香港大劫在即······]({{site.baseurl}}/miles/transcript/2019/08/20190805-1098157)
+
 [郭文贵2019年8月4日视频 20190804_1香港要出随时出大事！传统媒体界转向爆料革命？]({{site.baseurl}}/miles/transcript/2019/08/20190804-1089406)
 
 [郭文贵2019年8月3日视频 20190803_2-當共產黨說不幹甚麼的時候 就是他想幹甚麼的時候]({{site.baseurl}}/miles/transcript/2019/08/20190803-1089402)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分]({{site.baseurl}}/miles/transcript/2019/07/20190727-1098138)
 
 [2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分]({{site.baseurl}}/miles/transcript/2019/07/20190727-1098139)
-
-[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分]({{site.baseurl}}/miles/transcript/2019/07/20190727-1098140)
-
-[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分]({{site.baseurl}}/miles/transcript/2019/07/20190727-1098141)
 
 
 ## 頁面 74/111 [**<**]({{site.baseurl}}/miles/transcript/page73) [1]({{site.baseurl}}/miles/transcript/index) ... [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) **74** [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page75)

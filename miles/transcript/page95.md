@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 95/111 [**<**]({{site.baseurl}}/miles/transcript/page94) [1]({{site.baseurl}}/miles/transcript/index) ... [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) **95** [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page96)
 
+[郭文贵2018年7月22日视频第二部分 20180722_2关于中南海保镖爆料文贵的看法！证明了中南坑，以及他们的军队不堪一击！整个国家就是被一帮骗子绑架了的残酷事实！]({{site.baseurl}}/miles/transcript/2018/07/20180722-1092909)
+
+[郭文贵2018年7月22日视频第一部分 20180722_1王建被杀背后的其他细节！及为什么李红宽输掉了官司！]({{site.baseurl}}/miles/transcript/2018/07/20180722-1092980)
+
 [郭文贵2018年7月21日直播 20180721_1老领导又来电话了 王建夫人请保存好手机上的证据]({{site.baseurl}}/miles/transcript/2018/07/20180721-1088561)
 
 [郭文贵2018年7月21日直播 20180721_2王健的妻子,和王伟处境都很危险,吴征去法国见谁了]({{site.baseurl}}/miles/transcript/2018/07/20180721-1088571)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年6月27日视频 20180627]({{site.baseurl}}/miles/transcript/2018/06/20180627-1094345)
 
 [郭文贵2018年6月25日 20180625房峰辉为什么问蒂斯这个？一个美国战亡士兵价值值中扺国一个连退休士命的命钱！]({{site.baseurl}}/miles/transcript/2018/06/20180625-1094330)
-
-[郭文贵2018年6月23日视频 20180623镇江老兵维权幕后有高人，郭宝胜与王進忠]({{site.baseurl}}/miles/transcript/2018/06/20180623-1087716)
-
-[郭文贵2018年6月21日视频 20180621世界大局正在向反盗国贼的趋势发展]({{site.baseurl}}/miles/transcript/2018/06/20180621-1087711)
 
 
 ## 頁面 95/111 [**<**]({{site.baseurl}}/miles/transcript/page94) [1]({{site.baseurl}}/miles/transcript/index) ... [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) **95** [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page96)

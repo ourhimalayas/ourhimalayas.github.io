@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 94/111 [**<**]({{site.baseurl}}/miles/transcript/page93) [1]({{site.baseurl}}/miles/transcript/index) ... [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) **94** [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page95)
 
+[郭文贵2018年8月13日第二次直播 20180813_2西方国家正在形成正义联盟共同反击中共的纳谇主义扩张！]({{site.baseurl}}/miles/transcript/2018/08/20180813-1092998)
+
+[郭文贵2018年8月13日第一次直播 20180813_1大连政法委书记于德泉．检察长吴喆！在几个小时前在京哈高速上．将盘古公司副总经理贾鑫及妻子两个孩子绑架至大连！]({{site.baseurl}}/miles/transcript/2018/08/20180813-1093003)
+
 [郭文贵2018年8月12日视频 20180812_2在Riek Owes取今年秋季服装（合成版）]({{site.baseurl}}/miles/transcript/2018/08/20180812-1087749)
 
 [郭文贵2018年8月12日 20180812王建被杀刑事案件正在进行中！新闻发布会，在两三周内举行，感谢战友昨天在曼哈顿的热情支持！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/08/20180812-1094232)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年7月30日视频 20180730拍纽约雨景，从阳台上看到邓文迪的家]({{site.baseurl}}/miles/transcript/2018/07/20180730-1087731)
 
 [郭文贵2018年7月28日直播 20180728_1应战友们的要求看snow！我录一段视频给尊敬的战友们！请允许我代表sonw向大家表示衷心感谢！]({{site.baseurl}}/miles/transcript/2018/07/20180728-1088575)
-
-[郭文贵2018年7月22日视频第二部分 20180722_2关于中南海保镖爆料文贵的看法！证明了中南坑，以及他们的军队不堪一击！整个国家就是被一帮骗子绑架了的残酷事实！]({{site.baseurl}}/miles/transcript/2018/07/20180722-1092909)
-
-[郭文贵2018年7月22日视频第一部分 20180722_1王建被杀背后的其他细节！及为什么李红宽输掉了官司！]({{site.baseurl}}/miles/transcript/2018/07/20180722-1092980)
 
 
 ## 頁面 94/111 [**<**]({{site.baseurl}}/miles/transcript/page93) [1]({{site.baseurl}}/miles/transcript/index) ... [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) **94** [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page95)

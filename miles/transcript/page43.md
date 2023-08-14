@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 43/111 [**<**]({{site.baseurl}}/miles/transcript/page42) [1]({{site.baseurl}}/miles/transcript/index) ... [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) **43** [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page44)
 
+[郭文贵2020年11月29日盖特 20201129_1尊敬的戰友們好，你們健身了嗎？你們傳播CCP病毒……香港危機真相了嗎？一切都已經開始！]({{site.baseurl}}/miles/transcript/2020/11/20201129-1093160)
+
+[郭文贵2020年11月28日直播 20201128_1习下定决心攻打台湾，香港经济正处在最后崩盘的挣扎中，美国大选越滑稽我们越有机会！]({{site.baseurl}}/miles/transcript/2020/11/20201128-1093331)
+
 [郭文贵2020年11月27日直播 20201127_1大选从滑到稽，川普总统百分之一万当选，战友们要团结、要行动！]({{site.baseurl}}/miles/transcript/2020/11/20201127-1093312)
 
 [郭文贵2020年11月27日盖特 20201127_22020年11月27號尊敬的戰友們好，你們健身了嗎？你們傳播CCP病毒，香港危機真相了嗎？一切都已經開始！]({{site.baseurl}}/miles/transcript/2020/11/20201127-1093316)
@@ -31,8 +35,6 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2020年11月20日直播 20201120_4王建之死 两周年]({{site.baseurl}}/miles/transcript/2020/11/20201120-1093255)
 
-[2020年11月20日文贵大直播全文字版：王建之死 两周年（上）]({{site.baseurl}}/miles/transcript/2020/11/20201120-1243310)
-
 [郭文贵2020年11月19日直播 20201119_1]({{site.baseurl}}/miles/transcript/2020/11/20201119-1093232)
 
 [郭文贵2020年11月18日盖特 20201118尊敬的戰友，你們健身了嗎？你們傳播CCP病毒……香港危機真相了嗎？一切都已經開始！]({{site.baseurl}}/miles/transcript/2020/11/20201118-1093215)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年11月15日盖特 20201115_2衷心地感谢新……中新国联邦人．为我们中国人．在11月14号在华盛顿地区的游行中展示的团结．伟大的精神面貌！]({{site.baseurl}}/miles/transcript/2020/11/20201115-1093183)
 
 [郭文贵2020年11月15日盖特 20201115_32心地感谢新……中新国联邦人．为我们中国人．在11月14号在华盛顿地区的游行中展示的团结．伟大的精神面貌！]({{site.baseurl}}/miles/transcript/2020/11/20201115-1093185)
-
-[郭文贵2020年11月15日直播 20201115_4连线唐平，威廉王]({{site.baseurl}}/miles/transcript/2020/11/20201115-1093212)
 
 
 ## 頁面 43/111 [**<**]({{site.baseurl}}/miles/transcript/page42) [1]({{site.baseurl}}/miles/transcript/index) ... [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) **43** [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page44)

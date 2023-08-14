@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 46/111 [**<**]({{site.baseurl}}/miles/transcript/page45) [1]({{site.baseurl}}/miles/transcript/index) ... [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) **46** [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page47)
 
+[郭文贵2020年9月19日直播 20200919_2谈班农百岁老父亲献给路德节目处男秀，强力支持灭共的感受（二）]({{site.baseurl}}/miles/transcript/2020/09/20200919-1092930)
+
 [郭文贵2020年9月19日盖特 20200919_3尊敬的香港同胞们……你们的流血．牺牲．将迎来香港新的生命．新的时刻，一切从昨天开始！]({{site.baseurl}}/miles/transcript/2020/09/20200919-1092934)
 
 [郭文贵2020年9月18日盖特 20200918会议期间再和战友们聊一会儿]({{site.baseurl}}/miles/transcript/2020/09/20200918-1092777)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年9月3日盖特 202009039月3号 尊敬的战友们好．全球联合灭共！和全球联合依法灭贼！进入了新的时代，为了维护新中国联邦……和战友们安全．与利益。和家人应有的尊]({{site.baseurl}}/miles/transcript/2020/09/20200903-1092730)
 
 [郭文贵2020年9月1日直播 20200901我们的GTV首次使用OBS全功能平台摄像机直播共产党在蒙古正在幻想灭族罪。]({{site.baseurl}}/miles/transcript/2020/09/20200901-1092721)
-
-[郭文贵2020年9月1日盖特 20200901_29月1号 尊敬的战友们好，你们健身了吗？传播C C P病毒．香港危机真相了吗？感谢战友们的文字。昨天这跑调的歌声的包容和支持，希望不要再传]({{site.baseurl}}/miles/transcript/2020/09/20200901-1092727)
 
 
 ## 頁面 46/111 [**<**]({{site.baseurl}}/miles/transcript/page45) [1]({{site.baseurl}}/miles/transcript/index) ... [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) **46** [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page47)

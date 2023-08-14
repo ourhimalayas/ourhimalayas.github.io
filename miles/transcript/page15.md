@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 15/111 [**<**]({{site.baseurl}}/miles/transcript/page14) [1]({{site.baseurl}}/miles/transcript/index) ... [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) **15** [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page16)
 
+[郭文贵2021年11月15日盖特 20211115_2尊敬的战友们好，全世界都在准备着……共产党擀面杖子的虚假经济．即将崩塌，而准备各自的经济大逃亡……]({{site.baseurl}}/miles/transcript/2021/11/20211115-1093604)
+
+[郭文贵2021年11月15日盖特 20211115_3尊敬的战友们好，我们开始吃馍馍．吃饭饭喽……]({{site.baseurl}}/miles/transcript/2021/11/20211115-1093610)
+
 [郭文贵2021年11月15日盖特 20211115_4应战友们的要求……发一个SNOW 的小视频????]({{site.baseurl}}/miles/transcript/2021/11/20211115-1093618)
 
 [郭文贵2021年11月14日直播 20211114_1香港大陆及世界股市；喜币迎接金融大转变；疫苗灾难台湾房地产；新中国联邦机会何在；班农被司法部起诉的意义；全球金融危机及G系列生态圈；]({{site.baseurl}}/miles/transcript/2021/11/20211114-1093728)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年11月2日盖特 20211102_1尊敬的战友们好！永远不要忘了灭共是我们的最终使命！建立一个让中国有独立的法治……信仰的自由．民主的社会的新中国联邦共和国，是我们的信仰，和必须实现的目标，一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/11/20211102-1093543)
 
 [郭文贵2021年11月2日盖特直播 20211102_2]({{site.baseurl}}/miles/transcript/2021/11/20211102-1093546)
-
-[郭文贵2021年11月1日直播 20211101_1“HCOIN TO THE MOON” 喜马拉雅币上市庆典 （上）]({{site.baseurl}}/miles/transcript/2021/11/20211101-1093905)
-
-[郭文贵2021年11月1日直播 20211101_2“HCOIN TO THE MOON” 喜马拉雅币上市庆典 （下）]({{site.baseurl}}/miles/transcript/2021/11/20211101-1094058)
 
 
 ## 頁面 15/111 [**<**]({{site.baseurl}}/miles/transcript/page14) [1]({{site.baseurl}}/miles/transcript/index) ... [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) **15** [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page16)
