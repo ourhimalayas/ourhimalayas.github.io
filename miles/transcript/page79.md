@@ -1,7 +1,29 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 79/111 [**<**]({{site.baseurl}}/miles/transcript/page78) [1]({{site.baseurl}}/miles/transcript/index) ... [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) **79** [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page80)
+## 頁面 79/112 [**<**]({{site.baseurl}}/miles/transcript/page78) [1]({{site.baseurl}}/miles/transcript/index) ... [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) **79** [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page80)
+
+[郭文贵2019年6月20日视频 20190620王毅讲的潘多拉盒子是什么意思]({{site.baseurl}}/miles/transcript/2019/06/20190620-1093305)
+
+[2019年6月20日郭文贵先生直播全文字版：谈王毅讲的潘多拉盒子是什么意思]({{site.baseurl}}/miles/transcript/2019/06/20190620-1098085)
+
+[郭文贵2019年6月18日视频 20190618关于6月21日的再次示威行动]({{site.baseurl}}/miles/transcript/2019/06/20190618-1093300)
+
+[2019年6月18日文贵纽约时间晚上8点直播全文字版：关于香港21日再次上街]({{site.baseurl}}/miles/transcript/2019/06/20190618-1098084)
+
+[郭文贵2019年6月17日视频 20190617支持香港反送中抗议]({{site.baseurl}}/miles/transcript/2019/06/20190617-1093290)
+
+[香港时间2019年6月17日文贵先生上午直播全文字版： Hong Kong Live 《战友同行》]({{site.baseurl}}/miles/transcript/2019/06/20190617-1098092)
+
+[郭文贵2019年6月16日视频 20190616_1在深圳珠海，香港中资大楼里的解放军埋伏．并没有撒啊，共产党正在何机破坏……制造社会动乱，栽赃香港人]({{site.baseurl}}/miles/transcript/2019/06/20190616-1089263)
+
+[2019年6月16日直播全文字版：文贵如何看共产党在香港耍诈、使狠]({{site.baseurl}}/miles/transcript/2019/06/20190616-1098091)
+
+[郭文贵2019年6月15日视频 20190615郭先生緊急喊話香港616必須上街]({{site.baseurl}}/miles/transcript/2019/06/20190615-1093270)
+
+[郭文贵2019年6月14日 20190614林郑月娥提出辞职，取消”逃犯条例”；叶刘淑仪提出硬挺通过”逃犯条例”]({{site.baseurl}}/miles/transcript/2019/06/20190614-1093261)
+
+[2019年6月14日郭文贵先生直播全文听写：林郑月娥必须提出辞职，取消“逃犯条例”]({{site.baseurl}}/miles/transcript/2019/06/20190614-1098081)
 
 [郭文贵2019年6月13日视频 20190613_5测试细丝和庄烈宏]({{site.baseurl}}/miles/transcript/2019/06/20190613-1088596)
 
@@ -31,27 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年6月10日视频 20190610_2与文贵，班农直播，连线Crystal西行小宝等参加游行的战友们 “细思翻译爷爷上线”]({{site.baseurl}}/miles/transcript/2019/06/20190610-1089216)
 
-[郭文贵2019年6月10日视频 20190610_3细思小哥在喜马拉雅大使馆与小庄、文贵和班农直播]({{site.baseurl}}/miles/transcript/2019/06/20190610-1089242)
 
-[郭文贵2019年6月10日视频 20190610文贵报平安再谈，上天送给我的几个巨大的礼物？]({{site.baseurl}}/miles/transcript/2019/06/20190610-1093045)
-
-[郭文贵2019年6月9日直播 20190609_1班农先生．与郭文贵和龚小夏女士．直播香港百万人抗议大游行9小时直播上部分！]({{site.baseurl}}/miles/transcript/2019/06/20190609-1092646)
-
-[郭文贵2019年6月9日直播 20190609_2班农先生．与郭文贵和龚小夏女士．直播香港百万人抗议大游行9小时直播中部分！]({{site.baseurl}}/miles/transcript/2019/06/20190609-1092693)
-
-[郭文贵2019年6月9日直播 20190609_3班农先生．与郭文贵和龚小夏女士．直播香港百万人抗议大游行9小时直播]({{site.baseurl}}/miles/transcript/2019/06/20190609-1092822)
-
-[郭文贵2019年6月8日视频 20190608_2大家看看這些設備都不如路德先生的一個手指頭 中國人的智慧太沒問題了]({{site.baseurl}}/miles/transcript/2019/06/20190608-1089199)
-
-[郭文贵2019年6月8日视频 20190608香港6.9上街若能持续几天彻底改变香港]({{site.baseurl}}/miles/transcript/2019/06/20190608-1093041)
-
-[郭文贵2019年6月7日视频 20190607香港的事真搞大了]({{site.baseurl}}/miles/transcript/2019/06/20190607-1093037)
-
-[郭文贵2019年6月5日视频 20190605庞皮奥的讲话与香港6.9日大游行……]({{site.baseurl}}/miles/transcript/2019/06/20190605-1093029)
-
-[郭文贵2019年6月3日视频 20190603_1华盛顿战友不要上街]({{site.baseurl}}/miles/transcript/2019/06/20190603-1089197)
-
-[郭文贵2019年6月2日谈林郑卖港 20190602班农与郭文贵谈林郑卖港、6月4日新中国建国日、欧洲反共革命]({{site.baseurl}}/miles/transcript/2019/06/20190602-1093021)
-
-
-## 頁面 79/111 [**<**]({{site.baseurl}}/miles/transcript/page78) [1]({{site.baseurl}}/miles/transcript/index) ... [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) **79** [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page80)
+## 頁面 79/112 [**<**]({{site.baseurl}}/miles/transcript/page78) [1]({{site.baseurl}}/miles/transcript/index) ... [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) **79** [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page80)

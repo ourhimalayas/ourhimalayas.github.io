@@ -1,7 +1,29 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 60/111 [**<**]({{site.baseurl}}/miles/transcript/page59) [1]({{site.baseurl}}/miles/transcript/index) ... [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) **60** [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page61)
+## 頁面 60/112 [**<**]({{site.baseurl}}/miles/transcript/page59) [1]({{site.baseurl}}/miles/transcript/index) ... [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) **60** [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page61)
+
+[郭文贵2020年2月19日直播 20200219_2郭文贵先生加入班农先生战斗室谈武汉疫情 高清版]({{site.baseurl}}/miles/transcript/2020/02/20200219-1088898)
+
+[郭文贵2020年2月19日 20200219参加班农先生的作战室第20期直播]({{site.baseurl}}/miles/transcript/2020/02/20200219-1091799)
+
+[郭文贵2020年2月18日 20200218警醒同胞2月29日是武汉疫情的分水岭，别上班，躲深山]({{site.baseurl}}/miles/transcript/2020/02/20200218-1091794)
+
+[郭文贵2020年2月15日 20200215 告诉战友们一定要耐心在家健身健心会有解药的！CCP灭了车贷房贷]({{site.baseurl}}/miles/transcript/2020/02/20200215-1091774)
+
+[郭文贵2020年2月14日谈武汉疫情 20200214战友不树敌只为灭共]({{site.baseurl}}/miles/transcript/2020/02/20200214-1091761)
+
+[郭文贵2020年2月12日 20200212一切都听党的走向火葬场]({{site.baseurl}}/miles/transcript/2020/02/20200212-1091751)
+
+[郭文贵2020年2月10日 20200210请战友们保存让你上班的证据]({{site.baseurl}}/miles/transcript/2020/02/20200210-1091742)
+
+[郭文贵2020年2月8日第一次直播 20200208_1回答武汉疫情为何是中国共产党制造并释放出来的]({{site.baseurl}}/miles/transcript/2020/02/20200208-1091728)
+
+[郭文贵2020年2月8日第二次直播 20200208_2由美国专家确定病毒非蝙蝠传播，而是来自武汉实验室人工制毒]({{site.baseurl}}/miles/transcript/2020/02/20200208-1091732)
+
+[郭文贵2020年2月6日视频 20200206_2文贵接受班农先生War Room 访问]({{site.baseurl}}/miles/transcript/2020/02/20200206-1088896)
+
+[郭文贵2020年2月6日视频 20200206接受班农先生战斗室访谈 谈武]({{site.baseurl}}/miles/transcript/2020/02/20200206-1091713)
 
 [郭文贵2020年2月5日视频 20200205_1我们法治基金已经准备好了一亿个口罩！请问中共我们该如何送到我们血缘的同胞手里？寄诸囗罩．善至血缘！]({{site.baseurl}}/miles/transcript/2020/02/20200205-1089764)
 
@@ -31,27 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2020年1月27日谈科比意外死亡 20200127并呼吁中共在灾难面前以人命]({{site.baseurl}}/miles/transcript/2020/01/20200127-1091716)
 
-[郭文贵2020年1月26日 20200126大年初二谈为什么共产党要控制世界卫生组织．国际刑警组织．国际人权组织．中共为什么拒绝世界卫生组织给武汉疫区医生护士的防护设备和设施。2020年1月26日爆料革命三周年文贵致谢所有的战]({{site.baseurl}}/miles/transcript/2020/01/20200126-1092308)
 
-[郭文贵2020年1月25日 20200125大年初一文贵严肃负责任向战友及疫区同胞报告：……武汉疫情绝对是人为不是天灾！]({{site.baseurl}}/miles/transcript/2020/01/20200125-1091698)
-
-[郭文贵2020年1月24日视频 20200124_2吃完年夜飯 抽根朋友送的雪茄PARTAGAS]({{site.baseurl}}/miles/transcript/2020/01/20200124-1089758)
-
-[郭文贵2020年1月24日文贵看春晚 20200124]({{site.baseurl}}/miles/transcript/2020/01/20200124-1091671)
-
-[郭文贵2020年1月23日第二次直播 20200123_2向大家汇报今天的法治基金的会议花絮．24号文贵看春晚的节目的一些安排]({{site.baseurl}}/miles/transcript/2020/01/20200123-1092137)
-
-[郭文贵2020年1月23日第一次直播 20200123_1法治社会法制基金第一次董事会后．全员直播．史蒂夫班农先生和卡尔巴斯．比尔盖茨先生．郭文贵先生，路德先生Sara一起直播。]({{site.baseurl}}/miles/transcript/2020/01/20200123-1092209)
-
-[郭文贵2020年1月22日第二次直播 20200122_2谈武汉疫情紧急事]({{site.baseurl}}/miles/transcript/2020/01/20200122-1091635)
-
-[郭文贵2020年1月22日第一次直播 20200122_1中共新4000隐士]({{site.baseurl}}/miles/transcript/2020/01/20200122-1092219)
-
-[郭文贵2020年1月20日谈非典真相 20200120西方人如何看待勤劳的中国人]({{site.baseurl}}/miles/transcript/2020/01/20200120-1091624)
-
-[郭文贵2020年1月19日 20200119惊天的新闻．中美协议是卖香港的交易。这就是中共所谓的外溢效应！]({{site.baseurl}}/miles/transcript/2020/01/20200119-1092312)
-
-[郭文贵2020年1月18日 20200118刘鹤招待会取消预示着什么]({{site.baseurl}}/miles/transcript/2020/01/20200118-1092293)
-
-
-## 頁面 60/111 [**<**]({{site.baseurl}}/miles/transcript/page59) [1]({{site.baseurl}}/miles/transcript/index) ... [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) **60** [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page61)
+## 頁面 60/112 [**<**]({{site.baseurl}}/miles/transcript/page59) [1]({{site.baseurl}}/miles/transcript/index) ... [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) **60** [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page61)

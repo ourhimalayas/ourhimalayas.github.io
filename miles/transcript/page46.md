@@ -1,7 +1,29 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 46/111 [**<**]({{site.baseurl}}/miles/transcript/page45) [1]({{site.baseurl}}/miles/transcript/index) ... [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) **46** [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page47)
+## 頁面 46/112 [**<**]({{site.baseurl}}/miles/transcript/page45) [1]({{site.baseurl}}/miles/transcript/index) ... [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) **46** [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page47)
+
+[郭文贵2020年9月26日直播 20200926_1感谢在前线依法灭贼的战友们；依法灭贼的重大意义，是对战友勇气与智慧的考验]({{site.baseurl}}/miles/transcript/2020/09/20200926-1092983)
+
+[郭文贵2020年9月25日盖特 20200925尊敬的战友们好，你们健身了吗？你们传播CCP病毒．香港危机真相了吗？文贵聊聊．为什么要在全球依法灭贼！看过变态的性爱视频了]({{site.baseurl}}/miles/transcript/2020/09/20200925-1092969)
+
+[郭文贵2020年9月24日直播 20200924_1全球战友们一定要坚持唯真不破，依法灭贼．团结一致，迎接伟大时刻的到来]({{site.baseurl}}/miles/transcript/2020/09/20200924-1092863)
+
+[郭文贵2020年9月24日直播 20200924_2测试GTV安卓版直播；中共在48小时内将打开第二个潘多拉盒子，加速灭亡；全球灭贼行动正在进行]({{site.baseurl}}/miles/transcript/2020/09/20200924-1092876)
+
+[郭文贵2020年9月24日盖特 20200924_3尊敬的战友们好，谁能认出和我这么亲近的这只可爱的猫！谁就能准确地预测出美国总统大选的结果！这猫今天真是爱上我了…我一走她就]({{site.baseurl}}/miles/transcript/2020/09/20200924-1092967)
+
+[郭文贵2020年9月23日盖特 20200923文贵开会前．给战友们汇报一下，国内政治以及灭共的国际形势．一切都已经开始！]({{site.baseurl}}/miles/transcript/2020/09/20200923-1092857)
+
+[郭文贵2020年9月21日盖特 20200921_1文贵就有关澳喜战友．和全球战友选择农场和全球依法灭贼的行动的一些看法！]({{site.baseurl}}/miles/transcript/2020/09/20200921-1092952)
+
+[郭文贵2020年9月20日盖特 20200920_1尊敬的战友们好，你们健身了吗？你们传播C C P病毒……香港危机真相了吗？文贵与战友们分享。昨天．特别星期六的外出感受]({{site.baseurl}}/miles/transcript/2020/09/20200920-1092936)
+
+[郭文贵2020年9月20日直播 20200920_2各农场加入的标准；对近期重大事件的解读]({{site.baseurl}}/miles/transcript/2020/09/20200920-1092944)
+
+[郭文贵2020年9月19日做客战斗室 20200919_7班农战斗室 郭文贵专场 E395 中文整理]({{site.baseurl}}/miles/transcript/2020/09/20200919-1092855)
+
+[郭文贵2020年9月19日直播 20200919_1谈班农百岁老父亲献给路德节目处男秀，强力支持灭共的感受（一）]({{site.baseurl}}/miles/transcript/2020/09/20200919-1092924)
 
 [郭文贵2020年9月19日直播 20200919_2谈班农百岁老父亲献给路德节目处男秀，强力支持灭共的感受（二）]({{site.baseurl}}/miles/transcript/2020/09/20200919-1092930)
 
@@ -31,27 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2020年9月10日盖特 20200910_1文贵将开创一个中老年人的生活方式，这是足球先生．郝海东老弟．羽毛球冠军．叶钊颖妹妹．虐待……郭文贵的证据]({{site.baseurl}}/miles/transcript/2020/09/20200910-1092782)
 
-[郭文贵2020年9月10日盖特 20200910_2兄弟姐妹们．别人老想用钱砸咱．咋办呢？咋办呢？咋办昵？]({{site.baseurl}}/miles/transcript/2020/09/20200910-1092786)
 
-[郭文贵2020年9月10日盖特 20200910_3感谢战友们的全球合力的顶．灭共之歌…干掉共产党，我们要创造更伟大的奇迹……]({{site.baseurl}}/miles/transcript/2020/09/20200910-1092788)
-
-[郭文贵2020年9月9日直播 20200909文贵在喜马拉雅乱聊直播]({{site.baseurl}}/miles/transcript/2020/09/20200909-1092779)
-
-[郭文贵2020年9月8日直播 20200908文贵与战友以歌灭共的新时代]({{site.baseurl}}/miles/transcript/2020/09/20200908-1092771)
-
-[郭文贵2020年9月7日盖特 20200907尊敬的战友们好，你们健身了吗？你们传统播C C P病毒．香港危机真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2020/09/20200907-1092749)
-
-[郭文贵2020年9月7日做客战斗室 20200907_2]({{site.baseurl}}/miles/transcript/2020/09/20200907-1093004)
-
-[郭文贵2020年9月5日直播 20200905向战友们展示一下G翻身的新到的帽子和新到的裤子短暂的直播一下．文贵还有视频会议非常的抱歉．不能时间太长]({{site.baseurl}}/miles/transcript/2020/09/20200905-1092736)
-
-[郭文贵2020年9月5日做客战斗室 20200905_2]({{site.baseurl}}/miles/transcript/2020/09/20200905-1093013)
-
-[郭文贵2020年9月4日盖特 202009049月4号 衷心的感谢????????????????????????????国内外的战友，因为昨天大连法院．没收了我家人和同事的65套房子。我的很多家人和同事被赶到大街上去……]({{site.baseurl}}/miles/transcript/2020/09/20200904-1092732)
-
-[郭文贵2020年9月3日盖特 202009039月3号 尊敬的战友们好．全球联合灭共！和全球联合依法灭贼！进入了新的时代，为了维护新中国联邦……和战友们安全．与利益。和家人应有的尊]({{site.baseurl}}/miles/transcript/2020/09/20200903-1092730)
-
-[郭文贵2020年9月1日直播 20200901我们的GTV首次使用OBS全功能平台摄像机直播共产党在蒙古正在幻想灭族罪。]({{site.baseurl}}/miles/transcript/2020/09/20200901-1092721)
-
-
-## 頁面 46/111 [**<**]({{site.baseurl}}/miles/transcript/page45) [1]({{site.baseurl}}/miles/transcript/index) ... [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) **46** [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page47)
+## 頁面 46/112 [**<**]({{site.baseurl}}/miles/transcript/page45) [1]({{site.baseurl}}/miles/transcript/index) ... [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) **46** [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page47)

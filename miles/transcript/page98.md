@@ -1,7 +1,29 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 98/111 [**<**]({{site.baseurl}}/miles/transcript/page97) [1]({{site.baseurl}}/miles/transcript/index) ... [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) **98** [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page99)
+## 頁面 98/112 [**<**]({{site.baseurl}}/miles/transcript/page97) [1]({{site.baseurl}}/miles/transcript/index) ... [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) **98** [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page99)
+
+[郭文贵2018年4月28日视频 20180428金正恩是我们学习的坏榜样]({{site.baseurl}}/miles/transcript/2018/04/20180428-1092846)
+
+[郭文贵2018年4月26日直播 20180426_2]({{site.baseurl}}/miles/transcript/2018/04/20180426-1088198)
+
+[郭文贵2018年4月26日视频 20180426在西香格里拉酒店被抓嫖娼两位歌星是谁？]({{site.baseurl}}/miles/transcript/2018/04/20180426-1092842)
+
+[郭文贵2018年4月24日视频 20180424_2Guo Wengui's statement on the Persecution of Mr Zhiyu Chen and Zhiheng Chen by the Chin]({{site.baseurl}}/miles/transcript/2018/04/20180424-1087914)
+
+[郭文贵2018年4月24日视频 20180424_3文汇怎么造的假文件呢？详情，请看现在的路徳专访！文贵己经提供了部分信息给路德先生了！一切都是刚刚开始！愚蠢的盗国贼．又给文贵送大礼了！]({{site.baseurl}}/miles/transcript/2018/04/20180424-1087920)
+
+[郭文贵2018年4月24日视频 20180424_4我正在赛船呢]({{site.baseurl}}/miles/transcript/2018/04/20180424-1087924)
+
+[郭文贵2018年4月24日视频 20180424在重庆公安认罪的陈氏兄弟是现任常委秘书的家人！ 《战友同行》]({{site.baseurl}}/miles/transcript/2018/04/20180424-1092830)
+
+[郭文贵2018年4月23日视频 20180423与陈志煜讨论某机密文件之真伪的通话录音以及另两个短视频全文听写]({{site.baseurl}}/miles/transcript/2018/04/20180423-1092836)
+
+[郭文贵2018年4月22日视频2 20180422_3那一天的美东战友聚会多么的美好！]({{site.baseurl}}/miles/transcript/2018/04/20180422-1087688)
+
+[郭文贵2018年4月22日视频2 20180422_2盗国贼新的一波行动]({{site.baseurl}}/miles/transcript/2018/04/20180422-1088637)
+
+[郭文贵2018年4月22日视频1 20180422_1要射向明镜的10个问彈！]({{site.baseurl}}/miles/transcript/2018/04/20180422-1092827)
 
 [郭文贵2018年4月21日视频 20180421文贵在此庄严地严肃地向中南坑里的某些：妖和怪们．致以衷心的道歉，文贵不会让你们失望的！]({{site.baseurl}}/miles/transcript/2018/04/20180421-1092872)
 
@@ -31,27 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2018年4月10日视频 20180410文贵谈见宝胜．与到底该不该反习！]({{site.baseurl}}/miles/transcript/2018/04/20180410-1092780)
 
-[郭文贵2018年4月9日视频 20180409尊敬的战友们好：文贵为什么在华盛顿！]({{site.baseurl}}/miles/transcript/2018/04/20180409-1092756)
 
-[郭文贵2018年4月7日第一次直播 20180407_1谈吴小晖在华尔道夫酒店保险箱藏着什么以及与胡舒立和海航的逻辑关系]({{site.baseurl}}/miles/transcript/2018/04/20180407-1092804)
-
-[郭文贵2018年4月7日第二次直播 20180407_2吴晓辉与胡舒立-海航．是你么逻辑上的关系！]({{site.baseurl}}/miles/transcript/2018/04/20180407-1094193)
-
-[郭文贵2018年4月6日视频 20180406谈王岐山抓吴小晖是打邓家威胁美国总统的一箭多雕之计]({{site.baseurl}}/miles/transcript/2018/04/20180406-1092794)
-
-[郭文贵2018年4月5日视频 20180405告诉您吴小晖飞机上的牛人是谁]({{site.baseurl}}/miles/transcript/2018/04/20180405-1092744)
-
-[郭文贵2018年4月4日视频 20180404吴晓辉的飞机上藏着＂核武器＂！]({{site.baseurl}}/miles/transcript/2018/04/20180404-1092652)
-
-[郭文贵2018年4月3日第一次直播 20180403_1-在未来的几天我将向大家谈一下关于吴晓辉和向俊波以及他背后的真实故事他也是香港警察与盗国贼的谋害者之一他的黑幕会也让大家震惊万分]({{site.baseurl}}/miles/transcript/2018/04/20180403-1092620)
-
-[郭文贵2018年4月3日第二次直播 20180403_2中国企业家都是盗国贼资本的代孕者！]({{site.baseurl}}/miles/transcript/2018/04/20180403-1092826)
-
-[郭文贵2018年4月2日视频 20180402_2我将向大家谈一下关于吴小晖和项俊波以及他们背后的真实故事]({{site.baseurl}}/miles/transcript/2018/04/20180402-1087678)
-
-[郭文贵2018年4月2日 20180402吴晓辉如果要是王岐山外甥女婿结果会如何？]({{site.baseurl}}/miles/transcript/2018/04/20180402-1094195)
-
-[郭文贵2018年3月31日做客郭友之声 20180331郭友访谈--郭先生与小蚂蚁亲密接触（戊戌年 3月31日）]({{site.baseurl}}/miles/transcript/2018/03/20180331-1092596)
-
-
-## 頁面 98/111 [**<**]({{site.baseurl}}/miles/transcript/page97) [1]({{site.baseurl}}/miles/transcript/index) ... [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) **98** [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page99)
+## 頁面 98/112 [**<**]({{site.baseurl}}/miles/transcript/page97) [1]({{site.baseurl}}/miles/transcript/index) ... [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) **98** [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page99)

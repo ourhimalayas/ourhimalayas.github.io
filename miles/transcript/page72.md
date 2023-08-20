@@ -1,7 +1,29 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 72/111 [**<**]({{site.baseurl}}/miles/transcript/page71) [1]({{site.baseurl}}/miles/transcript/index) ... [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) **72** [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page73)
+## 頁面 72/112 [**<**]({{site.baseurl}}/miles/transcript/page71) [1]({{site.baseurl}}/miles/transcript/index) ... [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) **72** [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page73)
+
+[郭文贵2019年9月4日直播 20190904“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!]({{site.baseurl}}/miles/transcript/2019/09/20190904-1093532)
+
+[2019年9月4日文贵大直播全文字版：平安直播“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!]({{site.baseurl}}/miles/transcript/2019/09/20190904-1098214)
+
+[郭文贵2019年9月3日第三次直播 20190903_3在华盛顿直播，CCP将真正对香港进行戒严计划]({{site.baseurl}}/miles/transcript/2019/09/20190903-1088579)
+
+[郭文贵2019年9月3日第二次直播 20190903_2在华盛顿直播，谈9月3号CCP将真正对香港进行戒严计划，目前所有焦点都关注香港！]({{site.baseurl}}/miles/transcript/2019/09/20190903-1093508)
+
+[郭文贵2019年9月3日第一次直播 20190903_1香港将是东西方大战导火线．什么是中共所谓的新型大国关系！]({{site.baseurl}}/miles/transcript/2019/09/20190903-1093516)
+
+[2019年9月3日文贵大直播全文字版：华盛顿直播：香港将是东西方大战导火线．什么是中共所谓的新型大国关系！]({{site.baseurl}}/miles/transcript/2019/09/20190903-1098207)
+
+[2019年9月3日文贵大直播全文字版：第一次在华盛顿直播，谈9月3号CCP将真正对香港进行戒严计划，目前所有焦点都关注香港！]({{site.baseurl}}/miles/transcript/2019/09/20190903-1098208)
+
+[郭文贵2019年9月2日图桑报平安 20190902]({{site.baseurl}}/miles/transcript/2019/09/20190902-1093505)
+
+[郭文贵2019年9月1日与班农先生直播 20190901共产党香港之外的另一个威胁全世界的计划]({{site.baseurl}}/miles/transcript/2019/09/20190901-1093500)
+
+[2019年9月1日文贵与班农先生直播习近平与王岐山的攻台计划！全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190901-1098216)
+
+[郭文贵2019年8月31日视频 20190831_1文贵与班农先生直播，关注831香港]({{site.baseurl}}/miles/transcript/2019/08/20190831-1089504)
 
 [郭文贵2019年8月29日视频 20190829_1王雁平起訴亂倫彪案 解放軍進港]({{site.baseurl}}/miles/transcript/2019/08/20190829-1089460)
 
@@ -31,27 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [2019年8月26日文贵大直播全文字版：报平安]({{site.baseurl}}/miles/transcript/2019/08/20190826-1098184)
 
-[郭文贵2019年8月24日视频 20190824_1报平安，好消息不断]({{site.baseurl}}/miles/transcript/2019/08/20190824-1089431)
 
-[郭文贵2019年8月24日视频 20190824_2文贵怀孕了]({{site.baseurl}}/miles/transcript/2019/08/20190824-1089437)
-
-[郭文贵2019年8月23日第二次直播 20190823_2歐美這兩天將宣布1.對香港及共產黨高官個人進行制裁 2.取消香港關係法及其自由貿易區地位 3.歐美將有一系列對香港的保護措施及政策]({{site.baseurl}}/miles/transcript/2019/08/20190823-1093677)
-
-[郭文贵2019年8月23日第一次直播 20190823_1习近平和川普总统会互相宣布成为敌人吗？习近平为什么说川普不是我的朋友？]({{site.baseurl}}/miles/transcript/2019/08/20190823-1093687)
-
-[2019年8月23日文贵大直播全文字版：习近平和川普总统会互相宣布成为敌人吗？]({{site.baseurl}}/miles/transcript/2019/08/20190823-1098182)
-
-[郭文贵2019年8月20日视频 20190820王岐山的侄子搶奪盤古大關的 “斬龍刀”！和西方媒體面對的司法審判的改變！]({{site.baseurl}}/miles/transcript/2019/08/20190820-1093670)
-
-[2019年8月20日文贵大直播：王岐山的侄子抢夺盘古大观的「斩龙刀」]({{site.baseurl}}/miles/transcript/2019/08/20190820-1098186)
-
-[郭文贵2019年8月18日视频 20190818从‘818’的170万港人再上街 来看大湾区的吞港计划]({{site.baseurl}}/miles/transcript/2019/08/20190818-1093653)
-
-[郭文贵2019年8月17日视频 20190817_2回复有关今早直播后，大家发来的私信问题]({{site.baseurl}}/miles/transcript/2019/08/20190817-1089423)
-
-[郭文贵2019年8月17日 20190817（原声） 班农与文贵先生谈：香港危机 美国即将必须采取的行动]({{site.baseurl}}/miles/transcript/2019/08/20190817-1093591)
-
-[2019年8月17号文贵大直播全文字版：回复有关今早直播后，大家发来的私信问题……]({{site.baseurl}}/miles/transcript/2019/08/20190817-1098189)
-
-
-## 頁面 72/111 [**<**]({{site.baseurl}}/miles/transcript/page71) [1]({{site.baseurl}}/miles/transcript/index) ... [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) **72** [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page73)
+## 頁面 72/112 [**<**]({{site.baseurl}}/miles/transcript/page71) [1]({{site.baseurl}}/miles/transcript/index) ... [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) **72** [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page73)

@@ -1,7 +1,29 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 90/111 [**<**]({{site.baseurl}}/miles/transcript/page89) [1]({{site.baseurl}}/miles/transcript/index) ... [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) **90** [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page91)
+## 頁面 90/112 [**<**]({{site.baseurl}}/miles/transcript/page89) [1]({{site.baseurl}}/miles/transcript/index) ... [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) **90** [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page91)
+
+[郭文贵2018年10月22日视频 20181022_2打中CCP鏢靶兩次 贏得第一]({{site.baseurl}}/miles/transcript/2018/10/20181022-1088837)
+
+[郭文贵2018年10月21日 20181021_2澳門鄭曉松的被殺是因為孟宏偉 這是又一次的黑吃黑 2]({{site.baseurl}}/miles/transcript/2018/10/20181021-1087981)
+
+[郭文贵2018年10月21日 20181021_3澳門鄭曉松的被殺是因為孟宏偉 這是又一次的黑吃黑 3]({{site.baseurl}}/miles/transcript/2018/10/20181021-1087990)
+
+[郭文贵2018年10月21日 20181021_1澳門鄭曉松的被殺是因為孟宏偉 這是又一次的黑吃黑]({{site.baseurl}}/miles/transcript/2018/10/20181021-1094219)
+
+[郭文贵2018年10月20日视频 20181020_2Snow響應王岐山號召 從吃狗糧改吃草了]({{site.baseurl}}/miles/transcript/2018/10/20181020-1087971)
+
+[郭文贵2018年10月20日视频 20181020_1三個月前在華盛頓認識的美國戰友家人]({{site.baseurl}}/miles/transcript/2018/10/20181020-1088835)
+
+[郭文贵2018年10月19日视频 20181019_1请战友们发信息给我用郭媒体私信功能！拜托千万不要再给我寄钱了！]({{site.baseurl}}/miles/transcript/2018/10/20181019-1088878)
+
+[郭文贵2018年10月18日视频 20181018_1夫人乐高顯真情 文贵夫君样样行 好友喝酒惹禍事 慶芝對夫動大刑]({{site.baseurl}}/miles/transcript/2018/10/20181018-1088876)
+
+[郭文贵2018年10月17日参加路德访谈 20181017法国大革命与共产党的打土豪分田地的根本不同！也必将引起流血革命！西方国家已经开始实施对中国共产党的清除方案！无人可以改变！]({{site.baseurl}}/miles/transcript/2018/10/20181017-1088458)
+
+[郭文贵2018年10月16日视频 20181016郭文贵直播 政法委以黑治国比黑还黑！孟宏伟怎么回国的？怎么被抓的？王建是怎么死的？王岐山赴以色列人民币“偷”技术 赴沙特 人民币换石油]({{site.baseurl}}/miles/transcript/2018/10/20181016-1093287)
+
+[郭文贵2018年10月15日视频 20181015_1孟宏偉事件之後 好多人開始被抓]({{site.baseurl}}/miles/transcript/2018/10/20181015-1088874)
 
 [郭文贵2018年10月14日视频 20181014_1]({{site.baseurl}}/miles/transcript/2018/10/20181014-1088868)
 
@@ -31,27 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2018年10月8日视频 20181008_2与黑水公司朋友射击]({{site.baseurl}}/miles/transcript/2018/10/20181008-1088634)
 
-[郭文贵2018年10月6日视频 20181006_2]({{site.baseurl}}/miles/transcript/2018/10/20181006-1088838)
 
-[郭文贵2018年10月6日视频 20181006_3]({{site.baseurl}}/miles/transcript/2018/10/20181006-1088839)
-
-[郭文贵2018年10月6日视频 20181006_4]({{site.baseurl}}/miles/transcript/2018/10/20181006-1088843)
-
-[郭文贵2018年10月6日视频 20181006_5]({{site.baseurl}}/miles/transcript/2018/10/20181006-1088846)
-
-[郭文贵2018年10月6日 20181006文贵与班农接受著名对冲基金经理采访,讲述中共政治黑幕和孟宏伟失踪事件]({{site.baseurl}}/miles/transcript/2018/10/20181006-1093289)
-
-[郭文贵2018年10月5日视频 20181005_1]({{site.baseurl}}/miles/transcript/2018/10/20181005-1088833)
-
-[郭文贵2018年10月5日视频 20181005_2文贵一小时以后在郭媒体直播请大家围观三个男人的]({{site.baseurl}}/miles/transcript/2018/10/20181005-1088834)
-
-[郭文贵2018年10月4日第一次直播 20181004_1报平安直播 希望成功快点到来]({{site.baseurl}}/miles/transcript/2018/10/20181004-1093170)
-
-[郭文贵2018年10月4日第二次直播 20181004_2未来一两周每天都会有新闻]({{site.baseurl}}/miles/transcript/2018/10/20181004-1093235)
-
-[郭文贵2018年10月3日视频 20181003_1]({{site.baseurl}}/miles/transcript/2018/10/20181003-1088818)
-
-[郭文贵2018年10月3日视频 20181003_2]({{site.baseurl}}/miles/transcript/2018/10/20181003-1088821)
-
-
-## 頁面 90/111 [**<**]({{site.baseurl}}/miles/transcript/page89) [1]({{site.baseurl}}/miles/transcript/index) ... [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) **90** [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page91)
+## 頁面 90/112 [**<**]({{site.baseurl}}/miles/transcript/page89) [1]({{site.baseurl}}/miles/transcript/index) ... [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) **90** [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page91)

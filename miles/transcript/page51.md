@@ -1,7 +1,29 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 51/111 [**<**]({{site.baseurl}}/miles/transcript/page50) [1]({{site.baseurl}}/miles/transcript/index) ... [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) **51** [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page52)
+## 頁面 51/112 [**<**]({{site.baseurl}}/miles/transcript/page50) [1]({{site.baseurl}}/miles/transcript/index) ... [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) **51** [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page52)
+
+[郭文贵2020年7月14日盖特 20200714_2美国和欧洲国家正在制定详细的行动计划，在西方世界清除欺民贼及过去几年．与共产党沟连打击爆料革命的所有人……都将受到严惩！西方国家．对共产党病毒的认识和即将带来的威胁，正在有]({{site.baseurl}}/miles/transcript/2020/07/20200714-1092407)
+
+[郭文贵2020年7月12日视频 20200712_2馬上直播]({{site.baseurl}}/miles/transcript/2020/07/20200712-1089944)
+
+[郭文贵2020年7月12日视频 20200712_3今天直播完以后，我继续健身，灭共的路上一定要强心健体永不放弃]({{site.baseurl}}/miles/transcript/2020/07/20200712-1089947)
+
+[郭文贵2020年7月12日直播 20200712美国领导的灭共盟军将在欧洲，及北约以及亚洲和南海东海香港领域．经济．领导人制栽等．全面开始灭共！]({{site.baseurl}}/miles/transcript/2020/07/20200712-1092359)
+
+[郭文贵2020年7月11日视频 20200711_1跟着郝海东先生和叶钊颖女士！学习健身1]({{site.baseurl}}/miles/transcript/2020/07/20200711-1089926)
+
+[郭文贵2020年7月11日视频 20200711_2跟着郝海东先生和叶钊颖女士！学习健身2]({{site.baseurl}}/miles/transcript/2020/07/20200711-1089928)
+
+[郭文贵2020年7月11日视频 20200711_3跟着郝海东先生和叶钊颖女士！学习健身3]({{site.baseurl}}/miles/transcript/2020/07/20200711-1089931)
+
+[郭文贵2020年7月11日视频 20200711_4同声传译班农战斗室特别节目：郭文贵先生和4位爆料革命战友参加讨论香港国安法]({{site.baseurl}}/miles/transcript/2020/07/20200711-1089939)
+
+[郭文贵2020年7月11日视频 20200711_5大日子大日子啊天大的日子啊兄弟姐妹们准备好酒吧]({{site.baseurl}}/miles/transcript/2020/07/20200711-1089941)
+
+[郭文贵2020年7月11日视频 20200711_6我终于明白了为什么在三个小时前我船的旁边突然间出现了彩虹️天佑中华儿女️天佑️新中国联邦]({{site.baseurl}}/miles/transcript/2020/07/20200711-1089943)
+
+[郭文贵2020年7月10日视频 20200710_1文贵先生再次参加班农战斗室节目片段（1）]({{site.baseurl}}/miles/transcript/2020/07/20200710-1089907)
 
 [郭文贵2020年7月10日视频 20200710_2文贵先生再次参加班农战斗室节目片段（2）]({{site.baseurl}}/miles/transcript/2020/07/20200710-1089909)
 
@@ -31,27 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2020年7月4日直播 20200704新中国联邦被西方政府认可吗？以及GTV投资．美国队中共有史以来最严厉的制裁意味着什么？爆料革命的下一步计划和行动]({{site.baseurl}}/miles/transcript/2020/07/20200704-1092200)
 
-[郭文贵2020年7月3日视频 20200703_1海航王健被殺害2周年]({{site.baseurl}}/miles/transcript/2020/07/20200703-1089897)
 
-[郭文贵2020年7月3日视频 20200703_2听听美国政府官员这一系列制裁和我们战友们在华盛顿抗议的一些观点以及背后的故事]({{site.baseurl}}/miles/transcript/2020/07/20200703-1089901)
-
-[郭文贵2020年7月2日直播 20200702华盛顿的历史性的美东战友们的抗议，以及接下来对中共惩罚的大锤如何落下！]({{site.baseurl}}/miles/transcript/2020/07/20200702-1092177)
-
-[郭文贵2020年6月30日视频 20200630_1]({{site.baseurl}}/miles/transcript/2020/06/20200630-1089891)
-
-[郭文贵2020年6月30日视频 20200630_2]({{site.baseurl}}/miles/transcript/2020/06/20200630-1089893)
-
-[郭文贵2020年6月28日视频 20200628_2]({{site.baseurl}}/miles/transcript/2020/06/20200628-1089887)
-
-[郭文贵2020年6月28日视频 20200628_3]({{site.baseurl}}/miles/transcript/2020/06/20200628-1089888)
-
-[郭文贵2020年6月28日视频 20200628_4]({{site.baseurl}}/miles/transcript/2020/06/20200628-1089890)
-
-[郭文贵2020年6月28日直播 20200628香港问责法案最后一分钟被大打折扣；成功营救郝海东之子：GTV投资进展；中共对付新中国联邦的烂招]({{site.baseurl}}/miles/transcript/2020/06/20200628-1092167)
-
-[郭文贵2020年6月25日直播 20200625_1杨洁篪来美国都说了什么？共产党最快三个月彻底灭亡！]({{site.baseurl}}/miles/transcript/2020/06/20200625-1092129)
-
-[郭文贵2020年6月25日直播 20200625_2夏威夷会面杨洁篪再次的威胁，美国和将华人都列为犯罪分子的背后故事]({{site.baseurl}}/miles/transcript/2020/06/20200625-1092221)
-
-
-## 頁面 51/111 [**<**]({{site.baseurl}}/miles/transcript/page50) [1]({{site.baseurl}}/miles/transcript/index) ... [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) **51** [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page52)
+## 頁面 51/112 [**<**]({{site.baseurl}}/miles/transcript/page50) [1]({{site.baseurl}}/miles/transcript/index) ... [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) **51** [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page52)

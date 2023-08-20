@@ -1,7 +1,29 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 73/111 [**<**]({{site.baseurl}}/miles/transcript/page72) [1]({{site.baseurl}}/miles/transcript/index) ... [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) **73** [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page74)
+## 頁面 73/112 [**<**]({{site.baseurl}}/miles/transcript/page72) [1]({{site.baseurl}}/miles/transcript/index) ... [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) **73** [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page74)
+
+[郭文贵2019年8月24日视频 20190824_1报平安，好消息不断]({{site.baseurl}}/miles/transcript/2019/08/20190824-1089431)
+
+[郭文贵2019年8月24日视频 20190824_2文贵怀孕了]({{site.baseurl}}/miles/transcript/2019/08/20190824-1089437)
+
+[郭文贵2019年8月23日第二次直播 20190823_2歐美這兩天將宣布1.對香港及共產黨高官個人進行制裁 2.取消香港關係法及其自由貿易區地位 3.歐美將有一系列對香港的保護措施及政策]({{site.baseurl}}/miles/transcript/2019/08/20190823-1093677)
+
+[郭文贵2019年8月23日第一次直播 20190823_1习近平和川普总统会互相宣布成为敌人吗？习近平为什么说川普不是我的朋友？]({{site.baseurl}}/miles/transcript/2019/08/20190823-1093687)
+
+[2019年8月23日文贵大直播全文字版：习近平和川普总统会互相宣布成为敌人吗？]({{site.baseurl}}/miles/transcript/2019/08/20190823-1098182)
+
+[郭文贵2019年8月20日视频 20190820王岐山的侄子搶奪盤古大關的 “斬龍刀”！和西方媒體面對的司法審判的改變！]({{site.baseurl}}/miles/transcript/2019/08/20190820-1093670)
+
+[2019年8月20日文贵大直播：王岐山的侄子抢夺盘古大观的「斩龙刀」]({{site.baseurl}}/miles/transcript/2019/08/20190820-1098186)
+
+[郭文贵2019年8月18日视频 20190818从‘818’的170万港人再上街 来看大湾区的吞港计划]({{site.baseurl}}/miles/transcript/2019/08/20190818-1093653)
+
+[郭文贵2019年8月17日视频 20190817_2回复有关今早直播后，大家发来的私信问题]({{site.baseurl}}/miles/transcript/2019/08/20190817-1089423)
+
+[郭文贵2019年8月17日 20190817（原声） 班农与文贵先生谈：香港危机 美国即将必须采取的行动]({{site.baseurl}}/miles/transcript/2019/08/20190817-1093591)
+
+[2019年8月17号文贵大直播全文字版：回复有关今早直播后，大家发来的私信问题……]({{site.baseurl}}/miles/transcript/2019/08/20190817-1098189)
 
 [郭文贵2019年8月16日视频 20190816尊敬的战友们好．你们传播香港危机的真相了吗？香港反送中运动．已经变成了国际集体反共的运动，战友们和香港同胞们一定要抓住机会，赢得这场前所未有的灭共战争，一切]({{site.baseurl}}/miles/transcript/2019/08/20190816-1093561)
 
@@ -31,27 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年8月10日视频 20190810Today is a good day, Miles proudly announcing from the "bed": our Exposé Revolution...]({{site.baseurl}}/miles/transcript/2019/08/20190810-1093494)
 
-[2019年8月10日《文贵大直播》全文字版：今天是个好日子，开启灭共第三战场]({{site.baseurl}}/miles/transcript/2019/08/20190810-1098158)
 
-[郭文贵2019年8月9日视频 20190809_2昨晚歐洲發生了大事]({{site.baseurl}}/miles/transcript/2019/08/20190809-1089408)
-
-[郭文贵2019年8月9日视频 20190809Miles Kwok live streaming from boat, letting everyone know that he is safe]({{site.baseurl}}/miles/transcript/2019/08/20190809-1093489)
-
-[2019年8月9日《郭文贵大直播》全文字版：船上报平安直播]({{site.baseurl}}/miles/transcript/2019/08/20190809-1098166)
-
-[郭文贵2019年8月8日视频 201908088th Aug Mr. Guo's broadcast: CCP's sophisticated plan to take over the world will...]({{site.baseurl}}/miles/transcript/2019/08/20190808-1093465)
-
-[2019年8月8日《文贵大直播》全文字版： 中共对世界布下的天罗地网，并不能阻止中共灭亡的步伐]({{site.baseurl}}/miles/transcript/2019/08/20190808-1098167)
-
-[郭文贵2019年8月7日视频 20190807王岐山和德国前副总理 菲利浦什么关系 PAG太盟投资与海航王岐山什么关系 为什么太盟投资和林郑月娥 菲利浦 陈峰 王岐山走在一起]({{site.baseurl}}/miles/transcript/2019/08/20190807-1093435)
-
-[2019年8月7日《文贵大直播》全文字版：王岐山和德国前副总理菲利普什么关系]({{site.baseurl}}/miles/transcript/2019/08/20190807-1098161)
-
-[2019年8月7日《文贵大直播》全文字版：王岐山和德国前副总理菲利普什么关系]({{site.baseurl}}/miles/transcript/2019/08/20190807-1098162)
-
-[郭文贵2019年8月6日 20190806美国将中共定位汇率操纵国的]({{site.baseurl}}/miles/transcript/2019/08/20190806-1093483)
-
-[2019年8月6日《文贵大直播》全文字版： 谈美国将中共定位汇率操纵国的意义]({{site.baseurl}}/miles/transcript/2019/08/20190806-1098169)
-
-
-## 頁面 73/111 [**<**]({{site.baseurl}}/miles/transcript/page72) [1]({{site.baseurl}}/miles/transcript/index) ... [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) **73** [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page74)
+## 頁面 73/112 [**<**]({{site.baseurl}}/miles/transcript/page72) [1]({{site.baseurl}}/miles/transcript/index) ... [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) **73** [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page74)

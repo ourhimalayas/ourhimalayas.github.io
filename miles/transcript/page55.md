@@ -1,7 +1,29 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 55/111 [**<**]({{site.baseurl}}/miles/transcript/page54) [1]({{site.baseurl}}/miles/transcript/index) ... [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) **55** [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page56)
+## 頁面 55/112 [**<**]({{site.baseurl}}/miles/transcript/page54) [1]({{site.baseurl}}/miles/transcript/index) ... [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) **55** [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page56)
+
+[郭文贵2020年5月10日连线老江等五人 20200510_2建立爆料革命受害者援助会．和保证灭共后的护卫力量，建立更强大的战友核心团队．建立喜马拉雅联储系统]({{site.baseurl}}/miles/transcript/2020/05/20200510-1092423)
+
+[郭文贵2020年5月9日连线草根小哥 20200509_2]({{site.baseurl}}/miles/transcript/2020/05/20200509-1092070)
+
+[郭文贵2020年5月9日连线魔女Peace 20200509_1]({{site.baseurl}}/miles/transcript/2020/05/20200509-1092098)
+
+[郭文贵2020年5月8日连线战友文信 20200508_2]({{site.baseurl}}/miles/transcript/2020/05/20200508-1092054)
+
+[郭文贵2020年5月8日连线挺郭小妹 20200508_1]({{site.baseurl}}/miles/transcript/2020/05/20200508-1092089)
+
+[郭文贵2020年5月7日gtv视频 20200507_2GTV简短录播：下午9:21分，刚刚结束的重要会议，将是一个关键的一天，关键的灭共的一天...]({{site.baseurl}}/miles/transcript/2020/05/20200507-1089006)
+
+[郭文贵2020年5月7日连线面具先生 20200507爆料“郭七条”还没改“不反习”的原因，因为中南坑做出让步..]({{site.baseurl}}/miles/transcript/2020/05/20200507-1092045)
+
+[郭文贵2020年5月6日gtv视频 20200506_2GTV直播：Trump总统今天对CCP病毒的看法和定义，这是我所希望看到的，我相信这是来自爆料革命！]({{site.baseurl}}/miles/transcript/2020/05/20200506-1088997)
+
+[郭文贵2020年5月6日连线Twins 20200506]({{site.baseurl}}/miles/transcript/2020/05/20200506-1092031)
+
+[郭文贵2020年5月5日视频 20200505]({{site.baseurl}}/miles/transcript/2020/05/20200505-1092015)
+
+[郭文贵2020年5月4日视频 20200504共产党完蛋前的疯狂……及爆料革命必须扮演的角色……让中国人财富和子孙安全的雅典娜计划]({{site.baseurl}}/miles/transcript/2020/05/20200504-1092007)
 
 [郭文贵2020年5月3日视频 20200503_1GTV简短录播。CCTV疯了..]({{site.baseurl}}/miles/transcript/2020/05/20200503-1089003)
 
@@ -31,27 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2020年4月22日视频 20200422]({{site.baseurl}}/miles/transcript/2020/04/20200422-1091930)
 
-[郭文贵2020年4月21日视频 20200421_1简短录播]({{site.baseurl}}/miles/transcript/2020/04/20200421-1089829)
 
-[郭文贵2020年4月19日视频 20200419_2剛直播完跟女兒聚餐]({{site.baseurl}}/miles/transcript/2020/04/20200419-1089825)
-
-[郭文贵2020年4月19日视频 20200419三周年直播回顾]({{site.baseurl}}/miles/transcript/2020/04/20200419-1091916)
-
-[郭文贵2020年4月18日视频 20200418_2War Room郭文贵先生接受班农先生采访： 中共会在美投毒 美国疫情会比上个月还要严重]({{site.baseurl}}/miles/transcript/2020/04/20200418-1089002)
-
-[郭文贵2020年4月18日视频 20200418和班农先生连线后GTV直播]({{site.baseurl}}/miles/transcript/2020/04/20200418-1091900)
-
-[郭文贵2020年4月17日视频 20200417_1文贵先生喝咖啡直播]({{site.baseurl}}/miles/transcript/2020/04/20200417-1089828)
-
-[郭文贵2020年4月16日视频 20200416_1法制基金法制社会正在纽约曼哈顿冒着生命危险在给医院和前线捐送急救物资！]({{site.baseurl}}/miles/transcript/2020/04/20200416-1089824)
-
-[郭文贵2020年4月15日视频 20200415_2]({{site.baseurl}}/miles/transcript/2020/04/20200415-1089817)
-
-[郭文贵2020年4月15日视频 20200415_3請香港朋友向法治基金提供港警迫害的證據]({{site.baseurl}}/miles/transcript/2020/04/20200415-1089833)
-
-[郭文贵2020年4月15日视频 20200415]({{site.baseurl}}/miles/transcript/2020/04/20200415-1091897)
-
-[郭文贵2020年4月14日视频 20200414_2过去的24小时华盛顿、欧洲、日本、俄罗斯全面开始了依法灭共、全球自动灭共的新的时代]({{site.baseurl}}/miles/transcript/2020/04/20200414-1089815)
-
-
-## 頁面 55/111 [**<**]({{site.baseurl}}/miles/transcript/page54) [1]({{site.baseurl}}/miles/transcript/index) ... [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) **55** [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page56)
+## 頁面 55/112 [**<**]({{site.baseurl}}/miles/transcript/page54) [1]({{site.baseurl}}/miles/transcript/index) ... [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) **55** [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page56)

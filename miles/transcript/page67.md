@@ -1,7 +1,29 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 67/111 [**<**]({{site.baseurl}}/miles/transcript/page66) [1]({{site.baseurl}}/miles/transcript/index) ... [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) **67** [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page68)
+## 頁面 67/112 [**<**]({{site.baseurl}}/miles/transcript/page66) [1]({{site.baseurl}}/miles/transcript/index) ... [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) **67** [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page68)
+
+[郭文贵2019年10月27日视频 20191027_2此时此刻的纽约．正在下着毛毛雨．和临近秋天的中央公园．以及最现代化的摩天大楼．相应成画．浪漫至极]({{site.baseurl}}/miles/transcript/2019/10/20191027-1089606)
+
+[郭文贵2019年10月27日视频 20191027试直播与战友闲聊]({{site.baseurl}}/miles/transcript/2019/10/20191027-1093787)
+
+[2019年10月26日文贵大直播全文版：十九大篡朝较量中错综复杂的关系 中南坑风暴一直在酝酿着]({{site.baseurl}}/miles/transcript/2019/10/20191026-1087429)
+
+[郭文贵2019年10月26日视频 20191026_2【Joe庄随手拍】郭文贵先生爆料：十九大篡朝较量中错综复杂的关系 中南坑风暴一直在酝酿着]({{site.baseurl}}/miles/transcript/2019/10/20191026-1089605)
+
+[郭文贵2019年10月26日 20191026文贵和战友谈北京局势和四中]({{site.baseurl}}/miles/transcript/2019/10/20191026-1093774)
+
+[2019年10月25日郭文贵先生第二次直播--谈中国同胞39名惨死偷渡英国途中，解读彭斯演讲，四中全会党内将人头滚滚 全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191025-1071962)
+
+[2019年10月25日文贵大直播全文字版：再谈直播彭斯副总统演讲的重大意义]({{site.baseurl}}/miles/transcript/2019/10/20191025-1087428)
+
+[郭文贵2019年10月25日第二次直播 20191025_2直播谈中国同胞39名惨死偷渡英国途中，文贵先生解读彭斯演讲，四中全会党内将人头滚滚]({{site.baseurl}}/miles/transcript/2019/10/20191025-1093761)
+
+[郭文贵2019年10月25日第一次直播 20191025_1跟路德再谈直播彭斯副总统演讲的重大意义]({{site.baseurl}}/miles/transcript/2019/10/20191025-1093770)
+
+[2019年10月24日文贵大直播全文字版：谈彭斯副总统演讲]({{site.baseurl}}/miles/transcript/2019/10/20191024-1087427)
+
+[郭文贵2019年10月24日 20191024谈彭斯副总统演讲]({{site.baseurl}}/miles/transcript/2019/10/20191024-1093743)
 
 [2019年10月23日 郭文贵先生直播：中共将低头认错秋后算账解决香港问题弱化彭斯副总统演讲，灭共是赚大钱的生意！王岐山危险了！全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191023-1087424)
 
@@ -31,27 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年10月18日 20191018美国引领全球反共，港人宁死不屈，是反共先锋！]({{site.baseurl}}/miles/transcript/2019/10/20191018-1093703)
 
-[郭文贵2019年10月17日视频 20191017_1岑子杰被害背後的真相已逐漸浮出水面 我們一定要追究 我今天整天參加秘密聽證會 不能直播]({{site.baseurl}}/miles/transcript/2019/10/20191017-1089583)
 
-[2019年10月16日、17日郭文贵先生直播视频 共产党利用黑社会杀手手段 残害香港议员岑子杰先生以及被害真相浮出水面（合集）全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191016-1087415)
-
-[郭文贵2019年10月16日视频 20191016_1共产党利用黑社会杀手手段 残害香港议员岑子杰先生]({{site.baseurl}}/miles/transcript/2019/10/20191016-1089581)
-
-[2019年10月15日文贵先生大直播全文字版：船上直播，天主教徒、基督教徒是香港的主力！别天真！远离伪民运！郭先生被共产党抢劫500亿现金！是中美贸易500亿的净利润的至少10倍！]({{site.baseurl}}/miles/transcript/2019/10/20191015-1087422)
-
-[郭文贵2019年10月15日视频 20191015_2香港人權民主法案在美國眾議院已經通過的意義和給我們的啟迪！可敬可爱的香港人，用行动证明给我们．口炮．恐惧都是死路一条．只有抗争才能得到自己想要的！]({{site.baseurl}}/miles/transcript/2019/10/20191015-1089579)
-
-[郭文贵2019年10月15日 20191015天主教徒、基督教徒是香港的主力！别天真！远离伪民运！郭先生被共产党抢劫500亿现金！是中美贸易500亿的净利润的至少10倍！]({{site.baseurl}}/miles/transcript/2019/10/20191015-1093843)
-
-[2019年10月14日 郭文贵先生游艇机舱报平安直播 全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191014-1087413)
-
-[郭文贵2019年10月14日视频 20191014_2直播吃鸭腿 游艇机舱报平安直播28分钟高清版]({{site.baseurl}}/miles/transcript/2019/10/20191014-1088556)
-
-[郭文贵2019年10月14日视频 20191014游艇机舱报平安直播45分钟版]({{site.baseurl}}/miles/transcript/2019/10/20191014-1094178)
-
-[郭文贵2019年10月13日视频 20191013传播香港真相，反对暴力，中共启动大量沉默力量挑拨离间战友, 美国将严加製裁， 只有灭掉共产党人类才有未来]({{site.baseurl}}/miles/transcript/2019/10/20191013-1093836)
-
-[2019年10月13日文贵大直播全文字版：报平安直播，传播香港真相，反对暴力，中共启动大量沉默力量挑拨离间战友, 美国将严加製裁， 只有灭掉共产党人类才有未来]({{site.baseurl}}/miles/transcript/2019/10/20191013-1098251)
-
-
-## 頁面 67/111 [**<**]({{site.baseurl}}/miles/transcript/page66) [1]({{site.baseurl}}/miles/transcript/index) ... [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) **67** [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page68)
+## 頁面 67/112 [**<**]({{site.baseurl}}/miles/transcript/page66) [1]({{site.baseurl}}/miles/transcript/index) ... [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) **67** [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page68)

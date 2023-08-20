@@ -1,7 +1,29 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 100/111 [**<**]({{site.baseurl}}/miles/transcript/page99) [1]({{site.baseurl}}/miles/transcript/index) ... [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) **100** [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page101)
+## 頁面 100/112 [**<**]({{site.baseurl}}/miles/transcript/page99) [1]({{site.baseurl}}/miles/transcript/index) ... [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) **100** [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page101)
+
+[郭文贵2018年3月20日第二次直播 20180320_2谈盗国贼靠吴征能依法治国实现中国梦吗]({{site.baseurl}}/miles/transcript/2018/03/20180320-1092374)
+
+[郭文贵2018年3月18日视频 20180318再谈如何掏肛盗国贼]({{site.baseurl}}/miles/transcript/2018/03/20180318-1092319)
+
+[郭文贵2018年3月17日视频 20180317谈王岐山当选副主席郭七条不变，喜马拉雅法治中国目标不变]({{site.baseurl}}/miles/transcript/2018/03/20180317-1092463)
+
+[郭文贵2018年3月16日第二次直播 20180316_2推特拉黑了谁？如何用智慧铲灭盗国贼！]({{site.baseurl}}/miles/transcript/2018/03/20180316-1094202)
+
+[郭文贵2018年3月16日第一次直播 20180316_1如何感恩．并享受．砸郭运动！王岐山到底是总理还是监察委主任．副主席？一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/03/20180316-1094207)
+
+[郭文贵2018年3月15日视频 20180315_2竞然将不喜欢的房子自己给拆了……这样的真实意思表示方式我喜欢！这可能就是俗话说的．狗模人样吧！]({{site.baseurl}}/miles/transcript/2018/03/20180315-1087874)
+
+[郭文贵2018年3月15日视频 20180315谈天真就是无知吗无私追求就是愚蠢吗以及陈军为什么害文贵]({{site.baseurl}}/miles/transcript/2018/03/20180315-1092450)
+
+[郭文贵2018年3月14日视频 20180314_1再对五一共振新看法,坚决反对用援郭会名义参与]({{site.baseurl}}/miles/transcript/2018/03/20180314-1092331)
+
+[郭文贵2018年3月14日视频第二部分 20180314_2谈明镜陈军和胡频事件以及将采取的有关行动和五一共振可能会造成的后果]({{site.baseurl}}/miles/transcript/2018/03/20180314-1092416)
+
+[郭文贵2018年3月13日直播 20180313_1上天赐予的又一个巨大的礼物 —美国新国务卿！对盗国贼将是巨大打击]({{site.baseurl}}/miles/transcript/2018/03/20180313-1087843)
+
+[郭文贵2018年3月13日直播 20180313_2陈军拥有多少明镜股份？身为民运大佬，又被边控，为什么他可以随时进出中国？]({{site.baseurl}}/miles/transcript/2018/03/20180313-1087856)
 
 [郭文贵2018年3月13日直播 20180313_3明镜的股权用什么可以证明和陈军有关系！]({{site.baseurl}}/miles/transcript/2018/03/20180313-1087868)
 
@@ -31,27 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2018年3月4日第一次直播 20180304_1这是3月4日录制的第二个视频！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/03/20180304-1091813)
 
-[郭文贵2018年3月4日报平安视频 20180304_3文贵呼吁所有的援郭的战友们以家庭安全．正常生活为重……全球一致行动！]({{site.baseurl}}/miles/transcript/2018/03/20180304-1091883)
 
-[郭文贵2018年3月3日视频 20180303出其不意 ,会师挺郭后援会成员! 场面感人!!!]({{site.baseurl}}/miles/transcript/2018/03/20180303-1087870)
-
-[郭文贵2018年3月2日直播 20180302_1尊敬的战友们好：文贵从元宵节太太喝醉．谈谈，轮回报应．同时再谈谈盗国贼的未来……我衷心祝福援郭会的兄弟姐妹，今天的全球联合大游行战友们平平安安！顺顺利利！????????????????????????]({{site.baseurl}}/miles/transcript/2018/03/20180302-1087805)
-
-[郭文贵2018年3月1日直播 20180301_1尊敬的战友们好：你们健身了吗！未来的20天．北京可能还要出更大的事儿（一位陈．．是????????????一切都是刚刚开始！ Via：郭媒体]({{site.baseurl}}/miles/transcript/2018/03/20180301-1087795)
-
-[郭文贵2018年2月28日直播 20180228_1盗国贼新的又一个新阶段猛烈的攻击来了……继续要断文贵的财路，继续发动超限战！因为现在盗国贼就要灭亡！这是他们灭亡前的猖狂！一切]({{site.baseurl}}/miles/transcript/2018/02/20180228-1087790)
-
-[郭文贵2018年2月26日直播 20180226_5晚餐时有人恭祝我赢了]({{site.baseurl}}/miles/transcript/2018/02/20180226-1087669)
-
-[郭文贵2018年2月26日直播 20180226_1我的律师团队强烈建议我从今天起开始闭嘴两个月……等待下一个革命事件的发生……他们今天一直问我为什么你有这样的生活．却还在冒这个危险？我的回答是]({{site.baseurl}}/miles/transcript/2018/02/20180226-1087764)
-
-[郭文贵2018年2月26日直播 20180226_2我早已经看透了物质美好生活的本质！但我曾重珍惜感恩着我拥有的一切！可我心里时时刻刻都在想着盗国贼．偷我们的女人．钱．未来的一个个我经历的事情！]({{site.baseurl}}/miles/transcript/2018/02/20180226-1087774)
-
-[郭文贵2018年2月26日直播 20180226_3既然14亿人无男儿！那就寄托花木兰吧！???????????? Via：郭媒体]({{site.baseurl}}/miles/transcript/2018/02/20180226-1087780)
-
-[郭文贵2018年2月26日直播 20180226_4郭文贵02月26日 再不中．俺就请出穆桂英！！???????????????????????????????????? Via：郭媒体]({{site.baseurl}}/miles/transcript/2018/02/20180226-1087785)
-
-[郭文贵2018年2月25日直播 20180225_1郭文贵先生的船过总统桥小视频]({{site.baseurl}}/miles/transcript/2018/02/20180225-1087757)
-
-
-## 頁面 100/111 [**<**]({{site.baseurl}}/miles/transcript/page99) [1]({{site.baseurl}}/miles/transcript/index) ... [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) **100** [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page101)
+## 頁面 100/112 [**<**]({{site.baseurl}}/miles/transcript/page99) [1]({{site.baseurl}}/miles/transcript/index) ... [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) **100** [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page101)

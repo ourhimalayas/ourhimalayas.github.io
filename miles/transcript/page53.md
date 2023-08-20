@@ -1,7 +1,29 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 53/111 [**<**]({{site.baseurl}}/miles/transcript/page52) [1]({{site.baseurl}}/miles/transcript/index) ... [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) **53** [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page54)
+## 頁面 53/112 [**<**]({{site.baseurl}}/miles/transcript/page52) [1]({{site.baseurl}}/miles/transcript/index) ... [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) **53** [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page54)
+
+[郭文贵2020年6月16日直播 20200616回答战友们关于G币，GTV投资诉讼的问题；请大家注意挑拨离间的CCP特务；夏威夷将是中共的噩梦]({{site.baseurl}}/miles/transcript/2020/06/20200616-1094197)
+
+[郭文贵2020年6月15日视频 20200615_6七哥耍球棒]({{site.baseurl}}/miles/transcript/2020/06/20200615-1089836)
+
+[郭文贵2020年6月15日视频 20200615_7今天不直播]({{site.baseurl}}/miles/transcript/2020/06/20200615-1089839)
+
+[郭文贵2020年6月15日视频 20200615_3请应聘新中国联邦职务的战友们务必详细的提供你的个人信息和个人需求]({{site.baseurl}}/miles/transcript/2020/06/20200615-1089875)
+
+[郭文贵2020年6月15日视频 20200615_4文贵衷心地向战友们就昨天错误的发出新中国联邦部长及副总理招聘广告衷心地向你们道歉️文贵将在视频中骑狗惩罚自己]({{site.baseurl}}/miles/transcript/2020/06/20200615-1089898)
+
+[郭文贵2020年6月15日视频 20200615_5很多人打电话问我关于VOA炒掉VOACEO阿曼达和很多人要采访我对此事的看法我没有兴趣接受任何人的采访我只在这里谈谈我个人的粗浅的看法]({{site.baseurl}}/miles/transcript/2020/06/20200615-1089900)
+
+[郭文贵2020年6月15日第一次直播 20200615_1關於戰友們投資GTV被非法退款、非法被剝奪投資利益、这将是一场法律行动的维权]({{site.baseurl}}/miles/transcript/2020/06/20200615-1094168)
+
+[郭文贵2020年6月15日第二次直播 20200615_2文贵跟战友们聊聊VOA阿曼达离职，杨洁篪密会蓬佩奥与三峡大坝]({{site.baseurl}}/miles/transcript/2020/06/20200615-1094190)
+
+[郭文贵2020年6月13日连线江财神 20200613畅谈喜马拉雅农场和新中国联邦未来]({{site.baseurl}}/miles/transcript/2020/06/20200613-1094251)
+
+[郭文贵2020年6月10日 20200610关于G币GTV投资者被澳大利亚等银行非法强迫退款的各种事宜]({{site.baseurl}}/miles/transcript/2020/06/20200610-1092566)
+
+[郭文贵2020年6月9日视频 20200609_3新中国联邦庆典-Lady May 胜利归航全记录]({{site.baseurl}}/miles/transcript/2020/06/20200609-1089033)
 
 [郭文贵2020年6月9日 20200609_2新中国联邦的护照什么时候可以获得？及新中国联邦接下来的几个重要工作重点？]({{site.baseurl}}/miles/transcript/2020/06/20200609-1092363)
 
@@ -31,27 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2020年5月30日第一次直播 20200530_1]({{site.baseurl}}/miles/transcript/2020/05/20200530-1092571)
 
-[郭文贵2020年5月30日第二次直播 20200530_2请所有的战友高度关注6月2号中午和6月3号晚上和6月4号上午．三次重大直播，请准备好美食美酒！]({{site.baseurl}}/miles/transcript/2020/05/20200530-1093019)
 
-[郭文贵2020年5月29日视频 20200529留美的学生和华人同胞们请务必看今天文贵的视频]({{site.baseurl}}/miles/transcript/2020/05/20200529-1092537)
-
-[郭文贵2020年5月27日视频 20200527_3所有被指定为个地区国家与战友们的联系负责人都不允许收集和查看任何战友的私人信息和投资相关的任何资料]({{site.baseurl}}/miles/transcript/2020/05/20200527-1089862)
-
-[郭文贵2020年5月27日视频 20200527_4文贵拜请所有有良知的华人同胞们，香港同胞们．去到美国国务卿彭佩奥先生推特下面．发信息．留言．对他表示感谢！我们要坚持密集的……全24小时不停止的对他表示感激！他是我们的英雄！]({{site.baseurl}}/miles/transcript/2020/05/20200527-1089864)
-
-[郭文贵2020年5月27日视频 20200527_5文贵又在海上耍浪了]({{site.baseurl}}/miles/transcript/2020/05/20200527-1089868)
-
-[郭文贵2020年5月27日视频 20200527_1呼吁所有购买G币的和投资．受到任何银行威胁和取消交易的战友们联合起来，诉讼相关银行和stripe支付平台]({{site.baseurl}}/miles/transcript/2020/05/20200527-1092048)
-
-[郭文贵2020年5月27日视频 20200527_2文贵看到很多传播美国取消香港自贸区地位的社交信息，但是却没有人提的爆料革命，这对爆料革命的战友都是不公平的]({{site.baseurl}}/miles/transcript/2020/05/20200527-1092368)
-
-[郭文贵2020年5月25日视频 20200525_1同一天的第一次直播.。如何面对共产党将以一国之力要破坏我们的六四建国宣言！]({{site.baseurl}}/miles/transcript/2020/05/20200525-1089000)
-
-[郭文贵2020年5月25日视频 20200525_2共产党对战友们涌跃的投资的恐惧????用威胁其他国银行不配合投资付款！]({{site.baseurl}}/miles/transcript/2020/05/20200525-1092059)
-
-[郭文贵2020年5月25日视频 20200525_3如何解决共产党对我们投资的封杀．请战友们准备好六四宣言，讲遇到的挑战和挫折。]({{site.baseurl}}/miles/transcript/2020/05/20200525-1092378)
-
-[郭文贵2020年5月23日视频 20200523_4在班农War Room对美国的呐喊]({{site.baseurl}}/miles/transcript/2020/05/20200523-1089009)
-
-
-## 頁面 53/111 [**<**]({{site.baseurl}}/miles/transcript/page52) [1]({{site.baseurl}}/miles/transcript/index) ... [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) **53** [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page54)
+## 頁面 53/112 [**<**]({{site.baseurl}}/miles/transcript/page52) [1]({{site.baseurl}}/miles/transcript/index) ... [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) **53** [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page54)

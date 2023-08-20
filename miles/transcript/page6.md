@@ -1,7 +1,29 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 6/111 [**<**]({{site.baseurl}}/miles/transcript/page5) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) **6** [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page7)
+## 頁面 6/112 [**<**]({{site.baseurl}}/miles/transcript/page5) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) **6** [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page7)
+
+[郭文贵2022年5月10日盖特 20220510_2]({{site.baseurl}}/miles/transcript/2022/05/20220510-1091740)
+
+[郭文贵2022年5月10日直播 20220510_1七哥生日与战友们在线聊天]({{site.baseurl}}/miles/transcript/2022/05/20220510-1091863)
+
+[郭文贵2022年5月8日直播 20220508_1母亲节谈中国母亲；疫苗灾难何去何从]({{site.baseurl}}/miles/transcript/2022/05/20220508-1091800)
+
+[郭文贵2022年5月7日直播 20220507_1]({{site.baseurl}}/miles/transcript/2022/05/20220507-1091699)
+
+[郭文贵2022年5月6日直播 20220506_1如何应对世界经济危机；俄乌战争对我们的影响]({{site.baseurl}}/miles/transcript/2022/05/20220506-1091691)
+
+[郭文贵2022年5月5日盖特 20220505_1尊敬的战友们好，今天没有直播，明天上午9:00开始大直播，非常的抱歉……很多战友向我咨询．关于昨天．美国股市的变化的看法，我在这里以个人的观点和大家分享一下！]({{site.baseurl}}/miles/transcript/2022/05/20220505-1091737)
+
+[郭文贵2022年5月4日盖特 20220504_1尊敬的战友们好……这一次病毒阳性增长，一定要小心，这是疫苗灾难的开始……]({{site.baseurl}}/miles/transcript/2022/05/20220504-1091734)
+
+[郭文贵2022年5月3日直播 20220503_1谈谈老照片，普京手术， 民生问题]({{site.baseurl}}/miles/transcript/2022/05/20220503-1091613)
+
+[郭文贵2022年5月2日直播 20220502_1七哥乱聊]({{site.baseurl}}/miles/transcript/2022/05/20220502-1091528)
+
+[郭文贵2022年5月1日直播 20220501_1俄乌战争台海局势；中共经济爆雷现状；疫苗灾难危及人类；世界经济面临崩塌]({{site.baseurl}}/miles/transcript/2022/05/20220501-1091523)
+
+[郭文贵2022年4月30日盖特 20220430_2尊敬的战友们好……世界的经济已经走向崩塌，崩溃已经开始！]({{site.baseurl}}/miles/transcript/2022/04/20220430-1091723)
 
 [郭文贵2022年4月29日直播 20220429_1认可分布式记账喜币大机遇；从纳粹大屠杀看中共大屠杀；法国大选结果分析欧洲未来]({{site.baseurl}}/miles/transcript/2022/04/20220429-1091452)
 
@@ -31,27 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2022年4月19日直播 20220419_1419五周年专场,霹雳一声断播门,文贵爆料惊鬼神,五载星火燎原势,喜马拉雅再昆仑]({{site.baseurl}}/miles/transcript/2022/04/20220419-1091232)
 
-[郭文贵2022年4月18日盖特 20220418_1尊敬的战友们好，刚才的视频没有讲完．最后一个重点是．刚刚收到信息．上海会马上解封！]({{site.baseurl}}/miles/transcript/2022/04/20220418-1091692)
 
-[郭文贵2022年4月17日直播 20220417_1七哥来啦]({{site.baseurl}}/miles/transcript/2022/04/20220417-1090964)
-
-[郭文贵2022年4月17日盖特 20220417_2尊敬的战友们好……下周二．4月19号，我们将有一整天的纪念419．5周年的大直播，一切都已经开始！]({{site.baseurl}}/miles/transcript/2022/04/20220417-1091688)
-
-[郭文贵2022年4月16日直播 20220416_17哥乱聊直播]({{site.baseurl}}/miles/transcript/2022/04/20220416-1090941)
-
-[郭文贵2022年4月15日直播 20220415_1文贵乱聊直播]({{site.baseurl}}/miles/transcript/2022/04/20220415-1090928)
-
-[郭文贵2022年4月14日直播 20220414_1七哥乱聊直播第一段]({{site.baseurl}}/miles/transcript/2022/04/20220414-1090887)
-
-[郭文贵2022年4月14日直播 20220414_2七哥乱聊直播第二段]({{site.baseurl}}/miles/transcript/2022/04/20220414-1090896)
-
-[郭文贵2022年4月14日直播 20220414_3七哥乱聊直播第三段]({{site.baseurl}}/miles/transcript/2022/04/20220414-1090914)
-
-[郭文贵2022年4月13日盖特 20220413_1尊敬的战友们好，俄乌战争……给中国人民……和世界人民．带来了千载难逢的机会，消灭马克思主义……彻底的消灭社会主义的伟大机会！]({{site.baseurl}}/miles/transcript/2022/04/20220413-1091680)
-
-[郭文贵2022年4月13日盖特 20220413_2尊敬的战友们好．收到了很多战友的信息．无法全部回复……非常的抱歉????????????????????????????????????????明天上午我会抽时间直播半小时左右，一切都已经开始！]({{site.baseurl}}/miles/transcript/2022/04/20220413-1091683)
-
-[郭文贵2022年4月12日盖特 20220412_1尊敬的战友们好，今天是新中国联邦……开天辟地的．重要的一天！]({{site.baseurl}}/miles/transcript/2022/04/20220412-1091678)
-
-
-## 頁面 6/111 [**<**]({{site.baseurl}}/miles/transcript/page5) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) **6** [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page7)
+## 頁面 6/112 [**<**]({{site.baseurl}}/miles/transcript/page5) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) **6** [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page7)

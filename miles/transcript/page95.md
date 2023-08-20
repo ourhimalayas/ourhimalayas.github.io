@@ -1,7 +1,29 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 95/111 [**<**]({{site.baseurl}}/miles/transcript/page94) [1]({{site.baseurl}}/miles/transcript/index) ... [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) **95** [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page96)
+## 頁面 95/112 [**<**]({{site.baseurl}}/miles/transcript/page94) [1]({{site.baseurl}}/miles/transcript/index) ... [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) **95** [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page96)
+
+[郭文贵2018年8月8日直播 20180808_7我将拉黑任何一个挑战喜马拉雅打击盗国贼的推号开足马力全力以赴投入全部精力物力推进爆料革命]({{site.baseurl}}/miles/transcript/2018/08/20180808-1088648)
+
+[郭文贵2018年8月7日视频 20180807_3今天太有成就感了，喝茅台吃羊排奖励自己！]({{site.baseurl}}/miles/transcript/2018/08/20180807-1087742)
+
+[郭文贵2018年8月7日直播 20180807_2今天太有成就感了 馬上要喝點酒]({{site.baseurl}}/miles/transcript/2018/08/20180807-1088616)
+
+[郭文贵2018年8月7日视频 20180807王健被杀死前曾接触过其他国家情报部门．并通过香港中间人与文贵有联系！]({{site.baseurl}}/miles/transcript/2018/08/20180807-1092977)
+
+[郭文贵2018年8月6日直播 20180806_2晚餐朋友的家的入口都这么大！隔壁邻居却是一个中国某政治局委员情人的家！天理何在呀！]({{site.baseurl}}/miles/transcript/2018/08/20180806-1088615)
+
+[郭文贵2018年8月6日视频 20180806文贵致王健夫人及兄王伟先生的提示！法国这个与王健一起最后晚餐的女人！]({{site.baseurl}}/miles/transcript/2018/08/20180806-1092962)
+
+[郭文贵2018年8月5日直播 20180805_2早上大爆料後去划船 划船回来了 试试直播聊聊天 再談王健之死]({{site.baseurl}}/miles/transcript/2018/08/20180805-1088611)
+
+[郭文贵2018年8月5日视频 20180805王健被杀的过程和涉及的人]({{site.baseurl}}/miles/transcript/2018/08/20180805-1092958)
+
+[郭文贵2018年8月4日视频 20180804出发去会晤一位刚与王岐山见过面的重要朋友，感叹水上美景]({{site.baseurl}}/miles/transcript/2018/08/20180804-1087736)
+
+[郭文贵2018年7月30日视频 20180730拍纽约雨景，从阳台上看到邓文迪的家]({{site.baseurl}}/miles/transcript/2018/07/20180730-1087731)
+
+[郭文贵2018年7月28日直播 20180728_1应战友们的要求看snow！我录一段视频给尊敬的战友们！请允许我代表sonw向大家表示衷心感谢！]({{site.baseurl}}/miles/transcript/2018/07/20180728-1088575)
 
 [郭文贵2018年7月22日视频第二部分 20180722_2关于中南海保镖爆料文贵的看法！证明了中南坑，以及他们的军队不堪一击！整个国家就是被一帮骗子绑架了的残酷事实！]({{site.baseurl}}/miles/transcript/2018/07/20180722-1092909)
 
@@ -31,27 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2018年7月6日视频 20180706王健不是正常死亡！真相既将大白于天下！很可能是王歧山干的！]({{site.baseurl}}/miles/transcript/2018/07/20180706-1092892)
 
-[郭文贵2018年7月4日直播 20180704_1郭文贵先生在群里对王健突然丧命的评价]({{site.baseurl}}/miles/transcript/2018/07/20180704-1088543)
 
-[郭文贵2018年7月2日直播 20180702_2路德访谈约翰小哥時文貴之講話]({{site.baseurl}}/miles/transcript/2018/07/20180702-1088538)
-
-[郭文贵2018年6月30日直播 20180630_1谈郭宝胜的诈骗与对寒梅的起诉]({{site.baseurl}}/miles/transcript/2018/06/20180630-1088520)
-
-[郭文贵2018年6月30日直播 20180630_2谈中国股市与经济！]({{site.baseurl}}/miles/transcript/2018/06/20180630-1088532)
-
-[郭文贵2018年6月29日直播 20180629_1谈刘刚与屎诺．王岐山与错功胜为什么救海航！]({{site.baseurl}}/miles/transcript/2018/06/20180629-1088492)
-
-[郭文贵2018年6月28日直播 20180628_1]({{site.baseurl}}/miles/transcript/2018/06/20180628-1088477)
-
-[郭文贵2018年6月27日视频 20180627_4在船上远眺曼哈顿]({{site.baseurl}}/miles/transcript/2018/06/20180627-1087720)
-
-[郭文贵2018年6月27日直播 20180627_2一边抽雪茄一边直播（第一段）]({{site.baseurl}}/miles/transcript/2018/06/20180627-1088463)
-
-[郭文贵2018年6月27日直播 20180627_3一边抽雪茄一边直播（第二段）]({{site.baseurl}}/miles/transcript/2018/06/20180627-1088472)
-
-[郭文贵2018年6月27日视频 20180627]({{site.baseurl}}/miles/transcript/2018/06/20180627-1094345)
-
-[郭文贵2018年6月25日 20180625房峰辉为什么问蒂斯这个？一个美国战亡士兵价值值中扺国一个连退休士命的命钱！]({{site.baseurl}}/miles/transcript/2018/06/20180625-1094330)
-
-
-## 頁面 95/111 [**<**]({{site.baseurl}}/miles/transcript/page94) [1]({{site.baseurl}}/miles/transcript/index) ... [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) **95** [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page96)
+## 頁面 95/112 [**<**]({{site.baseurl}}/miles/transcript/page94) [1]({{site.baseurl}}/miles/transcript/index) ... [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) **95** [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page96)

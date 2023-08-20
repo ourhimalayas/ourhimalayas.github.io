@@ -1,7 +1,29 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 48/111 [**<**]({{site.baseurl}}/miles/transcript/page47) [1]({{site.baseurl}}/miles/transcript/index) ... [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) **48** [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page49)
+## 頁面 48/112 [**<**]({{site.baseurl}}/miles/transcript/page47) [1]({{site.baseurl}}/miles/transcript/index) ... [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) **48** [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page49)
+
+[郭文贵2020年8月25日盖特 20200825_28月25号 尊敬的战友们好．请大家的焦点定在中共在美国实施的法律超限战。……，的事情，请大家关注华尔街日报，以及美国司法部，披露的中共在]({{site.baseurl}}/miles/transcript/2020/08/20200825-1092690)
+
+[郭文贵2020年8月25日直播 20200825加拿大农场的战略性胜利堪比中途岛战役；司法部文件开启以法灭共；美国民主党不承认“一中”]({{site.baseurl}}/miles/transcript/2020/08/20200825-1092829)
+
+[郭文贵2020年8月23日直播 20200823_1大家记住一定要今天文贵信的内容；中共制造经济危机，人道危机，人类面临大劫难；美国与中共脱钩为时已晚]({{site.baseurl}}/miles/transcript/2020/08/20200823-1092604)
+
+[郭文贵2020年8月23日盖特 20200823_28月23日，尊敬的战友们好，你们健身了吗？你们传播C C P病毒香港危机真相了吗？一切都已经开始了！]({{site.baseurl}}/miles/transcript/2020/08/20200823-1092618)
+
+[郭文贵2020年8月22日连线木兰 20200822_1木兰与七哥试直播]({{site.baseurl}}/miles/transcript/2020/08/20200822-1092577)
+
+[郭文贵2020年8月22日连线秘密翻译组 20200822_2周六连线秘密翻译组 - 火辣爆料！]({{site.baseurl}}/miles/transcript/2020/08/20200822-1092600)
+
+[郭文贵2020年8月22日盖特 20200822_38月22号 尊敬的战友们好，你们健身了吗？你们传播C C P病毒香港危机真相了吗？一小时候907在秘密翻译组．GTV连线直播见，一切都已经开始！]({{site.baseurl}}/miles/transcript/2020/08/20200822-1092615)
+
+[郭文贵2020年8月21日盖特 202008218月21号 尊敬的战友们好，你们健身了吗？你们传播C C P病毒．香港危机真相了吗？从班农先生的事件……看中美两国真正的巨大差异，一切都已经开]({{site.baseurl}}/miles/transcript/2020/08/20200821-1092522)
+
+[郭文贵2020年8月21日盖特 20200821_28月21号 我们要让吴争．马云．哀立搏一敌．泥扣大V死．华尔街的．死地方夫汶……一个个地为共产党效劳，伤害，爆料革命的人付出必须付出代]({{site.baseurl}}/miles/transcript/2020/08/20200821-1092610)
+
+[郭文贵2020年8月20日直播 20200820_1文贵紧急直播：班农先生被捕是共产党的垂死反击，只会让灭共意志更坚定，让灭共力量更强大！]({{site.baseurl}}/miles/transcript/2020/08/20200820-1092739)
+
+[郭文贵2020年8月20日盖特 20200820_28月20号 尊敬的战友们好，我一直以来所说的。新中国联邦．爆料革命灭共运动，在八月份．九月份是最重要的]({{site.baseurl}}/miles/transcript/2020/08/20200820-1092748)
 
 [郭文贵2020年8月19日视频 20200819_3三马要出大事了吗？]({{site.baseurl}}/miles/transcript/2020/08/20200819-1090020)
 
@@ -31,27 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2020年8月12日直播 20200812_2美灭共大锤如期一一砸下；下一制裁目标阿里巴巴，百度；文贵与战友们与中共展开智慧游击战]({{site.baseurl}}/miles/transcript/2020/08/20200812-1092607)
 
-[郭文贵2020年8月11日视频 20200811_2 希望…战友们永远都要坚持唯真不破．无我的爆料革命的原则，希望战友们能互相真正的尊重…和珍惜。]({{site.baseurl}}/miles/transcript/2020/08/20200811-1090015)
 
-[郭文贵2020年8月10日盖特 202008108月10号尊敬的战友们好，你们健身了吗？你们传播CCP病毒香港危机真相了吧，刚刚收到了很多战友发来的私信。没办法一一回信息…]({{site.baseurl}}/miles/transcript/2020/08/20200810-1092525)
-
-[郭文贵2020年8月9日直播 20200809张首晟到底是谁杀的？文贵每天面临多少的生死威胁？又是如何处理的？]({{site.baseurl}}/miles/transcript/2020/08/20200809-1092616)
-
-[郭文贵2020年8月8日直播 20200808与日本樱花团战友连线谈论忠诚的文化和日本爆料革命的重要性]({{site.baseurl}}/miles/transcript/2020/08/20200808-1092593)
-
-[郭文贵2020年8月7日视频 20200807_2新中国联邦．与文贵和水台．联手打造的文贵水台牌胸罩款西装诞生]({{site.baseurl}}/miles/transcript/2020/08/20200807-1090013)
-
-[郭文贵2020年8月7日直播 20200807美灭共大锤如期一一砸下；下一制裁目标阿里巴巴，百度；文贵和战友们对中共展开智慧游击战]({{site.baseurl}}/miles/transcript/2020/08/20200807-1092552)
-
-[郭文贵2020年8月5日盖特 202008058月5号尊敬的战友们好……千万小心……袁共????等欺民贼一起……再次的配合中共搞大外宣……转移重要的共产党犯罪重点]({{site.baseurl}}/miles/transcript/2020/08/20200805-1092517)
-
-[郭文贵2020年8月4日盖特 20200804_18月4号尊敬的战友们好，你们健身了吗？你们传播系C CP病毒……香港危机真相了吗？文贵分享偷吃面包的感觉……]({{site.baseurl}}/miles/transcript/2020/08/20200804-1092442)
-
-[郭文贵2020年8月4日盖特 20200804_28月4号非常抱歉一些战友．有一些GTV股权，现在要部分转让有关这些要求信息没有及时回复……请战友们能够理解]({{site.baseurl}}/miles/transcript/2020/08/20200804-1092447)
-
-[郭文贵2020年8月4日直播 20200804_3GTV的价值用金钱无法衡量，历史的机遇无法计算，这都是因为战友的信任和支持]({{site.baseurl}}/miles/transcript/2020/08/20200804-1092464)
-
-[郭文贵2020年8月4日直播 20200804_4共产党的内斗将是一场人类前所未有的政治大劫难]({{site.baseurl}}/miles/transcript/2020/08/20200804-1092485)
-
-
-## 頁面 48/111 [**<**]({{site.baseurl}}/miles/transcript/page47) [1]({{site.baseurl}}/miles/transcript/index) ... [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) **48** [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page49)
+## 頁面 48/112 [**<**]({{site.baseurl}}/miles/transcript/page47) [1]({{site.baseurl}}/miles/transcript/index) ... [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) **48** [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page49)

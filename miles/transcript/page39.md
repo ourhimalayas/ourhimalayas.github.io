@@ -1,7 +1,29 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 39/111 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page40)
+## 頁面 39/112 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page40)
+
+[郭文贵2021年1月21日直播 20210121_1深刻总结爆料革命的成功与不足，今年重点发展Ｇ系列，壮大灭共经济体系，与美新政府合作，联合灭共]({{site.baseurl}}/miles/transcript/2021/01/20210121-1090420)
+
+[郭文贵2021年1月20日直播 20210120_1新中国联邦见证美国120]({{site.baseurl}}/miles/transcript/2021/01/20210120-1090412)
+
+[郭文贵2021年1月20日盖特 20210120_2今天是爆料革命最大的挫败的一天……也是最美好的一天……感谢很多战友发来的信息，抱歉不能一一回复????????????同时我在这里谈一下．路德访谈今天节目．观后感的感觉]({{site.baseurl}}/miles/transcript/2021/01/20210120-1090416)
+
+[郭文贵2021年1月19日盖特 20210119_4]({{site.baseurl}}/miles/transcript/2021/01/20210119-1089850)
+
+[郭文贵2021年1月19日盖特 20210119_5]({{site.baseurl}}/miles/transcript/2021/01/20210119-1089852)
+
+[郭文贵2021年1月19日盖特 20210119_6]({{site.baseurl}}/miles/transcript/2021/01/20210119-1089856)
+
+[郭文贵2021年1月19日盖特 20210119_1共产党刚刚决定的将在未来的几个月……买通，美国……重回中美贸易逆差的大时代。 买掉共产党应承担的病毒责任，以贸易方式变相的解决中共病毒在全世界的伤害……让全世界重新回到……共]({{site.baseurl}}/miles/transcript/2021/01/20210119-1090402)
+
+[郭文贵2021年1月19日盖特 20210119_2我们永远记住爆料革命新中国联邦……路德访谈，英雄，科学家和无数个爆料英雄……创造的人类上最伟大一天，2020 1月19号……我们有理由有基础有事实．有根据……相信我们德受天助……得民心]({{site.baseurl}}/miles/transcript/2021/01/20210119-1090404)
+
+[郭文贵2021年1月19日盖特 20210119_3这是爆料革命新中国联邦最重要的胜利一天．这是灭共的911行动，我们伟大的彭佩奥国务卿和美国的政府和美国不露名的正义的力量，给我们在这特殊的日子里送来的大礼！为了对路德访谈．在一]({{site.baseurl}}/miles/transcript/2021/01/20210119-1090406)
+
+[郭文贵2021年1月18日盖特 20210118_2]({{site.baseurl}}/miles/transcript/2021/01/20210118-1089842)
+
+[郭文贵2021年1月18日盖特 20210118_3]({{site.baseurl}}/miles/transcript/2021/01/20210118-1089845)
 
 [郭文贵2021年1月18日盖特 20210118_4]({{site.baseurl}}/miles/transcript/2021/01/20210118-1089859)
 
@@ -31,27 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2021年1月11日盖特 20210111_1尊敬的战友们好……文贵向国内正在遭受共产党的国安．及警察．对G-TV投资者的威胁下，正在被逼迫所谓的填写虚假的投诉……和退款要求的战友们的…的两个紧急建议！]({{site.baseurl}}/miles/transcript/2021/01/20210111-1090360)
 
-[郭文贵2021年1月11日盖特 20210111_2文贵第二次发盖特……特殊的今天……让我文贵更加感触很深很深刻……一个国家和民族的安全．法律．和信仰……是多么的重要……]({{site.baseurl}}/miles/transcript/2021/01/20210111-1090362)
 
-[郭文贵2021年1月10日直播 20210110_1]({{site.baseurl}}/miles/transcript/2021/01/20210110-1090356)
-
-[郭文贵2021年1月9日盖特 20210109_1川普总统被形容为最失败的最懦弱．最口爆……最口炮……总统……这是正确的吗？我们如何看待过去24小时发生的媒体封杀川普总统的这些事情……文贵谈谈自己的观点，一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/01/20210109-1090346)
-
-[郭文贵2021年1月9日盖特 20210109_22021年1月9号上午，第二次发视频……再次集中回答国内很多战友的一些问题……]({{site.baseurl}}/miles/transcript/2021/01/20210109-1090349)
-
-[郭文贵2021年1月8日盖特 20210108_1尊敬的战友们好，我们为什么要打造G系列？我们为什么不能跟随任何政客和任何政党？我们必须要成为独立的世界的重要的一股正义的力量……任何正义的力量组织．必须尊重的一个代表中国人的]({{site.baseurl}}/miles/transcript/2021/01/20210108-1090341)
-
-[郭文贵2021年1月7日盖特 20210107_1美国的大选出现了这样的滑稽结果……都是在我们情报掌控之中，必然发生……一定会发生的结果，我们该如何看待昨天到现在发生的一切的事情……一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/01/20210107-1090327)
-
-[郭文贵2021年1月7日直播 20210107_21月6号的美国参众两院对总统选举的认证说明了什么？爆料革命如何面对一系列的世界的局势的变化。]({{site.baseurl}}/miles/transcript/2021/01/20210107-1090329)
-
-[郭文贵2021年1月7日盖特 20210107_3XX你好，昨天在XXX国家安全局的逼迫下，我从网上向美国FBI举报XXX以许诺购买GTV股票进行诈骗。网址https://ic3.gov. 国安讲是上面的要求。翻墙软件都是他们提供的，我在XXX身不由己，请见谅！]({{site.baseurl}}/miles/transcript/2021/01/20210107-1090344)
-
-[郭文贵2021年1月6日直播 20210106_1文贵直播：美国大选决战时刻（一）]({{site.baseurl}}/miles/transcript/2021/01/20210106-1090298)
-
-[郭文贵2021年1月6日直播 20210106_2文贵直播：美国大选决战时刻（二）]({{site.baseurl}}/miles/transcript/2021/01/20210106-1090322)
-
-[郭文贵2021年1月5日盖特 20210105_1北京在过去24小时发生了什么？华尔街为什么出尔反尔……取消对中共的电信公司的制裁，一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/01/20210105-1090295)
-
-
-## 頁面 39/111 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page40)
+## 頁面 39/112 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page40)

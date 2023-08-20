@@ -1,7 +1,29 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 96/111 [**<**]({{site.baseurl}}/miles/transcript/page95) [1]({{site.baseurl}}/miles/transcript/index) ... [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) **96** [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page97)
+## 頁面 96/112 [**<**]({{site.baseurl}}/miles/transcript/page95) [1]({{site.baseurl}}/miles/transcript/index) ... [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) **96** [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page97)
+
+[郭文贵2018年7月4日直播 20180704_1郭文贵先生在群里对王健突然丧命的评价]({{site.baseurl}}/miles/transcript/2018/07/20180704-1088543)
+
+[郭文贵2018年7月2日直播 20180702_2路德访谈约翰小哥時文貴之講話]({{site.baseurl}}/miles/transcript/2018/07/20180702-1088538)
+
+[郭文贵2018年6月30日直播 20180630_1谈郭宝胜的诈骗与对寒梅的起诉]({{site.baseurl}}/miles/transcript/2018/06/20180630-1088520)
+
+[郭文贵2018年6月30日直播 20180630_2谈中国股市与经济！]({{site.baseurl}}/miles/transcript/2018/06/20180630-1088532)
+
+[郭文贵2018年6月29日直播 20180629_1谈刘刚与屎诺．王岐山与错功胜为什么救海航！]({{site.baseurl}}/miles/transcript/2018/06/20180629-1088492)
+
+[郭文贵2018年6月28日直播 20180628_1]({{site.baseurl}}/miles/transcript/2018/06/20180628-1088477)
+
+[郭文贵2018年6月27日视频 20180627_4在船上远眺曼哈顿]({{site.baseurl}}/miles/transcript/2018/06/20180627-1087720)
+
+[郭文贵2018年6月27日直播 20180627_2一边抽雪茄一边直播（第一段）]({{site.baseurl}}/miles/transcript/2018/06/20180627-1088463)
+
+[郭文贵2018年6月27日直播 20180627_3一边抽雪茄一边直播（第二段）]({{site.baseurl}}/miles/transcript/2018/06/20180627-1088472)
+
+[郭文贵2018年6月27日视频 20180627]({{site.baseurl}}/miles/transcript/2018/06/20180627-1094345)
+
+[郭文贵2018年6月25日 20180625房峰辉为什么问蒂斯这个？一个美国战亡士兵价值值中扺国一个连退休士命的命钱！]({{site.baseurl}}/miles/transcript/2018/06/20180625-1094330)
 
 [郭文贵2018年6月23日视频 20180623镇江老兵维权幕后有高人，郭宝胜与王進忠]({{site.baseurl}}/miles/transcript/2018/06/20180623-1087716)
 
@@ -31,27 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2018年6月2日 20180602接受安红女士．丘岳首先生釆访．纪念六四．及袁红冰．郭宝胜．赖建平的盗骗之劣术！]({{site.baseurl}}/miles/transcript/2018/06/20180602-1094299)
 
-[郭文贵2018年6月1日 20180601文贵视频为什么成为盗国贼的精神艾滋！]({{site.baseurl}}/miles/transcript/2018/06/20180601-1094265)
 
-[郭文贵2018年5月31日视频 20180531不要将六．四悲剧变喜剧！马航客机失事新动向！]({{site.baseurl}}/miles/transcript/2018/05/20180531-1092883)
-
-[郭文贵2018年5月30日视频 20180530文贵很好请战友们放心]({{site.baseurl}}/miles/transcript/2018/05/20180530-1087703)
-
-[郭文贵2018年5月27日视频 20180527请战友一起反击所谓的文贵海外维稳民主人士阴谋！]({{site.baseurl}}/miles/transcript/2018/05/20180527-1092950)
-
-[郭文贵2018年5月26日直播 20180526_1破解金盾有进展,感谢战友提供听证会证据 LADY MAY回纽约了!]({{site.baseurl}}/miles/transcript/2018/05/20180526-1088320)
-
-[郭文贵2018年5月24日视频 20180524栗战书秘书因为董文彪．曲龙．王岐山被抓！]({{site.baseurl}}/miles/transcript/2018/05/20180524-1092920)
-
-[郭文贵2018年5月22日视频第一部分 20180522_1谈与王岐山刘志华一起战斗的日子！]({{site.baseurl}}/miles/transcript/2018/05/20180522-1094250)
-
-[郭文贵2018年5月22日视频第二部分 20180522_2谈委内瑞拉．马来西亚．是我们借鉴走向喜马拉雅的好榜样！岳文海的腐败！]({{site.baseurl}}/miles/transcript/2018/05/20180522-1094263)
-
-[郭文贵2018年5月17日视频 20180517谈马来西亚、委内瑞拉、信仰和理想]({{site.baseurl}}/miles/transcript/2018/05/20180517-1092914)
-
-[郭文贵2018年5月13日直播 20180513_1文贵的人生导师之一昨晚上仙鹤而去！！！????????????]({{site.baseurl}}/miles/transcript/2018/05/20180513-1088318)
-
-[郭文贵2018年5月12日视频 20180512在路德访谈节目中与95后海军陆战队队员深入交流]({{site.baseurl}}/miles/transcript/2018/05/20180512-1087697)
-
-
-## 頁面 96/111 [**<**]({{site.baseurl}}/miles/transcript/page95) [1]({{site.baseurl}}/miles/transcript/index) ... [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) **96** [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page97)
+## 頁面 96/112 [**<**]({{site.baseurl}}/miles/transcript/page95) [1]({{site.baseurl}}/miles/transcript/index) ... [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) **96** [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page97)

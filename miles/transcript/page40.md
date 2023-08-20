@@ -1,7 +1,29 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 40/111 [**<**]({{site.baseurl}}/miles/transcript/page39) [1]({{site.baseurl}}/miles/transcript/index) ... [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) **40** [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page41)
+## 頁面 40/112 [**<**]({{site.baseurl}}/miles/transcript/page39) [1]({{site.baseurl}}/miles/transcript/index) ... [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) **40** [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page41)
+
+[郭文贵2021年1月11日盖特 20210111_2文贵第二次发盖特……特殊的今天……让我文贵更加感触很深很深刻……一个国家和民族的安全．法律．和信仰……是多么的重要……]({{site.baseurl}}/miles/transcript/2021/01/20210111-1090362)
+
+[郭文贵2021年1月10日直播 20210110_1]({{site.baseurl}}/miles/transcript/2021/01/20210110-1090356)
+
+[郭文贵2021年1月9日盖特 20210109_1川普总统被形容为最失败的最懦弱．最口爆……最口炮……总统……这是正确的吗？我们如何看待过去24小时发生的媒体封杀川普总统的这些事情……文贵谈谈自己的观点，一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/01/20210109-1090346)
+
+[郭文贵2021年1月9日盖特 20210109_22021年1月9号上午，第二次发视频……再次集中回答国内很多战友的一些问题……]({{site.baseurl}}/miles/transcript/2021/01/20210109-1090349)
+
+[郭文贵2021年1月8日盖特 20210108_1尊敬的战友们好，我们为什么要打造G系列？我们为什么不能跟随任何政客和任何政党？我们必须要成为独立的世界的重要的一股正义的力量……任何正义的力量组织．必须尊重的一个代表中国人的]({{site.baseurl}}/miles/transcript/2021/01/20210108-1090341)
+
+[郭文贵2021年1月7日盖特 20210107_1美国的大选出现了这样的滑稽结果……都是在我们情报掌控之中，必然发生……一定会发生的结果，我们该如何看待昨天到现在发生的一切的事情……一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/01/20210107-1090327)
+
+[郭文贵2021年1月7日直播 20210107_21月6号的美国参众两院对总统选举的认证说明了什么？爆料革命如何面对一系列的世界的局势的变化。]({{site.baseurl}}/miles/transcript/2021/01/20210107-1090329)
+
+[郭文贵2021年1月7日盖特 20210107_3XX你好，昨天在XXX国家安全局的逼迫下，我从网上向美国FBI举报XXX以许诺购买GTV股票进行诈骗。网址https://ic3.gov. 国安讲是上面的要求。翻墙软件都是他们提供的，我在XXX身不由己，请见谅！]({{site.baseurl}}/miles/transcript/2021/01/20210107-1090344)
+
+[郭文贵2021年1月6日直播 20210106_1文贵直播：美国大选决战时刻（一）]({{site.baseurl}}/miles/transcript/2021/01/20210106-1090298)
+
+[郭文贵2021年1月6日直播 20210106_2文贵直播：美国大选决战时刻（二）]({{site.baseurl}}/miles/transcript/2021/01/20210106-1090322)
+
+[郭文贵2021年1月5日盖特 20210105_1北京在过去24小时发生了什么？华尔街为什么出尔反尔……取消对中共的电信公司的制裁，一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/01/20210105-1090295)
 
 [郭文贵2021年1月4日直播 20210104_1]({{site.baseurl}}/miles/transcript/2021/01/20210104-1090265)
 
@@ -31,27 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2020年12月29日视频 20201229_2郭文贵先生给《我是音雄》的祝贺和期许（一）]({{site.baseurl}}/miles/transcript/2020/12/20201229-1090167)
 
-[郭文贵2020年12月28日盖特 20201228_1尊敬的战友们好．文贵想和战友们聊聊……参与爆料革命的风险系数和我们现在遇到的问题后的……的应该如何面对和解决的办法，一切都已经开始！]({{site.baseurl}}/miles/transcript/2020/12/20201228-1090160)
 
-[郭文贵2020年12月28日盖特 20201228_2感谢战友们的关心……回答在国内疫情灾区的战友们……相互支持，相互帮助，及我们所能提供的帮助，一切都已经开始！]({{site.baseurl}}/miles/transcript/2020/12/20201228-1090162)
-
-[郭文贵2020年12月28日音频聊天 20201228_3郭先生喜马拉雅大使馆discord群答疑录音]({{site.baseurl}}/miles/transcript/2020/12/20201228-1090170)
-
-[郭文贵2020年12月27日盖特 20201227_1下面刚发出去的昨天晚上录制的视频，因为说到了中共前情报头子副总参谋长二部部长熊光楷！我的手机几次被黑得不能启动，而且十几次无法上传，从昨天晚上一直到现在才刚刚的发出来，熊光]({{site.baseurl}}/miles/transcript/2020/12/20201227-1090159)
-
-[郭文贵2020年12月27日音频聊天 20201227_2]({{site.baseurl}}/miles/transcript/2020/12/20201227-1090165)
-
-[郭文贵2020年12月26日盖特 20201226_1共产党已经开始给自己倒数灭亡时间了……共产党的内部起义，以共灭共的时代正式开始！]({{site.baseurl}}/miles/transcript/2020/12/20201226-1090151)
-
-[郭文贵2020年12月26日盖特 20201226_2【补充一下……共产党的海外秘密资金如何保证安全．俄罗斯和中东会不会保护共产党倒毙后的家人和私生子女和资产。】]({{site.baseurl}}/miles/transcript/2020/12/20201226-1090154)
-
-[郭文贵2020年12月26日盖特 20201226_3共产党自己建的監控系統把自己給控了 共產黨 你完了]({{site.baseurl}}/miles/transcript/2020/12/20201226-1090155)
-
-[郭文贵2020年12月26日音频聊天 20201226_4郭先生喜马拉雅大使馆discord群答疑录音]({{site.baseurl}}/miles/transcript/2020/12/20201226-1090156)
-
-[郭文贵2020年12月26日盖特 20201226_5我们战友中藏龙卧虎，新中国联邦和爆料革命的力量……正在发挥着不可估量的拯救全世界……和全中国人民的作用……没有方方面面的战友的付出……文贵和爆料革命不可能走到今天……什么都]({{site.baseurl}}/miles/transcript/2020/12/20201226-1090158)
-
-[郭文贵2020年12月25日直播 20201225_1文贵圣诞直播]({{site.baseurl}}/miles/transcript/2020/12/20201225-1090148)
-
-
-## 頁面 40/111 [**<**]({{site.baseurl}}/miles/transcript/page39) [1]({{site.baseurl}}/miles/transcript/index) ... [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) **40** [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page41)
+## 頁面 40/112 [**<**]({{site.baseurl}}/miles/transcript/page39) [1]({{site.baseurl}}/miles/transcript/index) ... [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) **40** [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page41)

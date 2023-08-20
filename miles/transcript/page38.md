@@ -1,7 +1,29 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 38/111 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page39)
+## 頁面 38/112 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page39)
+
+[郭文贵2021年2月2日直播 20210202_1]({{site.baseurl}}/miles/transcript/2021/02/20210202-1090530)
+
+[郭文贵2021年2月2日直播 20210202_2回答战友们关于VOG退款事宜的疑问]({{site.baseurl}}/miles/transcript/2021/02/20210202-1090551)
+
+[郭文贵2021年2月1日直播 20210201_1文贵在雪中和战友们聊聊天．谈谈，中国共产党是如何欺骗中国老百姓的……]({{site.baseurl}}/miles/transcript/2021/02/20210201-1090507)
+
+[郭文贵2021年2月1日盖特 20210201_2尊敬的战友们好今天的纽约，封城和缅甸的政变和全球联合灭共所有的事情……有着什么样的内在的逻辑和关系！]({{site.baseurl}}/miles/transcript/2021/02/20210201-1090509)
+
+[郭文贵2021年2月1日盖特 20210201_3在国内新的一轮所谓平爆运动的．关键时刻，我相信绝大多数的共产党．体制内的有良知的．有智慧的人．应该知道．如何面对我们爆料革命．和处理，我们被九指妖．等背叛者．提供给他们的有]({{site.baseurl}}/miles/transcript/2021/02/20210201-1090515)
+
+[郭文贵2021年2月1日盖特 20210201_4共产党犯下的罪行……和在香港犯下的罪……和对全世界人民现在的威胁……正在凝聚全人类正义的力量，全球联合灭共正在进行时……]({{site.baseurl}}/miles/transcript/2021/02/20210201-1090520)
+
+[郭文贵2021年1月31日直播 20210131_1赖小民被枪毙和海航破产重组再次证明中共盗国集团的黑暗本质！共产党变成掏肛党后已经走向疯狂！文贵一定会让所有伤害战友的人受到法律严惩！]({{site.baseurl}}/miles/transcript/2021/01/20210131-1090504)
+
+[郭文贵2021年1月30日盖特 20210130_1尊敬的战友们好，整个共产党变成．掏肛党后．又向掏胃党迈进……已经走向疯狂．继续以贪反贪．抓政法委和纪委干部……对外以黑社会的手段威胁，各国的政府……答应中共武统台湾……一切]({{site.baseurl}}/miles/transcript/2021/01/20210130-1090499)
+
+[郭文贵2021年1月29日盖特 20210129_1为人民服务的共产党．现在是为人民掏肛的共产党，????????????一个经济强大的共产党，却要将在人民的肛门中????掏出几万亿人民币，却让王岐山主席．控制的中国最大的私人企业．海南航空．破产]({{site.baseurl}}/miles/transcript/2021/01/20210129-1090496)
+
+[郭文贵2021年1月29日盖特 20210129_2从昨天到今天火爆了的我们的爆料革命．和新中国联邦.和G系列．与这个疯狂的世界的疯狂几个事件的内在逻辑的重要性……]({{site.baseurl}}/miles/transcript/2021/01/20210129-1090501)
+
+[郭文贵2021年1月28日直播 20210128_1受骗九指王的战友们要行动；美四大帮派都来找文贵合作，美，欧，日，俄将形成灭共联盟；Gclub年会预告]({{site.baseurl}}/miles/transcript/2021/01/20210128-1090487)
 
 [郭文贵2021年1月28日盖特 20210128_2关于几club春节年会的一些战友咨询的问题的回答．再次呼吁被VOG ．九指王．欺骗的战友们！积极提供各种证据和信息，以维护战友的安全和利益！]({{site.baseurl}}/miles/transcript/2021/01/20210128-1090492)
 
@@ -31,27 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2021年1月22日盖特 20210122_2下午6:20我们正在和战友一起．等待这一切的到来……]({{site.baseurl}}/miles/transcript/2021/01/20210122-1090426)
 
-[郭文贵2021年1月21日直播 20210121_1深刻总结爆料革命的成功与不足，今年重点发展Ｇ系列，壮大灭共经济体系，与美新政府合作，联合灭共]({{site.baseurl}}/miles/transcript/2021/01/20210121-1090420)
 
-[郭文贵2021年1月20日直播 20210120_1新中国联邦见证美国120]({{site.baseurl}}/miles/transcript/2021/01/20210120-1090412)
-
-[郭文贵2021年1月20日盖特 20210120_2今天是爆料革命最大的挫败的一天……也是最美好的一天……感谢很多战友发来的信息，抱歉不能一一回复????????????同时我在这里谈一下．路德访谈今天节目．观后感的感觉]({{site.baseurl}}/miles/transcript/2021/01/20210120-1090416)
-
-[郭文贵2021年1月19日盖特 20210119_4]({{site.baseurl}}/miles/transcript/2021/01/20210119-1089850)
-
-[郭文贵2021年1月19日盖特 20210119_5]({{site.baseurl}}/miles/transcript/2021/01/20210119-1089852)
-
-[郭文贵2021年1月19日盖特 20210119_6]({{site.baseurl}}/miles/transcript/2021/01/20210119-1089856)
-
-[郭文贵2021年1月19日盖特 20210119_1共产党刚刚决定的将在未来的几个月……买通，美国……重回中美贸易逆差的大时代。 买掉共产党应承担的病毒责任，以贸易方式变相的解决中共病毒在全世界的伤害……让全世界重新回到……共]({{site.baseurl}}/miles/transcript/2021/01/20210119-1090402)
-
-[郭文贵2021年1月19日盖特 20210119_2我们永远记住爆料革命新中国联邦……路德访谈，英雄，科学家和无数个爆料英雄……创造的人类上最伟大一天，2020 1月19号……我们有理由有基础有事实．有根据……相信我们德受天助……得民心]({{site.baseurl}}/miles/transcript/2021/01/20210119-1090404)
-
-[郭文贵2021年1月19日盖特 20210119_3这是爆料革命新中国联邦最重要的胜利一天．这是灭共的911行动，我们伟大的彭佩奥国务卿和美国的政府和美国不露名的正义的力量，给我们在这特殊的日子里送来的大礼！为了对路德访谈．在一]({{site.baseurl}}/miles/transcript/2021/01/20210119-1090406)
-
-[郭文贵2021年1月18日盖特 20210118_2]({{site.baseurl}}/miles/transcript/2021/01/20210118-1089842)
-
-[郭文贵2021年1月18日盖特 20210118_3]({{site.baseurl}}/miles/transcript/2021/01/20210118-1089845)
-
-
-## 頁面 38/111 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page39)
+## 頁面 38/112 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page39)

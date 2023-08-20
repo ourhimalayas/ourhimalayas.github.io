@@ -1,7 +1,29 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 71/111 [**<**]({{site.baseurl}}/miles/transcript/page70) [1]({{site.baseurl}}/miles/transcript/index) ... [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) **71** [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page72)
+## 頁面 71/112 [**<**]({{site.baseurl}}/miles/transcript/page70) [1]({{site.baseurl}}/miles/transcript/index) ... [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) **71** [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page72)
+
+[郭文贵2019年9月15日 20190915王岐山乱港七策坐镇指挥黑警察施暴港人，香港已成为恐惧之港，全球正义力量迅速集结，现在已是黑白对决（美国的白对CCP的黑）！我们目前以传播香港危机真相为核心！中共被灭]({{site.baseurl}}/miles/transcript/2019/09/20190915-1093632)
+
+[2019年9月15日 香港已成为恐惧之港全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190915-1098235)
+
+[郭文贵2019年9月14日 20190914尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？从共产党昨天在香港疯狂！说明了，共产党是个彻彻底底的大流氓集团．一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/09/20190914-1093607)
+
+[2019年9月14日文贵大直播全文字版：从共产党昨天在香港疯狂，说明了共产党是个彻彻底底的大流氓]({{site.baseurl}}/miles/transcript/2019/09/20190914-1098224)
+
+[郭文贵2019年9月13日 20190913向战友们祝福中秋节快乐！与战友们分享第一个没有母亲的中秋节的感受！中秋团圆夜，灭共倒计时!]({{site.baseurl}}/miles/transcript/2019/09/20190913-1093597)
+
+[2019年9月13日文贵大直播全文字版：与战友们分享第一个没有母亲的中秋节的感受]({{site.baseurl}}/miles/transcript/2019/09/20190913-1098219)
+
+[郭文贵2019年9月12日视频 20190912_1过去两天的香港黑警行动的减少……将是香港重大危机爆发开始……请香港朋友们要了解共产党的＂涵养杀术＂务必小心！！！！！]({{site.baseurl}}/miles/transcript/2019/09/20190912-1089514)
+
+[郭文贵2019年9月12日视频 20190912_2很多战友发私信希望我吃饭直播一下……非常抱歉……由于船上有其他人和马上有很多会要开……我只能录个短的视频]({{site.baseurl}}/miles/transcript/2019/09/20190912-1089517)
+
+[2019年9月12号文贵大直播全文字版：尊敬的战友们好！你们健身了吗？你们传播香港危机的真相了吗？过去两天的香港黑警行动的减少……将是香港重大危机爆发开始…]({{site.baseurl}}/miles/transcript/2019/09/20190912-1098218)
+
+[郭文贵2019年9月11日视频 20190911_1(前段)博尔顿离开白宫内幕！全世界各方面灭共人士灭共力量大聚集！]({{site.baseurl}}/miles/transcript/2019/09/20190911-1089513)
+
+[郭文贵2019年9月11日 20190911博尔顿离开白宫内幕！全世界各方面灭共人士灭共力量大聚集！]({{site.baseurl}}/miles/transcript/2019/09/20190911-1093585)
 
 [2019年9月11日文贵大直播全文字版：博尔顿离开白宫内幕！全世界各方面灭共人士灭共力量大聚集！]({{site.baseurl}}/miles/transcript/2019/09/20190911-1098221)
 
@@ -31,27 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [2019年9月5日文贵大直播全文字版：报平安 全球从自动灭共到联合灭共的时代]({{site.baseurl}}/miles/transcript/2019/09/20190905-1098206)
 
-[郭文贵2019年9月4日直播 20190904“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!]({{site.baseurl}}/miles/transcript/2019/09/20190904-1093532)
 
-[2019年9月4日文贵大直播全文字版：平安直播“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!]({{site.baseurl}}/miles/transcript/2019/09/20190904-1098214)
-
-[郭文贵2019年9月3日第三次直播 20190903_3在华盛顿直播，CCP将真正对香港进行戒严计划]({{site.baseurl}}/miles/transcript/2019/09/20190903-1088579)
-
-[郭文贵2019年9月3日第二次直播 20190903_2在华盛顿直播，谈9月3号CCP将真正对香港进行戒严计划，目前所有焦点都关注香港！]({{site.baseurl}}/miles/transcript/2019/09/20190903-1093508)
-
-[郭文贵2019年9月3日第一次直播 20190903_1香港将是东西方大战导火线．什么是中共所谓的新型大国关系！]({{site.baseurl}}/miles/transcript/2019/09/20190903-1093516)
-
-[2019年9月3日文贵大直播全文字版：华盛顿直播：香港将是东西方大战导火线．什么是中共所谓的新型大国关系！]({{site.baseurl}}/miles/transcript/2019/09/20190903-1098207)
-
-[2019年9月3日文贵大直播全文字版：第一次在华盛顿直播，谈9月3号CCP将真正对香港进行戒严计划，目前所有焦点都关注香港！]({{site.baseurl}}/miles/transcript/2019/09/20190903-1098208)
-
-[郭文贵2019年9月2日图桑报平安 20190902]({{site.baseurl}}/miles/transcript/2019/09/20190902-1093505)
-
-[郭文贵2019年9月1日与班农先生直播 20190901共产党香港之外的另一个威胁全世界的计划]({{site.baseurl}}/miles/transcript/2019/09/20190901-1093500)
-
-[2019年9月1日文贵与班农先生直播习近平与王岐山的攻台计划！全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190901-1098216)
-
-[郭文贵2019年8月31日视频 20190831_1文贵与班农先生直播，关注831香港]({{site.baseurl}}/miles/transcript/2019/08/20190831-1089504)
-
-
-## 頁面 71/111 [**<**]({{site.baseurl}}/miles/transcript/page70) [1]({{site.baseurl}}/miles/transcript/index) ... [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) **71** [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page72)
+## 頁面 71/112 [**<**]({{site.baseurl}}/miles/transcript/page70) [1]({{site.baseurl}}/miles/transcript/index) ... [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) **71** [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page72)

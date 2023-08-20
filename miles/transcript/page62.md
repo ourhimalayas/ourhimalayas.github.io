@@ -1,7 +1,29 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 62/111 [**<**]({{site.baseurl}}/miles/transcript/page61) [1]({{site.baseurl}}/miles/transcript/index) ... [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) **62** [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page63)
+## 頁面 62/112 [**<**]({{site.baseurl}}/miles/transcript/page61) [1]({{site.baseurl}}/miles/transcript/index) ... [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) **62** [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page63)
+
+[郭文贵2020年1月5日视频 20200105_2郭文貴在喜馬拉雅大使館採訪班農 談美國擊斃伊朗二號人物蘇拉曼尼]({{site.baseurl}}/miles/transcript/2020/01/20200105-1089752)
+
+[郭文贵2020年1月5日 20200105傅希秋是挂牌特务艾未未等欺民贼将被扫入历史的垃圾桶]({{site.baseurl}}/miles/transcript/2020/01/20200105-1091725)
+
+[郭文贵2020年1月4日 20200104共产党不管你咋折腾，你完蛋了]({{site.baseurl}}/miles/transcript/2020/01/20200104-1091701)
+
+[郭文贵2020年1月3日中俄伊军演 20200103苏曼尼的被炸死是我们爆料革命展示实力走向]({{site.baseurl}}/miles/transcript/2020/01/20200103-1092232)
+
+[郭文贵2020年1月2日 20200102聊自己的人生和武汉的非典 为战友终生戒吃牛肉！]({{site.baseurl}}/miles/transcript/2020/01/20200102-1091687)
+
+[郭文贵2020年1月1日 20200101畅谈2020 盘古开天霹雳年！灭共]({{site.baseurl}}/miles/transcript/2020/01/20200101-1091644)
+
+[郭文贵2019年12月31日视频 20191231_1 郭文貴call in 曾宏節目]({{site.baseurl}}/miles/transcript/2019/12/20191231-1089748)
+
+[郭文贵2019年12月30日第一次直播 20191230_1谈2020霹雳年 私自募捐就是一帮]({{site.baseurl}}/miles/transcript/2019/12/20191230-1094144)
+
+[郭文贵2019年12月30日第二次直播 20191230_2第二次直播向战友询问1/22和春节晚会的举办形式，有惊人王健死亡照片出示]({{site.baseurl}}/miles/transcript/2019/12/20191230-1094155)
+
+[郭文贵2019年12月29日连线钢铁侠 20191229聊中国的教育和如何面对的性]({{site.baseurl}}/miles/transcript/2019/12/20191229-1094163)
+
+[郭文贵2019年12月28日谈细丝的行为 20191228又一个郭宝胜欺诈的案例]({{site.baseurl}}/miles/transcript/2019/12/20191228-1094145)
 
 [郭文贵2019年12月27日视频 20191227文貴衷心的感谢洛杉矶⋯⋯的战友们，⋯⋯⋯⋯一切都是剛剛開始！]({{site.baseurl}}/miles/transcript/2019/12/20191227-1094124)
 
@@ -31,27 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年12月19日视频 20191219_1由于文贵诉郭宝胜的案件在华盛顿开庭．延期一了天．今天不能直播了]({{site.baseurl}}/miles/transcript/2019/12/20191219-1089706)
 
-[郭文贵2019年12月18日视频 20191218_1文贵今天还要继续开庭，所以早上5：00起床，今天只能是录制视频给大家了]({{site.baseurl}}/miles/transcript/2019/12/20191218-1089702)
 
-[郭文贵2019年12月17日视频 20191217在华盛顿报平安]({{site.baseurl}}/miles/transcript/2019/12/20191217-1094063)
-
-[郭文贵2019年12月16日视频 20191216维护海外华人的形象，依法惩治海外的大小欺民贼．是保护海外华人利益的必需手段！]({{site.baseurl}}/miles/transcript/2019/12/20191216-1094060)
-
-[郭文贵2019年12月15日 20191215陈峰对女性的轮奸被称为欢乐佛的．双修．是对佛教的侮辱和利用]({{site.baseurl}}/miles/transcript/2019/12/20191215-1094031)
-
-[郭文贵2019年12月14日视频 20191214原来王岐山真的比我们想象的还要凶险！我说实在话，现在看习近平的智商和政治能力跟王岐山根本不是一个级别的，严格讲习的所有的过去这十几年都是王岐山手里玩了个球儿！]({{site.baseurl}}/miles/transcript/2019/12/20191214-1094048)
-
-[郭文贵2019年12月13日视频 20191213談王岐山換腎小&習近平晉升幾十名少將的背後故事 王健第四种之死背后的巨大意义]({{site.baseurl}}/miles/transcript/2019/12/20191213-1094001)
-
-[郭文贵2019年12月12日视频 20191212_2家裡來客人了 弄火鍋吃]({{site.baseurl}}/miles/transcript/2019/12/20191212-1089700)
-
-[郭文贵2019年12月12日视频 20191212对港四大原则即将出台，香港将面临诱惑分化；法治基金C4召开董事会]({{site.baseurl}}/miles/transcript/2019/12/20191212-1094011)
-
-[郭文贵2019年12月10日视频 20191210共产党正炮制猛药去毒死香港人；王健死亡真相让国内引发巨大震荡]({{site.baseurl}}/miles/transcript/2019/12/20191210-1093992)
-
-[郭文贵2019年12月9日第一次直播 20191209_1文贵成为国际外汇交易中心；GPOST募捐比特币是被黑客，假信息]({{site.baseurl}}/miles/transcript/2019/12/20191209-1094205)
-
-[郭文贵2019年12月9日第二次直播 20191209_2爆王健彩色尸体照片 “王健死亡真相大披露”下部]({{site.baseurl}}/miles/transcript/2019/12/20191209-1094233)
-
-
-## 頁面 62/111 [**<**]({{site.baseurl}}/miles/transcript/page61) [1]({{site.baseurl}}/miles/transcript/index) ... [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) **62** [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page63)
+## 頁面 62/112 [**<**]({{site.baseurl}}/miles/transcript/page61) [1]({{site.baseurl}}/miles/transcript/index) ... [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) **62** [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page63)

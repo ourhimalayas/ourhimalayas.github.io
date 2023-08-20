@@ -1,7 +1,29 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 89/111 [**<**]({{site.baseurl}}/miles/transcript/page88) [1]({{site.baseurl}}/miles/transcript/index) ... [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) **89** [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page90)
+## 頁面 89/112 [**<**]({{site.baseurl}}/miles/transcript/page88) [1]({{site.baseurl}}/miles/transcript/index) ... [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) **89** [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page90)
+
+[郭文贵2018年11月13日视频 20181113民營企業家不能再成為共產黨的尿壺！]({{site.baseurl}}/miles/transcript/2018/11/20181113-1091171)
+
+[郭文贵2018年11月10日视频 20181110_1距离王健发布会还有9天 文贵海上吃火锅给大家报平安(政事小哥版)]({{site.baseurl}}/miles/transcript/2018/11/20181110-1088905)
+
+[郭文贵2018年11月9日视频 20181109_1昨晚上我6点多睡觉．一大早班8点钟突然到来……他昨晚上也一夜没睡．开车从华盛顿过来！为了我们的新闻发布会！为了接下来的几天按排]({{site.baseurl}}/miles/transcript/2018/11/20181109-1088900)
+
+[郭文贵2018年11月8日视频 20181108王岐山与习近平谁将成为最后的共产党永久的实际控制人]({{site.baseurl}}/miles/transcript/2018/11/20181108-1090989)
+
+[郭文贵2018年11月7日视频 20181107美國中期選舉後感想]({{site.baseurl}}/miles/transcript/2018/11/20181107-1090792)
+
+[郭文贵2018年11月5日视频 20181105_1]({{site.baseurl}}/miles/transcript/2018/11/20181105-1088899)
+
+[郭文贵2018年11月4日视频 20181104_1共产党最爱的床上运动 与西方的马拉松活动有什么不同！周末一笑！]({{site.baseurl}}/miles/transcript/2018/11/20181104-1088897)
+
+[郭文贵2018年11月1日视频 20181101王岐山帮助川普赢选举]({{site.baseurl}}/miles/transcript/2018/11/20181101-1090537)
+
+[郭文贵2018年10月31日视频 20181031在华盛顿直播 关于今天参加反共大联盟会议的详情和报告 世界正在巨变！]({{site.baseurl}}/miles/transcript/2018/10/20181031-1090338)
+
+[郭文贵2018年10月30日视频 20181030_1]({{site.baseurl}}/miles/transcript/2018/10/20181030-1088893)
+
+[郭文贵2018年10月29日视频 20181029文貴應邀擔任全球反CCP聯盟獨立顧問]({{site.baseurl}}/miles/transcript/2018/10/20181029-1090094)
 
 [郭文贵2018年10月28日视频 20181028_2 法國政府對王健之死案的判決]({{site.baseurl}}/miles/transcript/2018/10/20181028-1088858)
 
@@ -31,27 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2018年10月22日视频 20181022_1加林槍射擊CCP]({{site.baseurl}}/miles/transcript/2018/10/20181022-1088836)
 
-[郭文贵2018年10月22日视频 20181022_2打中CCP鏢靶兩次 贏得第一]({{site.baseurl}}/miles/transcript/2018/10/20181022-1088837)
 
-[郭文贵2018年10月21日 20181021_2澳門鄭曉松的被殺是因為孟宏偉 這是又一次的黑吃黑 2]({{site.baseurl}}/miles/transcript/2018/10/20181021-1087981)
-
-[郭文贵2018年10月21日 20181021_3澳門鄭曉松的被殺是因為孟宏偉 這是又一次的黑吃黑 3]({{site.baseurl}}/miles/transcript/2018/10/20181021-1087990)
-
-[郭文贵2018年10月21日 20181021_1澳門鄭曉松的被殺是因為孟宏偉 這是又一次的黑吃黑]({{site.baseurl}}/miles/transcript/2018/10/20181021-1094219)
-
-[郭文贵2018年10月20日视频 20181020_2Snow響應王岐山號召 從吃狗糧改吃草了]({{site.baseurl}}/miles/transcript/2018/10/20181020-1087971)
-
-[郭文贵2018年10月20日视频 20181020_1三個月前在華盛頓認識的美國戰友家人]({{site.baseurl}}/miles/transcript/2018/10/20181020-1088835)
-
-[郭文贵2018年10月19日视频 20181019_1请战友们发信息给我用郭媒体私信功能！拜托千万不要再给我寄钱了！]({{site.baseurl}}/miles/transcript/2018/10/20181019-1088878)
-
-[郭文贵2018年10月18日视频 20181018_1夫人乐高顯真情 文贵夫君样样行 好友喝酒惹禍事 慶芝對夫動大刑]({{site.baseurl}}/miles/transcript/2018/10/20181018-1088876)
-
-[郭文贵2018年10月17日参加路德访谈 20181017法国大革命与共产党的打土豪分田地的根本不同！也必将引起流血革命！西方国家已经开始实施对中国共产党的清除方案！无人可以改变！]({{site.baseurl}}/miles/transcript/2018/10/20181017-1088458)
-
-[郭文贵2018年10月16日视频 20181016郭文贵直播 政法委以黑治国比黑还黑！孟宏伟怎么回国的？怎么被抓的？王建是怎么死的？王岐山赴以色列人民币“偷”技术 赴沙特 人民币换石油]({{site.baseurl}}/miles/transcript/2018/10/20181016-1093287)
-
-[郭文贵2018年10月15日视频 20181015_1孟宏偉事件之後 好多人開始被抓]({{site.baseurl}}/miles/transcript/2018/10/20181015-1088874)
-
-
-## 頁面 89/111 [**<**]({{site.baseurl}}/miles/transcript/page88) [1]({{site.baseurl}}/miles/transcript/index) ... [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) **89** [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page90)
+## 頁面 89/112 [**<**]({{site.baseurl}}/miles/transcript/page88) [1]({{site.baseurl}}/miles/transcript/index) ... [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) **89** [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page90)

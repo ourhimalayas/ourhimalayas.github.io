@@ -1,7 +1,29 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 15/111 [**<**]({{site.baseurl}}/miles/transcript/page14) [1]({{site.baseurl}}/miles/transcript/index) ... [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) **15** [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page16)
+## 頁面 15/112 [**<**]({{site.baseurl}}/miles/transcript/page14) [1]({{site.baseurl}}/miles/transcript/index) ... [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) **15** [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page16)
+
+[郭文贵2021年11月18日盖特 20211118_1尊敬的战友们好，……你们健身了吗？传播C C P病毒……疫苗解药的真相了吗？新中国联邦正以．前所未有的速度．和巨大的力量，在推动停止人类正在面对的疫苗灾难！]({{site.baseurl}}/miles/transcript/2021/11/20211118-1093635)
+
+[郭文贵2021年11月18日盖特 20211118_2可爱的笨笨和Snow嬉闹的日常生活]({{site.baseurl}}/miles/transcript/2021/11/20211118-1093640)
+
+[郭文贵2021年11月18日盖特 20211118_3笨笨喜欢啃啃啃… 玩得好开心啊]({{site.baseurl}}/miles/transcript/2021/11/20211118-1093644)
+
+[郭文贵2021年11月18日盖特 20211118_4笨笨说，“Snow，出来跟我玩儿嘛……” Snow说, “我不要啦，让我静静的做个美男子好不好啦 ！”????]({{site.baseurl}}/miles/transcript/2021/11/20211118-1093645)
+
+[郭文贵2021年11月18日盖特 20211118_5自娱自乐模式启动????]({{site.baseurl}}/miles/transcript/2021/11/20211118-1093649)
+
+[郭文贵2021年11月17日盖特 20211117_2刚刚理完发的SNOW 欢迎七哥回家……]({{site.baseurl}}/miles/transcript/2021/11/20211117-1093630)
+
+[郭文贵2021年11月17日盖特 20211117_35个月的多多与2岁的笨笨……]({{site.baseurl}}/miles/transcript/2021/11/20211117-1093633)
+
+[郭文贵2021年11月17日直播 20211117_1再谈全球疫苗灾难；习拜视频会议信息；喜联储结构再分析；秦刚及美欧日动向]({{site.baseurl}}/miles/transcript/2021/11/20211117-1093796)
+
+[郭文贵2021年11月16日盖特 20211116_1尊敬的战友们好，你们健身了吗？你们传播C C P病毒．香港危机．疫苗解药的真相了吗？]({{site.baseurl}}/miles/transcript/2021/11/20211116-1093622)
+
+[郭文贵2021年11月16日盖特直播 20211116_2无论是对神和人都要兑现你的承诺]({{site.baseurl}}/miles/transcript/2021/11/20211116-1093626)
+
+[郭文贵2021年11月15日盖特 20211115_1尊敬的战友们好，你们健身了吗？传播C C P病毒和疫苗解药的真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/11/20211115-1093600)
 
 [郭文贵2021年11月15日盖特 20211115_2尊敬的战友们好，全世界都在准备着……共产党擀面杖子的虚假经济．即将崩塌，而准备各自的经济大逃亡……]({{site.baseurl}}/miles/transcript/2021/11/20211115-1093604)
 
@@ -31,27 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2021年11月7日直播 20211107_1爆料革命班农战斗室发起的百家私人企业起诉，第五法庭暂停拜登政府强制疫苗令的重大意义；虚拟币交易所，银行，币价，市值，估值与提现之间的关系；中共为了冬奥会，掩盖疫苗死亡真相；]({{site.baseurl}}/miles/transcript/2021/11/20211107-1093849)
 
-[郭文贵2021年11月7日盖特 20211107_2尊敬的战友们好……工作了一整天，吃了好几顿饭非常的兴奋，一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/11/20211107-1094499)
 
-[郭文贵2021年11月6日盖特 20211106_1尊敬的战友们好．你们健身了吗？传播．C C P病毒．香港危机．疫苗解药的真相了吗？七哥今天一天都和DC来的朋友开会，就没有时间录长视频了……明天的大直播间！]({{site.baseurl}}/miles/transcript/2021/11/20211106-1093748)
-
-[郭文贵2021年11月6日盖特 20211106_2尊敬的战友们好！正在努力加入喜联储开喜美元帐号，准备买喜币的战友们……一定准确快速正确的聪明的准备好KYC的有关材料，这是关键的关键！]({{site.baseurl}}/miles/transcript/2021/11/20211106-1093751)
-
-[郭文贵2021年11月5日直播 20211105_1危机中的财富与财富中的危机；投资，投机，投票权的关系；喜币价格涨的真实性，公平性，对比香港恒生指数的虚假；无知无善，一定要付出法律的代价]({{site.baseurl}}/miles/transcript/2021/11/20211105-1093492)
-
-[郭文贵2021年11月5日盖特 20211105_2尊敬的战友们好，今天星期五的大直播前．提前锻炼，因为今天没有时间锻炼了……任何情况下都不要给自己的承诺．和目标．找任何借口放弃！一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/11/20211105-1093550)
-
-[郭文贵2021年11月5日盖特直播 20211105_3浪漫不需要安排，真诚恒久远。]({{site.baseurl}}/miles/transcript/2021/11/20211105-1093617)
-
-[郭文贵2021年11月5日盖特直播 20211105_4再续直播]({{site.baseurl}}/miles/transcript/2021/11/20211105-1093745)
-
-[郭文贵2021年11月4日盖特 20211104_1尊敬的战友们好！你们健身了吗？传播CCP病毒，香港灾难和疫苗解药的真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/11/20211104-1093549)
-
-[郭文贵2021年11月3日直播 20211103_1彭帅爆张高丽丑闻，再次验证爆料革命的真实性；喜交所的上市标志着新中国联邦的中央银行，铸币中心成立了，这是新中国联邦人永远的财产；房地产税会灭国灭党；共和党在弗吉尼亚州长竞选]({{site.baseurl}}/miles/transcript/2021/11/20211103-1094164)
-
-[郭文贵2021年11月2日盖特 20211102_1尊敬的战友们好！永远不要忘了灭共是我们的最终使命！建立一个让中国有独立的法治……信仰的自由．民主的社会的新中国联邦共和国，是我们的信仰，和必须实现的目标，一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/11/20211102-1093543)
-
-[郭文贵2021年11月2日盖特直播 20211102_2]({{site.baseurl}}/miles/transcript/2021/11/20211102-1093546)
-
-
-## 頁面 15/111 [**<**]({{site.baseurl}}/miles/transcript/page14) [1]({{site.baseurl}}/miles/transcript/index) ... [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) **15** [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) ... [111]({{site.baseurl}}/miles/transcript/page111) [**>**]({{site.baseurl}}/miles/transcript/page16)
+## 頁面 15/112 [**<**]({{site.baseurl}}/miles/transcript/page14) [1]({{site.baseurl}}/miles/transcript/index) ... [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) **15** [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page16)
