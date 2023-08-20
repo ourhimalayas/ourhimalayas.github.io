@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 60/112 [**<**]({{site.baseurl}}/miles/transcript/page59) [1]({{site.baseurl}}/miles/transcript/index) ... [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) **60** [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page61)
 
+[郭文贵2020年2月21日第二次直播 20200221_2北京人民医院感染众多！疫情大爆发还没真正开始]({{site.baseurl}}/miles/transcript/2020/02/20200221-1091826)
+
+[郭文贵2020年2月21日第一次直播 20200221_1参加班农战斗室访谈]({{site.baseurl}}/miles/transcript/2020/02/20200221-1091858)
+
+[郭文贵2020年2月20日第二次直播 20200220_2再次提醒战友们同胞们2月29日是巨大的分水岭，呆家里莫上班]({{site.baseurl}}/miles/transcript/2020/02/20200220-1091804)
+
+[郭文贵2020年2月20日第一次直播 20200220_1参加班农战斗室第21期 谈武汉]({{site.baseurl}}/miles/transcript/2020/02/20200220-1091819)
+
 [郭文贵2020年2月19日直播 20200219_2郭文贵先生加入班农先生战斗室谈武汉疫情 高清版]({{site.baseurl}}/miles/transcript/2020/02/20200219-1088898)
 
 [郭文贵2020年2月19日 20200219参加班农先生的作战室第20期直播]({{site.baseurl}}/miles/transcript/2020/02/20200219-1091799)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年1月30日视频 20200130_2文貴在教堂為中國人祈福]({{site.baseurl}}/miles/transcript/2020/01/20200130-1089759)
 
 [郭文贵2020年1月30日视频 20200130_3沿着三年前习川会的小路走一走！【有1000个理由要搞好中美关系没有一个理由给搞坏中美关系。】]({{site.baseurl}}/miles/transcript/2020/01/20200130-1089762)
-
-[郭文贵2020年1月30日 20200130谈中南坑政治局常委有人会死]({{site.baseurl}}/miles/transcript/2020/01/20200130-1091760)
-
-[郭文贵2020年1月29日 20200129谈CCP统治下的孤国孤市孤镇孤]({{site.baseurl}}/miles/transcript/2020/01/20200129-1091747)
-
-[郭文贵2020年1月28日谈WHO已经认错 20200128CCP对疫情必须承担责任]({{site.baseurl}}/miles/transcript/2020/01/20200128-1091727)
-
-[郭文贵2020年1月27日谈科比意外死亡 20200127并呼吁中共在灾难面前以人命]({{site.baseurl}}/miles/transcript/2020/01/20200127-1091716)
 
 
 ## 頁面 60/112 [**<**]({{site.baseurl}}/miles/transcript/page59) [1]({{site.baseurl}}/miles/transcript/index) ... [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) **60** [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page61)

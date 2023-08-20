@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 46/112 [**<**]({{site.baseurl}}/miles/transcript/page45) [1]({{site.baseurl}}/miles/transcript/index) ... [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) **46** [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page47)
 
+[郭文贵2020年10月1日连线香草山 20201001美东香草山农场终共十一游行，在十八楼下连线七哥]({{site.baseurl}}/miles/transcript/2020/10/20201001-1093053)
+
+[郭文贵2020年9月28日盖特 20200928文贵去大教堂．为新中国联邦为爆料革命战友祈福]({{site.baseurl}}/miles/transcript/2020/09/20200928-1092900)
+
+[郭文贵2020年9月27日直播 20200927_1新中国联邦受到了世界多国的欢迎和认可，这是战友们共同团结和奉献的结果。]({{site.baseurl}}/miles/transcript/2020/09/20200927-1092895)
+
+[郭文贵2020年9月26日连线我是音雄 20200926_2《我是音雄》第一期复赛七哥空降现场，并发布震撼消息！]({{site.baseurl}}/miles/transcript/2020/09/20200926-1092888)
+
 [郭文贵2020年9月26日直播 20200926_1感谢在前线依法灭贼的战友们；依法灭贼的重大意义，是对战友勇气与智慧的考验]({{site.baseurl}}/miles/transcript/2020/09/20200926-1092983)
 
 [郭文贵2020年9月25日盖特 20200925尊敬的战友们好，你们健身了吗？你们传播CCP病毒．香港危机真相了吗？文贵聊聊．为什么要在全球依法灭贼！看过变态的性爱视频了]({{site.baseurl}}/miles/transcript/2020/09/20200925-1092969)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年9月14日盖特 20200914尊敬的战友们好……我们的英雄科学家的有关．中共开发的生化武器冠状病毒的．真相的报告，将重为拯救世界唯一的雅典娜希望！今天刚]({{site.baseurl}}/miles/transcript/2020/09/20200914-1092754)
 
 [郭文贵2020年9月13日盖特 20200913_1尊敬的战友们好。你们健身了吗？你们传播C C病毒香港危机真相了吗？共产党正在走向死亡的边缘，文贵正在全力以赴的帮助，共产党加]({{site.baseurl}}/miles/transcript/2020/09/20200913-1092801)
-
-[郭文贵2020年9月13日直播 20200913_2文贵唱播：以歌灭共；明天有大事；路德，闫博士都是灭共者；下周会有让中共意想不到的开战]({{site.baseurl}}/miles/transcript/2020/09/20200913-1092821)
-
-[郭文贵2020年9月12日做客战斗室 20200912郭文贵专场 中文摘要 EP383&384]({{site.baseurl}}/miles/transcript/2020/09/20200912-1092994)
-
-[郭文贵2020年9月11日盖特 20200911尊敬的战友们好，你们健身了吗？你们传播CCP病毒．香港危机真相了吗？衷心的感谢感激战友们对以歌灭共的支持！我们还要继续持之]({{site.baseurl}}/miles/transcript/2020/09/20200911-1092796)
-
-[郭文贵2020年9月10日盖特 20200910_1文贵将开创一个中老年人的生活方式，这是足球先生．郝海东老弟．羽毛球冠军．叶钊颖妹妹．虐待……郭文贵的证据]({{site.baseurl}}/miles/transcript/2020/09/20200910-1092782)
 
 
 ## 頁面 46/112 [**<**]({{site.baseurl}}/miles/transcript/page45) [1]({{site.baseurl}}/miles/transcript/index) ... [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) **46** [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page47)

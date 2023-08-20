@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 100/112 [**<**]({{site.baseurl}}/miles/transcript/page99) [1]({{site.baseurl}}/miles/transcript/index) ... [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) **100** [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page101)
 
+[郭文贵2018年3月24日视频 20180324报平安短视频]({{site.baseurl}}/miles/transcript/2018/03/20180324-1092469)
+
+[郭文贵2018年3月21日直播 20180321_2报平安短视频]({{site.baseurl}}/miles/transcript/2018/03/20180321-1087875)
+
+[郭文贵2018年3月21日视频 20180321谈江曾两家是如何以65%的利息放高利贷的]({{site.baseurl}}/miles/transcript/2018/03/20180321-1092429)
+
+[郭文贵2018年3月20日第一次直播 20180320_1今天我们完成了对．谣言．诽谤．威胁．文贵的陈军先生．袁健斌先生．林宇丹女士(美猴王)三个人的控告！我们绝不会忘掉一个帮助我文贵的任何一个恩人！也不会放过一个伤害我们的坏人！]({{site.baseurl}}/miles/transcript/2018/03/20180320-1092345)
+
 [郭文贵2018年3月20日第二次直播 20180320_2谈盗国贼靠吴征能依法治国实现中国梦吗]({{site.baseurl}}/miles/transcript/2018/03/20180320-1092374)
 
 [郭文贵2018年3月18日视频 20180318再谈如何掏肛盗国贼]({{site.baseurl}}/miles/transcript/2018/03/20180318-1092319)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年3月9日视频第一部分 20180309_1文贵有三急：（担心)马健副部长被心脏病死！陈希部长被出车祸！老领导被脑血管意外死亡！未来一些日子将腥风血雨！]({{site.baseurl}}/miles/transcript/2018/03/20180309-1092018)
 
 [郭文贵2018年3月8日直播 20180308_1修宪的本质和盗国有什么区别？以黑治国与2018两会什么关系？]({{site.baseurl}}/miles/transcript/2018/03/20180308-1087819)
-
-[郭文贵2018年3月7日报平安视频 20180307修宪是为了人民吗？当然不是．修宪的本质是恐惧！]({{site.baseurl}}/miles/transcript/2018/03/20180307-1092003)
-
-[郭文贵2018年3月5日直播 2018030517号后的两会你们会看到一个完全不一样的让你们惊讶的结果]({{site.baseurl}}/miles/transcript/2018/03/20180305-1087810)
-
-[郭文贵2018年3月4日第二次直播 20180304_2这是3月4号的视频！]({{site.baseurl}}/miles/transcript/2018/03/20180304-1091782)
-
-[郭文贵2018年3月4日第一次直播 20180304_1这是3月4日录制的第二个视频！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/03/20180304-1091813)
 
 
 ## 頁面 100/112 [**<**]({{site.baseurl}}/miles/transcript/page99) [1]({{site.baseurl}}/miles/transcript/index) ... [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) **100** [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page101)

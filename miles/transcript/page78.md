@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 78/112 [**<**]({{site.baseurl}}/miles/transcript/page77) [1]({{site.baseurl}}/miles/transcript/index) ... [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) **78** [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page79)
 
+[2019年7月6日直播全文字版：与彭文正先生连线——灭共保台]({{site.baseurl}}/miles/transcript/2019/07/20190706-1098104)
+
+[郭文贵2019年7月5日视频 20190705美国最高层“中国人站起来反抗，美国人一定跟上”]({{site.baseurl}}/miles/transcript/2019/07/20190705-1093334)
+
+[2019年7月5日文贵船上直播全文字版：从美国国庆日看中共的假丑黑恶]({{site.baseurl}}/miles/transcript/2019/07/20190705-1098098)
+
+[郭文贵2019年7月3日视频 20190703_2伪民运为什么敢在法院侮辱威胁文贵 高清部分内容]({{site.baseurl}}/miles/transcript/2019/07/20190703-1088593)
+
 [郭文贵2019年7月3日视频 20190703_1 (上)韦石．熊宪民．张维．郭宝胜．江涛．为什么敢在联邦法院庭上要杀掉文贵？侮辱威胁文贵？……联邦最有信誉的法官都无可奈何？]({{site.baseurl}}/miles/transcript/2019/07/20190703-1089287)
 
 [郭文贵2019年7月3日华盛顿车上直播 20190703Miles Kwok broadcast: Why Weishi, Xiong Xianmin, Zhang Wei, Guo Baosheng and...]({{site.baseurl}}/miles/transcript/2019/07/20190703-1093321)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年6月25日视频 20190625从香港的成功抗议行动！和近几天共产党的统一宣传口径！让我们看到了过去两年爆料革命所面临的挑战和！但是我们赢了过去的两年……以法灭共．以美灭共……郭七条．是我们最核心的战略！]({{site.baseurl}}/miles/transcript/2019/06/20190625-1093226)
 
 [2019年6月25日郭文贵先生直播全文字版：从香港的成功抗议行动，和近几天共产党的统一宣传口径，让我们看到了过去两年爆料革命所面临的挑战！]({{site.baseurl}}/miles/transcript/2019/06/20190625-1098086)
-
-[郭文贵2019年6月23日视频 20190623聊聊细丝小哥和庄列宏先生这＂两只黑手＂路德先生直播中发生的紧急事件。念从心起 力量无比 念念不忘 必有回响]({{site.baseurl}}/miles/transcript/2019/06/20190623-1093216)
-
-[2019年6月23日郭文贵先生直播全文字版：念从心起，力量无比；念念不忘，必有回响]({{site.baseurl}}/miles/transcript/2019/06/20190623-1098087)
-
-[郭文贵2019年6月22日 20190622中共如何和塔利班共同反恐]({{site.baseurl}}/miles/transcript/2019/06/20190622-1093315)
-
-[2019年6月22日文贵直播全文字版：中共如何和塔利班共同反恐]({{site.baseurl}}/miles/transcript/2019/06/20190622-1098083)
 
 
 ## 頁面 78/112 [**<**]({{site.baseurl}}/miles/transcript/page77) [1]({{site.baseurl}}/miles/transcript/index) ... [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) **78** [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page79)

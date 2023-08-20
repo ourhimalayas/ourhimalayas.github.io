@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 79/112 [**<**]({{site.baseurl}}/miles/transcript/page78) [1]({{site.baseurl}}/miles/transcript/index) ... [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) **79** [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page80)
 
+[郭文贵2019年6月23日视频 20190623聊聊细丝小哥和庄列宏先生这＂两只黑手＂路德先生直播中发生的紧急事件。念从心起 力量无比 念念不忘 必有回响]({{site.baseurl}}/miles/transcript/2019/06/20190623-1093216)
+
+[2019年6月23日郭文贵先生直播全文字版：念从心起，力量无比；念念不忘，必有回响]({{site.baseurl}}/miles/transcript/2019/06/20190623-1098087)
+
+[郭文贵2019年6月22日 20190622中共如何和塔利班共同反恐]({{site.baseurl}}/miles/transcript/2019/06/20190622-1093315)
+
+[2019年6月22日文贵直播全文字版：中共如何和塔利班共同反恐]({{site.baseurl}}/miles/transcript/2019/06/20190622-1098083)
+
 [郭文贵2019年6月20日视频 20190620王毅讲的潘多拉盒子是什么意思]({{site.baseurl}}/miles/transcript/2019/06/20190620-1093305)
 
 [2019年6月20日郭文贵先生直播全文字版：谈王毅讲的潘多拉盒子是什么意思]({{site.baseurl}}/miles/transcript/2019/06/20190620-1098085)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年6月12日视频 20190612_3文贵先生直播：最终结果立法推迟3時36分]({{site.baseurl}}/miles/transcript/2019/06/20190612-1089602)
 
 [郭文贵2019年6月12日视频 20190612_4喜马拉雅连线香港前线战友！5時58分]({{site.baseurl}}/miles/transcript/2019/06/20190612-1089754)
-
-[郭文贵2019年6月12日视频 20190612_5衷心的为香港的所有同胞祈愿 香港的事情还要有一定的时间发展 所有的在香港现场的同胞们朋友们战友们务必注意安全不要低估了C C P的恶魔的凶残本性]({{site.baseurl}}/miles/transcript/2019/06/20190612-1089756)
-
-[郭文贵2019年6月12日与细思直播 20190612如何布局最后部分谈8964监狱风]({{site.baseurl}}/miles/transcript/2019/06/20190612-1093136)
-
-[郭文贵2019年6月11日视频 20190611_1郭文贵先生直播连线香港]({{site.baseurl}}/miles/transcript/2019/06/20190611-1089548)
-
-[郭文贵2019年6月10日视频 20190610_2与文贵，班农直播，连线Crystal西行小宝等参加游行的战友们 “细思翻译爷爷上线”]({{site.baseurl}}/miles/transcript/2019/06/20190610-1089216)
 
 
 ## 頁面 79/112 [**<**]({{site.baseurl}}/miles/transcript/page78) [1]({{site.baseurl}}/miles/transcript/index) ... [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) **79** [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page80)

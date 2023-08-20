@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 68/112 [**<**]({{site.baseurl}}/miles/transcript/page67) [1]({{site.baseurl}}/miles/transcript/index) ... [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) **68** [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page69)
 
+[郭文贵2019年10月20日视频 20191020_1大家分享纽约雨天船上时光]({{site.baseurl}}/miles/transcript/2019/10/20191020-1089587)
+
+[2019年10月18日文贵大直播全文字版：郭先生与战友们聊天：美国引领全球反共，港人宁死不屈，是反共先锋！]({{site.baseurl}}/miles/transcript/2019/10/20191018-1087423)
+
+[郭文贵2019年10月18日视频 20191018_2一個半小时后，纽约时间18号上午9點半到10點之间．文贵将在郭媒体．开始今天的直播！不爆料，就是与战友们聊天]({{site.baseurl}}/miles/transcript/2019/10/20191018-1089585)
+
+[郭文贵2019年10月18日 20191018美国引领全球反共，港人宁死不屈，是反共先锋！]({{site.baseurl}}/miles/transcript/2019/10/20191018-1093703)
+
 [郭文贵2019年10月17日视频 20191017_1岑子杰被害背後的真相已逐漸浮出水面 我們一定要追究 我今天整天參加秘密聽證會 不能直播]({{site.baseurl}}/miles/transcript/2019/10/20191017-1089583)
 
 [2019年10月16日、17日郭文贵先生直播视频 共产党利用黑社会杀手手段 残害香港议员岑子杰先生以及被害真相浮出水面（合集）全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191016-1087415)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年10月10日视频 20191010台湾双十国庆 关注王岐山美国双十会谈中共诡计是否会得逞]({{site.baseurl}}/miles/transcript/2019/10/20191010-1093820)
 
 [2019年10月10日文贵大直播全文字版：报平安直播，台湾双十国庆 关注王岐山美国双十会谈中共诡计是否会得逞]({{site.baseurl}}/miles/transcript/2019/10/20191010-1098249)
-
-[2019年10月9日 港人的好日子要来了，美对CCP将有雷霆行动，不仅仅制裁 全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191009-1087416)
-
-[2019年10月9日 港人的好日子要来了，美对CCP将有雷霆行动，不仅仅制裁  全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191009-1087420)
-
-[郭文贵2019年10月9日视频 20191009_2文贵与战友分享与可爱的Snow和纯种松狮笨笨．在家一起渡过欢乐的时光！]({{site.baseurl}}/miles/transcript/2019/10/20191009-1089557)
-
-[郭文贵2019年10月9日视频 20191009港人的好日子要来了，美对CCP将有雷霆行动，不仅仅制裁]({{site.baseurl}}/miles/transcript/2019/10/20191009-1093814)
 
 
 ## 頁面 68/112 [**<**]({{site.baseurl}}/miles/transcript/page67) [1]({{site.baseurl}}/miles/transcript/index) ... [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) **68** [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page69)

@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 74/112 [**<**]({{site.baseurl}}/miles/transcript/page73) [1]({{site.baseurl}}/miles/transcript/index) ... [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) **74** [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page75)
 
+[2019年8月12日文贵大直播全文字版：报平安 和在车上直播合集：香港人现在的遭遇和共产党在香港的镇压]({{site.baseurl}}/miles/transcript/2019/08/20190812-1098190)
+
+[郭文贵2019年8月11日视频 20190811Mr. Miles Kwok live stream: please focus your attention on Hong Kong, in order to stop...]({{site.baseurl}}/miles/transcript/2019/08/20190811-1093509)
+
+[2019年8月11日《文贵大直播》全文字版：船上直播高度关注香港]({{site.baseurl}}/miles/transcript/2019/08/20190811-1098171)
+
+[郭文贵2019年8月10日视频 20190810Today is a good day, Miles proudly announcing from the "bed": our Exposé Revolution...]({{site.baseurl}}/miles/transcript/2019/08/20190810-1093494)
+
 [2019年8月10日《文贵大直播》全文字版：今天是个好日子，开启灭共第三战场]({{site.baseurl}}/miles/transcript/2019/08/20190810-1098158)
 
 [郭文贵2019年8月9日视频 20190809_2昨晚歐洲發生了大事]({{site.baseurl}}/miles/transcript/2019/08/20190809-1089408)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年8月1日视频 20190801_3戒严令由戒严指挥部统一指挥]({{site.baseurl}}/miles/transcript/2019/08/20190801-1089395)
 
 [郭文贵2019年8月1日视频 20190801共产党下达香港戒严令]({{site.baseurl}}/miles/transcript/2019/08/20190801-1093433)
-
-[郭文贵2019年7月31日视频 20190731_2我们的Snow 躺在地上耍赖要求文贵 给他挠痒痒。我不理他．他就躺着那里装作睡着]({{site.baseurl}}/miles/transcript/2019/07/20190731-1089381)
-
-[郭文贵2019年7月31日第二次直播 20190731_3上海西郊宾馆开启共产党死亡第二战场]({{site.baseurl}}/miles/transcript/2019/07/20190731-1093427)
-
-[郭文贵2019年7月31日第一次直播 20190731_1爆猛料遭黑客疯狂攻击]({{site.baseurl}}/miles/transcript/2019/07/20190731-1093432)
-
-[2019年7月31日文贵大直播全文字版：爆猛料遭黑客疯狂攻击]({{site.baseurl}}/miles/transcript/2019/07/20190731-1098126)
 
 
 ## 頁面 74/112 [**<**]({{site.baseurl}}/miles/transcript/page73) [1]({{site.baseurl}}/miles/transcript/index) ... [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) **74** [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page75)

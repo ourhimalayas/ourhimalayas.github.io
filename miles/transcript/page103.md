@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 103/112 [**<**]({{site.baseurl}}/miles/transcript/page102) [1]({{site.baseurl}}/miles/transcript/index) ... [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) **103** [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page104)
 
+[郭文贵2018年2月1日 20180201为什么有假郭媒体网站，诚征春晚节目，请网友踊跃投稿]({{site.baseurl}}/miles/transcript/2018/02/20180201-1094627)
+
+[郭文贵2018年1月31日视频 20180131尊敬的战友们好！文贵现在回答很多战友问题．是否可以参与文贵看春晚的节目！]({{site.baseurl}}/miles/transcript/2018/01/20180131-1094460)
+
+[郭文贵2018年1月30日第三次直播 20180130_3国内的很多战友给我发来信息．问文贵看春晚的节目的重点是什么现在我向大家汇报！]({{site.baseurl}}/miles/transcript/2018/01/20180130-1094620)
+
+[郭文贵2018年1月30日第二次直播 20180130_2回应“盲流子”视频，披露相关背景；谈王岐山“复出”和“文贵春晚”。]({{site.baseurl}}/miles/transcript/2018/01/20180130-1094622)
+
 [郭文贵2018年1月30日第一次直播 20180130_1关于盲流子爆料]({{site.baseurl}}/miles/transcript/2018/01/20180130-1094716)
 
 [郭文贵2018年1月29日直播 20180129_1郭媒体视频郭文贵先生春节晚会节目预告]({{site.baseurl}}/miles/transcript/2018/01/20180129-1093308)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年12月12日 20171212文贵给即将在大连被冤审的员工及家人的誓言；谈小平妻子失踪，法新社采访，华涌及乱运8分子]({{site.baseurl}}/miles/transcript/2017/12/20171212-1094458)
 
 [郭文贵2017年12月9日 20171209纽约下大雪了！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2017/12/20171209-1094452)
-
-[郭文贵2017年12月8日视频 20171208一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2017/12/20171208-1094449)
-
-[郭文贵2017年12月5日 20171205尊敬的推友们你们健身了吗？]({{site.baseurl}}/miles/transcript/2017/12/20171205-1094445)
-
-[郭文贵2017年12月2日视频 20171202]({{site.baseurl}}/miles/transcript/2017/12/20171202-1094444)
-
-[郭文贵2017年11月27日 20171127郭文贵纽约的房子的价格为什么发生了问题？]({{site.baseurl}}/miles/transcript/2017/11/20171127-1094439)
 
 
 ## 頁面 103/112 [**<**]({{site.baseurl}}/miles/transcript/page102) [1]({{site.baseurl}}/miles/transcript/index) ... [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) **103** [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page104)

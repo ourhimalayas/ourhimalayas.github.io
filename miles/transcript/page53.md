@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 53/112 [**<**]({{site.baseurl}}/miles/transcript/page52) [1]({{site.baseurl}}/miles/transcript/index) ... [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) **53** [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page54)
 
+[郭文贵2020年6月17日视频 20200617_2有在旧金山湾区的战友们 请战友帮忙在斯坦福大学附近购买或租赁2万尺到4万尺的写字楼]({{site.baseurl}}/miles/transcript/2020/06/20200617-1089843)
+
+[郭文贵2020年6月17日视频 20200617_3衷心地感谢硅谷的战友们在过去的24小时．提供的有关在硅谷寻找的房产信息，由于巨量的信息．导致了当地的房地产中介市场的混乱，我们现在指定由一个我们的战友小羊女士]({{site.baseurl}}/miles/transcript/2020/06/20200617-1089848)
+
+[郭文贵2020年6月17日视频 20200617_4所有被确认成功投资后的GTV投资者都将会收到一封投资成功确认函没有被退款的战友不用咨询请耐心等待回复]({{site.baseurl}}/miles/transcript/2020/06/20200617-1089849)
+
+[郭文贵2020年6月17日直播 20200617GTV投资和查询股票及夏威夷会议及喜马拉雅农场，新中国联邦的巨大影响力]({{site.baseurl}}/miles/transcript/2020/06/20200617-1094203)
+
 [郭文贵2020年6月16日直播 20200616回答战友们关于G币，GTV投资诉讼的问题；请大家注意挑拨离间的CCP特务；夏威夷将是中共的噩梦]({{site.baseurl}}/miles/transcript/2020/06/20200616-1094197)
 
 [郭文贵2020年6月15日视频 20200615_6七哥耍球棒]({{site.baseurl}}/miles/transcript/2020/06/20200615-1089836)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年6月4日视频 20200604_4新中國聯邦成立後大雨傾盆]({{site.baseurl}}/miles/transcript/2020/06/20200604-1089871)
 
 [郭文贵2020年6月4日 20200604_3新中国联邦宣言的历史意义]({{site.baseurl}}/miles/transcript/2020/06/20200604-1092446)
-
-[郭文贵2020年6月4日新中国联邦成立 20200604_1郭先生宣布新中国联邦正式成立，郝海东先生班农先生宣读新中国联邦宣言]({{site.baseurl}}/miles/transcript/2020/06/20200604-1094215)
-
-[郭文贵2020年6月4日参访众战友 20200604_2新中国联邦宣言仪式后参访众战友]({{site.baseurl}}/miles/transcript/2020/06/20200604-1094228)
-
-[郭文贵2020年6月2日 20200602正式宣布GTV完成私募]({{site.baseurl}}/miles/transcript/2020/06/20200602-1093033)
-
-[郭文贵2020年5月30日第一次直播 20200530_1]({{site.baseurl}}/miles/transcript/2020/05/20200530-1092571)
 
 
 ## 頁面 53/112 [**<**]({{site.baseurl}}/miles/transcript/page52) [1]({{site.baseurl}}/miles/transcript/index) ... [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) **53** [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page54)

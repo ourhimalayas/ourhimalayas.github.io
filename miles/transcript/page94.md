@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 94/112 [**<**]({{site.baseurl}}/miles/transcript/page93) [1]({{site.baseurl}}/miles/transcript/index) ... [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) **94** [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page95)
 
+[郭文贵2018年8月26日视频 20180826应战友们的要求发一个Snow现在的生活视频]({{site.baseurl}}/miles/transcript/2018/08/20180826-1087773)
+
+[郭文贵2018年8月24日视频 20180824澳大利亚是西方向中共说不的开始！西方的一根筋为什么能赢中共的千招会！西方用法律．宗教．科技．赢到了什么！]({{site.baseurl}}/miles/transcript/2018/08/20180824-1093028)
+
+[郭文贵2018年8月23日视频 20180823在船上谈王建]({{site.baseurl}}/miles/transcript/2018/08/20180823-1093024)
+
+[郭文贵2018年8月20日视频 20180820_2Snow小视频]({{site.baseurl}}/miles/transcript/2018/08/20180820-1088672)
+
 [郭文贵2018年8月20日视频 20180820]({{site.baseurl}}/miles/transcript/2018/08/20180820-1092991)
 
 [郭文贵2018年8月19日直播 20180819_1紧急会议前苍促视频报平安]({{site.baseurl}}/miles/transcript/2018/08/20180819-1088690)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年8月8日直播 20180808_1想念战友]({{site.baseurl}}/miles/transcript/2018/08/20180808-1088618)
 
 [郭文贵2018年8月8日直播 20180808_2与国内来的女朋友海边兜风️️️]({{site.baseurl}}/miles/transcript/2018/08/20180808-1088621)
-
-[郭文贵2018年8月8日直播 20180808_3感恩珍惜推特这个平台]({{site.baseurl}}/miles/transcript/2018/08/20180808-1088626)
-
-[郭文贵2018年8月8日直播 20180808_4盗国贼为了掩盖杀王建的罪恶接下来将有以下的行动]({{site.baseurl}}/miles/transcript/2018/08/20180808-1088630)
-
-[郭文贵2018年8月8日直播 20180808_5起诉欺民贼以爆料文贵上帝的名义诈骗的郭宝胜只是刚刚开始]({{site.baseurl}}/miles/transcript/2018/08/20180808-1088640)
-
-[郭文贵2018年8月8日直播 20180808_6下一周是给盗国贼反击的时间文贵要准备发布会和刑事案件具体落实一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2018/08/20180808-1088643)
 
 
 ## 頁面 94/112 [**<**]({{site.baseurl}}/miles/transcript/page93) [1]({{site.baseurl}}/miles/transcript/index) ... [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) **94** [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page95)

@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 36/112 [**<**]({{site.baseurl}}/miles/transcript/page35) [1]({{site.baseurl}}/miles/transcript/index) ... [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) **36** [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page37)
 
+[郭文贵2021年3月2日直播 20210302_1以毒灭共，势不可挡；GTV椅子战友请与各农场联系，新的GTV将更好的发挥灭共平台的作用；文贵为战友们而战！]({{site.baseurl}}/miles/transcript/2021/03/20210302-1090809)
+
+[郭文贵2021年3月2日盖特 20210302_2尊敬的战友们好，你们感受到以毒灭共．以钱灭共的巨大的力量了￼吗？你们感受到过去的24小时这个世界联合灭共的力量开始集结了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/03/20210302-1090814)
+
+[郭文贵2021年3月2日盖特 20210302_3很多兄弟姐妹战友……发的信息不能一一而回……我一直在会议中，稍后大约在今天晚上……的6:30和7:30之间，我可能直播乱聊]({{site.baseurl}}/miles/transcript/2021/03/20210302-1090815)
+
+[郭文贵2021年3月1日盖特 20210301_1尊敬的战友得好！稍后在今天稍晚的时间，我将有一个重要的公告，关于GTV将退还所有的13OO投资者椅的公告……我们不会妥协，也不会被任何机构玩弄……我们爆料革命的平台，只能．越来越强越]({{site.baseurl}}/miles/transcript/2021/03/20210301-1090811)
+
 [郭文贵2021年2月28日盖特 20210228_1尊敬的战友们好！文贵正在尝试，让自己获得不高兴的心情，然后今天晚上在直播！文贵谈谈共产党的流氓文化……和把我们14亿中国人民不当猪狗的流氓逻辑]({{site.baseurl}}/miles/transcript/2021/02/20210228-1090782)
 
 [郭文贵2021年2月28日直播 20210228_2为了确保战友的利益，文贵做出的最终决定，确保Ｇ系列控制权一定都在战友手中]({{site.baseurl}}/miles/transcript/2021/02/20210228-1090801)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年2月19日直播 20210219_1]({{site.baseurl}}/miles/transcript/2021/02/20210219-1090724)
 
 [郭文贵2021年2月19日直播 20210219_2]({{site.baseurl}}/miles/transcript/2021/02/20210219-1090728)
-
-[郭文贵2021年2月18日直播 20210218_1南普陀计划得到验证，江习大战进入最后时刻， 江扶植韩正当傀儡接班人；川普是我们永远的朋友；九指妖集团造郝海东假音频]({{site.baseurl}}/miles/transcript/2021/02/20210218-1090718)
-
-[郭文贵2021年2月17日直播 20210217_1马云被抓，今年是南普陀计划的收割年；江家是沼泽地的一部分；新中国联邦将是主角]({{site.baseurl}}/miles/transcript/2021/02/20210217-1090715)
-
-[郭文贵2021年2月16日直播 20210216_1文贵讲的关于电影《白虎》和“灭白计划”，反响强烈；欧洲，日本即将对中共会有大动作；战友们一定赶快找九指妖要钱]({{site.baseurl}}/miles/transcript/2021/02/20210216-1090714)
-
-[郭文贵2021年2月15日盖特 20210215_1尊敬的战友们好，你们健身了吗？你们传播C C P病毒香港危机真相了吗？文贵今天晚上6:40乱聊电影直播……]({{site.baseurl}}/miles/transcript/2021/02/20210215-1090695)
 
 
 ## 頁面 36/112 [**<**]({{site.baseurl}}/miles/transcript/page35) [1]({{site.baseurl}}/miles/transcript/index) ... [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) **36** [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page37)

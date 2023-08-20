@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 48/112 [**<**]({{site.baseurl}}/miles/transcript/page47) [1]({{site.baseurl}}/miles/transcript/index) ... [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) **48** [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page49)
 
+[郭文贵2020年8月29日连线旧金山 20200829_5]({{site.baseurl}}/miles/transcript/2020/08/20200829-1092675)
+
+[郭文贵2020年8月29日连线台湾 20200829_6sara和郭先生与台湾连线]({{site.baseurl}}/miles/transcript/2020/08/20200829-1092689)
+
+[郭文贵2020年8月28日直播 20200828_2连线澳洲喜馬拉雅農場]({{site.baseurl}}/miles/transcript/2020/08/20200828-1092628)
+
+[郭文贵2020年8月28日直播 20200828_1连线澳洲喜馬拉雅農場]({{site.baseurl}}/miles/transcript/2020/08/20200828-1092843)
+
 [郭文贵2020年8月25日盖特 20200825_28月25号 尊敬的战友们好．请大家的焦点定在中共在美国实施的法律超限战。……，的事情，请大家关注华尔街日报，以及美国司法部，披露的中共在]({{site.baseurl}}/miles/transcript/2020/08/20200825-1092690)
 
 [郭文贵2020年8月25日直播 20200825加拿大农场的战略性胜利堪比中途岛战役；司法部文件开启以法灭共；美国民主党不承认“一中”]({{site.baseurl}}/miles/transcript/2020/08/20200825-1092829)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年8月15日盖特 20200815_215日：文贵莲花刀法．与班农先生分吃，我太太在我家菜园里种的哈密瓜！]({{site.baseurl}}/miles/transcript/2020/08/20200815-1092718)
 
 [郭文贵2020年8月14日盖特 202008148月14号刚刚的直播．被黑断播了…文贵几个小时内．不再继续直播，今天GTV升级后再回复直播，大概在今天下午的时间吧…衷心的感谢日本战友]({{site.baseurl}}/miles/transcript/2020/08/20200814-1092614)
-
-[郭文贵2020年8月13日盖特 202008138月13号尊敬的战友们好，你们健身了吗？你们传播C C P病毒…香港危机真相了吗？文贵在这里向战友报告正在进行时…发生几个事情]({{site.baseurl}}/miles/transcript/2020/08/20200813-1092611)
-
-[郭文贵2020年8月12日直播 20200812_3中共香港抓捕黎智英惹众怒，港人的团结击破中共白色恐怖！]({{site.baseurl}}/miles/transcript/2020/08/20200812-1088904)
-
-[郭文贵2020年8月12日盖特 202008128月12号尊敬的战友们好，你们健身了吗？你们传播C C P病毒．香港危机真相了吗？文贵在半夜向战友们问好]({{site.baseurl}}/miles/transcript/2020/08/20200812-1092599)
-
-[郭文贵2020年8月12日直播 20200812_2美灭共大锤如期一一砸下；下一制裁目标阿里巴巴，百度；文贵与战友们与中共展开智慧游击战]({{site.baseurl}}/miles/transcript/2020/08/20200812-1092607)
 
 
 ## 頁面 48/112 [**<**]({{site.baseurl}}/miles/transcript/page47) [1]({{site.baseurl}}/miles/transcript/index) ... [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) **48** [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page49)

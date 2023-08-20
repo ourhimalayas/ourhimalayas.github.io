@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 101/112 [**<**]({{site.baseurl}}/miles/transcript/page100) [1]({{site.baseurl}}/miles/transcript/index) ... [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) **101** [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page102)
 
+[郭文贵2018年3月7日报平安视频 20180307修宪是为了人民吗？当然不是．修宪的本质是恐惧！]({{site.baseurl}}/miles/transcript/2018/03/20180307-1092003)
+
+[郭文贵2018年3月5日直播 2018030517号后的两会你们会看到一个完全不一样的让你们惊讶的结果]({{site.baseurl}}/miles/transcript/2018/03/20180305-1087810)
+
+[郭文贵2018年3月4日第二次直播 20180304_2这是3月4号的视频！]({{site.baseurl}}/miles/transcript/2018/03/20180304-1091782)
+
+[郭文贵2018年3月4日第一次直播 20180304_1这是3月4日录制的第二个视频！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/03/20180304-1091813)
+
 [郭文贵2018年3月4日报平安视频 20180304_3文贵呼吁所有的援郭的战友们以家庭安全．正常生活为重……全球一致行动！]({{site.baseurl}}/miles/transcript/2018/03/20180304-1091883)
 
 [郭文贵2018年3月3日视频 20180303出其不意 ,会师挺郭后援会成员! 场面感人!!!]({{site.baseurl}}/miles/transcript/2018/03/20180303-1087870)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年2月12日视频 20180212_3 三小时版本郭文贵首次在郭媒体上直播！放出博讯拿钱删帖证据！对陈军做最后一次说明！大量网友互动内中有猛料！]({{site.baseurl}}/miles/transcript/2018/02/20180212-1087855)
 
 [郭文贵2018年2月12日 20180212_2首次在郭媒体直播放博讯拿一删帖证据,对陈军最后一次说明,网友互动中有猛料第二段]({{site.baseurl}}/miles/transcript/2018/02/20180212-1091887)
-
-[郭文贵2018年2月12日 20180212_1郭文贵首次在郭媒体上直播！放出博讯拿钱删帖证据！对陈军做最后一次说明！大量网友互动内中有猛料！]({{site.baseurl}}/miles/transcript/2018/02/20180212-1094617)
-
-[郭文贵2018年2月11日视频 20180211_2郭文贵安保有漏洞，是谁向上海局报告的？]({{site.baseurl}}/miles/transcript/2018/02/20180211-1087665)
-
-[郭文贵2018年2月11日 20180211_1为什么这么多战友支持文贵]({{site.baseurl}}/miles/transcript/2018/02/20180211-1094588)
-
-[郭文贵2018年2月10日第五次直播 20180210_5大骗子吴征的汉奸爷爷，真的救过几万个犹太人么？]({{site.baseurl}}/miles/transcript/2018/02/20180210-1094484)
 
 
 ## 頁面 101/112 [**<**]({{site.baseurl}}/miles/transcript/page100) [1]({{site.baseurl}}/miles/transcript/index) ... [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) **101** [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page102)

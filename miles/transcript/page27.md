@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 27/112 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page28)
 
+[郭文贵2021年6月18日盖特 20210618_1以黄灭共开始，杨澜黑森林后，还有宋祖英，汤灿。。中共国在崩塌前会有大量高官叛逃！]({{site.baseurl}}/miles/transcript/2021/06/20210618-1091589)
+
+[郭文贵2021年6月17日直播 20210617_1以黄灭共正式开始；爆料三品兰，李萍，李薇，汤灿，爆肛芳等与中南坑老杂毛的故事；各农场怎样做好直播节目]({{site.baseurl}}/miles/transcript/2021/06/20210617-1091560)
+
+[郭文贵2021年6月17日盖特 20210617_2]({{site.baseurl}}/miles/transcript/2021/06/20210617-1091565)
+
+[郭文贵2021年6月16日盖特 20210616_2]({{site.baseurl}}/miles/transcript/2021/06/20210616-1089819)
+
 [郭文贵2021年6月16日盖特 20210616_1香港运动两周年之际，文贵感触很多……为什么最近我要再报杨澜．吴征黑森林的故事呢？]({{site.baseurl}}/miles/transcript/2021/06/20210616-1091563)
 
 [郭文贵2021年6月15日直播 20210615_1三品澜．吴征夫妻俩．性贿赂中国．国际多名高官……骗钱害命多人……黑幕被多个专案组掩盖．为什么？]({{site.baseurl}}/miles/transcript/2021/06/20210615-1091541)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年6月5日直播 20210605_1 感恩自由女神！天佑新中国联邦！]({{site.baseurl}}/miles/transcript/2021/06/20210605-1091496)
 
 [郭文贵2021年6月5日盖特 20210605_2与SNOW 玩对食！]({{site.baseurl}}/miles/transcript/2021/06/20210605-1091507)
-
-[郭文贵2021年6月4日直播 20210604_1新中国联邦一周年庆典]({{site.baseurl}}/miles/transcript/2021/06/20210604-1091490)
-
-[郭文贵2021年6月4日直播 20210604_2文贵谈新中国联邦周年庆观后感，及国内的反响；三个重镑人物，军事大佬弗林将军，经济沼泽地摩根家族，政治新星枕头哥；更多新中国联邦的新人，有才能的战友将涌现出来]({{site.baseurl}}/miles/transcript/2021/06/20210604-1091504)
-
-[郭文贵2021年6月4日盖特 20210604_3尊敬的战友们好！新的一天已经开始……世界政治，经济，军事的全面处在动荡的和战争的边缘。我们务必要强大我们自己！抓住这个历史关键的时刻……实现我们以钱灭共．以毒灭共.以共灭共．]({{site.baseurl}}/miles/transcript/2021/06/20210604-1091506)
-
-[郭文贵2021年6月3日盖特 20210603_1尊敬的战友们好，我们一起来向万佛万神祈福，我们新中国联邦一周年……在自由之塔的庆祝活动圆满成功，也祈求万佛万神．从今天起唤醒这个贪婪被共产主义蒙蔽了的黑暗的世界！从今天起让]({{site.baseurl}}/miles/transcript/2021/06/20210603-1091424)
 
 
 ## 頁面 27/112 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page28)

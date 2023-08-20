@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 86/112 [**<**]({{site.baseurl}}/miles/transcript/page85) [1]({{site.baseurl}}/miles/transcript/index) ... [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) **86** [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page87)
 
+[郭文贵2019年1月17日第二次直播 20190117_2尊敬的战友们好，你们健身了吗！文贵向你们报告出席华盛顿一系列的活动和几个重大的采访]({{site.baseurl}}/miles/transcript/2019/01/20190117-1092239)
+
+[郭文贵2019年1月17日第一次直播 20190117_1中美贸易谈判崩裂意味着什么????文贵在这里向你们报告一下！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/01/20190117-1094201)
+
+[郭文贵2019年1月16日视频第一部分 20190116_1报平安直播，因春晚收到了国内盗国贼各方的威胁，以及接下来将对盗国贼子女海外资产的一系列行动，慈善基金可能将成为第一个有回报的慈善基金]({{site.baseurl}}/miles/transcript/2019/01/20190116-1092227)
+
+[郭文贵2019年1月16日视频第二部分 20190116_2王健被谋杀之密有了重大进展。吴征还有博讯, 马蕊强奸案有了重大的实质性的证据证明吴征被CCP控制]({{site.baseurl}}/miles/transcript/2019/01/20190116-1092234)
+
 [郭文贵2019年1月15日视频 20190115_1两天前！我出去见朋友！CCP很多人跟踪我！他们这种做法一定会受到美国的法律的严惩]({{site.baseurl}}/miles/transcript/2019/01/20190115-1089042)
 
 [郭文贵2019年1月14日视频 20190114_1你们知道我昨天去见的是谁吗]({{site.baseurl}}/miles/transcript/2019/01/20190114-1089032)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年1月2日视频 20190102_1乔布斯与他带有神秘色彩的设计的游艇太牛了]({{site.baseurl}}/miles/transcript/2019/01/20190102-1088984)
 
 [郭文贵2019年1月2日视频 20190102_2风中的Snow]({{site.baseurl}}/miles/transcript/2019/01/20190102-1088987)
-
-[郭文贵2019年1月1日视频 20190101_2以法灭共开始倒计时]({{site.baseurl}}/miles/transcript/2019/01/20190101-1088981)
-
-[郭文贵2019年1月1日视频 20190101接受木兰访谈的卡丽熙，什么时候放91号文件，刘承杰他爹到底是谁，共产党会怎样灭亡，2019我们做什么。]({{site.baseurl}}/miles/transcript/2019/01/20190101-1092074)
-
-[郭文贵2018年12月31日视频 20181231_1明天2019年1月1日纽约时间上午10点整，北京时间晚上11点整，卡丽熙將采访郭文贵]({{site.baseurl}}/miles/transcript/2018/12/20181231-1088979)
-
-[郭文贵2018年12月30日视频 20181230_1川普总统将向CCP要求中国人必须有宗教的自由．信仰的自由！]({{site.baseurl}}/miles/transcript/2018/12/20181230-1088977)
 
 
 ## 頁面 86/112 [**<**]({{site.baseurl}}/miles/transcript/page85) [1]({{site.baseurl}}/miles/transcript/index) ... [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) **86** [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page87)

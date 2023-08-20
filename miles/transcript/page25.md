@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 25/112 [**<**]({{site.baseurl}}/miles/transcript/page24) [1]({{site.baseurl}}/miles/transcript/index) ... [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) **25** [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page26)
 
+[郭文贵2021年7月20日直播 20210720_1河南政府腐败，工程腐败，这次的灾难是必然，不是天灾而是人祸；传播洪水真相，死亡人数一定从万起步；世界经济会出大事]({{site.baseurl}}/miles/transcript/2021/07/20210720-1091846)
+
+[郭文贵2021年7月19日盖特 20210719_1尊敬的战友们好，你们健身了吗？传播C C P病毒．香港危机真相了吗？灭共已经到了最关键的时刻，我们全球的战友们．越是在这个时候越要擦亮眼睛．辩善恶是非．一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/07/20210719-1091825)
+
+[郭文贵2021年7月18日直播 20210718_1爆料革命是最早在2019年6月警告中共生化武器的；共产党在做垂死挣扎，全球灭共已无人可挡！]({{site.baseurl}}/miles/transcript/2021/07/20210718-1091803)
+
+[郭文贵2021年7月18日直播 20210718_2]({{site.baseurl}}/miles/transcript/2021/07/20210718-1091815)
+
 [郭文贵2021年7月17日盖特 20210717_1尊敬的战友们好．新中国联邦灭共后．未来最大的挑战之一……就是让中国人有基本的辨别善恶的能力。 共产党的内部的政治斗争……已经到了最后的阶段……准备好中南城的老杂毛们……随时给]({{site.baseurl}}/miles/transcript/2021/07/20210717-1091821)
 
 [郭文贵2021年7月16日直播 20210716_1从近几天发生的一系列事件来看．我们爆料革命升级的一个契机]({{site.baseurl}}/miles/transcript/2021/07/20210716-1091769)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年7月4日直播 20210704_1世界自由独立日文贵直播，特邀嘉宾班农先生：祝贺盖特成功上线，中共疯狂攻击盖特的原因！]({{site.baseurl}}/miles/transcript/2021/07/20210704-1091735)
 
 [郭文贵2021年7月3日盖特 20210703_1北京天安门上发生的一系列的事件．和天安门广场两侧发生的还没有公布的政治灾难．都将极大地促进中共国的三国政治到了最后的绞杀阶段！]({{site.baseurl}}/miles/transcript/2021/07/20210703-1091686)
-
-[郭文贵2021年7月3日盖特 20210703_2与上海老领导的通话，让我更加自信的是新中国联邦的宣言和思想……已经深入了中国共产党体制的内部]({{site.baseurl}}/miles/transcript/2021/07/20210703-1091690)
-
-[郭文贵2021年7月2日盖特 20210702_1聊聊7月1号共产党人百年冥诞，和我们新中国联邦……全球连线直播……最大的不同之处是什么？]({{site.baseurl}}/miles/transcript/2021/07/20210702-1091702)
-
-[郭文贵2021年7月2日盖特 20210702_27月1号在北京天安门广场的前方後方左邊右邊都發生了你们还不知道的重大事件, 先不爆料, 未來會解密; 共產黨將被西方追究人口販運, 洗錢, 黑客, 操縱貨幣(包括數字貨幣)]({{site.baseurl}}/miles/transcript/2021/07/20210702-1091706)
-
-[郭文贵2021年7月1日直播 20210701_1终结中国百年杀戮]({{site.baseurl}}/miles/transcript/2021/07/20210701-1091722)
 
 
 ## 頁面 25/112 [**<**]({{site.baseurl}}/miles/transcript/page24) [1]({{site.baseurl}}/miles/transcript/index) ... [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) **25** [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page26)

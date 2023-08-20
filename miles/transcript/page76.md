@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 76/112 [**<**]({{site.baseurl}}/miles/transcript/page75) [1]({{site.baseurl}}/miles/transcript/index) ... [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) **76** [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page77)
 
+[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分]({{site.baseurl}}/miles/transcript/2019/07/20190727-1098150)
+
+[郭文贵2019年7月26日视频 20190726_2再谈台江志成和孙力军合作．抢夺盘古大观龙头……感谢法院的战友告诉我．他们的抢劫计划……一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/07/20190726-1089357)
+
+[郭文贵2019年7月26日视频 20190726和战友分享船上时光]({{site.baseurl}}/miles/transcript/2019/07/20190726-1093406)
+
+[2019年7月26日文贵大直播全文字版： 江志成这个小鳖孙 和孙力军最近在干啥]({{site.baseurl}}/miles/transcript/2019/07/20190726-1098128)
+
 [郭文贵2019年7月25日视频 20190725live stream: Miles letting everyone know he is safe. Please friends, remember..]({{site.baseurl}}/miles/transcript/2019/07/20190725-1093397)
 
 [2019年7月25日《文贵大直播》全文字版：请战友们记住7月21号7月23号.......]({{site.baseurl}}/miles/transcript/2019/07/20190725-1098121)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年7月17日视频 20190717_2两架超级飞机和我们的SNOW一起起飞……文贵又进山啦……这几天我会很少上网]({{site.baseurl}}/miles/transcript/2019/07/20190717-1089327)
 
 [郭文贵2019年7月17日视频 20190717_3有战友们说有一个白色的狗在此就好啦……】这里的大自然太棒了]({{site.baseurl}}/miles/transcript/2019/07/20190717-1089329)
-
-[郭文贵2019年7月16日视频 20190716_1香港会有什么紧急情况发生？一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/07/20190716-1089320)
-
-[郭文贵2019年7月15日视频 20190715_2试试郭媒体即将推出的新软件]({{site.baseurl}}/miles/transcript/2019/07/20190715-1089317)
-
-[郭文贵2019年7月15日视频 20190715盘古大观在7月14号被北京高院公告……将以实际价格的10％被拍卖……实际的背后的黑手就是江泽民．和江志成．孟建柱和孙力军……王岐山！这就是过去两周他们要栽赃文贵]({{site.baseurl}}/miles/transcript/2019/07/20190715-1093329)
-
-[2019年7月15日直播全文字版：盘古大观在7月14日被北京高院公告······]({{site.baseurl}}/miles/transcript/2019/07/20190715-1098113)
 
 
 ## 頁面 76/112 [**<**]({{site.baseurl}}/miles/transcript/page75) [1]({{site.baseurl}}/miles/transcript/index) ... [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) **76** [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page77)

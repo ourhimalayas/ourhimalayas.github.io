@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 66/112 [**<**]({{site.baseurl}}/miles/transcript/page65) [1]({{site.baseurl}}/miles/transcript/index) ... [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) **66** [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page67)
 
+[郭文贵2019年11月7日 20191107中国现状和大清灭亡前一样；十几家基金公司相聚曼哈顿，一致决定从香港全面撤资]({{site.baseurl}}/miles/transcript/2019/11/20191107-1093921)
+
+[2019年11月6日文贵大直播全文字版：第二次直播 共产党创造了几个荒唐政治事件]({{site.baseurl}}/miles/transcript/2019/11/20191106-1086575)
+
+[郭文贵2019年11月6日第二次直播 20191106_2共产党创造了几个荒唐政治事件(1)]({{site.baseurl}}/miles/transcript/2019/11/20191106-1093858)
+
+[郭文贵2019年11月6日第三次直播 20191106_3“文贵和路德在喜马拉雅大使馆直播”上部 共产党创造了几个荒唐政治事件(2)]({{site.baseurl}}/miles/transcript/2019/11/20191106-1093877)
+
 [郭文贵2019年11月6日第一次直播 20191106_1“文贵和路德在喜马拉雅大使馆直播”下部]({{site.baseurl}}/miles/transcript/2019/11/20191106-1093896)
 
 [郭文贵2019年11月5日视频 20191105_1浪裡個浪 文貴又要浪一下啦]({{site.baseurl}}/miles/transcript/2019/11/20191105-1089638)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年10月28日文贵大直播全文字版：紧急直播]({{site.baseurl}}/miles/transcript/2019/10/20191028-1087432)
 
 [郭文贵2019年10月28日视频 20191028_2战友们，北京的戏已经开始上演了，会要开始了，会发生什么呢]({{site.baseurl}}/miles/transcript/2019/10/20191028-1089607)
-
-[郭文贵2019年10月28日视频 20191028_3Snow]({{site.baseurl}}/miles/transcript/2019/10/20191028-1089610)
-
-[郭文贵2019年10月28日视频 20191028_4【Joe庄随手拍】郭文贵先生说至今没人谈到“区块链”的关键性]({{site.baseurl}}/miles/transcript/2019/10/20191028-1089612)
-
-[郭文贵2019年10月28日视频 20191028紧急直播]({{site.baseurl}}/miles/transcript/2019/10/20191028-1093790)
-
-[2019年10月27日文贵大直播全文字版：与战友闲聊]({{site.baseurl}}/miles/transcript/2019/10/20191027-1087430)
 
 
 ## 頁面 66/112 [**<**]({{site.baseurl}}/miles/transcript/page65) [1]({{site.baseurl}}/miles/transcript/index) ... [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) **66** [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page67)

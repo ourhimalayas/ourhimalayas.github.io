@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 38/112 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page39)
 
+[郭文贵2021年2月4日直播 20210204_113579．是共产党统治世界，在全世界实行的商鞅政策统治全球的计划！]({{site.baseurl}}/miles/transcript/2021/02/20210204-1090574)
+
+[郭文贵2021年2月4日盖特 20210204_2吃完饺子锻炼后的文贵……给台湾的战友们瞎聊几句，希望台湾的战友们做好最坏的时刻到来的准备……共匪要疯狂了，可能对台湾要采取行动……]({{site.baseurl}}/miles/transcript/2021/02/20210204-1090577)
+
+[郭文贵2021年2月3日盖特 20210203_1共产党在缅甸的操纵的军事政变……和在亚洲正在执行的一系列的13579计划．彻底控制亚洲！实现2025之前全面拿下亚洲．进军欧洲和美洲，的大中共计划！在内部的经济即将崩盘．和C C P病毒．肆虐]({{site.baseurl}}/miles/transcript/2021/02/20210203-1090554)
+
+[郭文贵2021年2月3日盖特 20210203_2共产党独裁统治下的以黑治国以假治国的中共经济！到底出现了什么情况？这几天来大量的香港优质上市股票，以30%的价格抵押贴现！和国内大量的黄金50%的价格抵押贷款，四个自信强大的中共政]({{site.baseurl}}/miles/transcript/2021/02/20210203-1090556)
+
 [郭文贵2021年2月2日直播 20210202_1]({{site.baseurl}}/miles/transcript/2021/02/20210202-1090530)
 
 [郭文贵2021年2月2日直播 20210202_2回答战友们关于VOG退款事宜的疑问]({{site.baseurl}}/miles/transcript/2021/02/20210202-1090551)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年1月25日直播 20210125_2中共一定会实施双龙计划，统战台湾！中国东北的疫情比我们想象的严重得多！孙力军已被送到秦城监狱！]({{site.baseurl}}/miles/transcript/2021/01/20210125-1090462)
 
 [郭文贵2021年1月24日直播 20210124_1拜登政府最想合法干掉的是谁？！ 美国政府如开放数字货币，G系列将成为最大受益者！]({{site.baseurl}}/miles/transcript/2021/01/20210124-1090443)
-
-[郭文贵2021年1月23日直播 20210123_1以共灭共大时代到来，习，王，江，胡四派斗争白热化公开化，关注台湾，感谢前线战友的付出]({{site.baseurl}}/miles/transcript/2021/01/20210123-1090433)
-
-[郭文贵2021年1月23日盖特 20210123_2美国以及欧洲正在全面的……前所未有的……审视和评估……共产党病毒．给保险业．金融业．国防业．带来的深度的打击：所产生的后果，共产党被灭亡的最重要原因之一就是C C P病毒????无任何]({{site.baseurl}}/miles/transcript/2021/01/20210123-1090437)
-
-[郭文贵2021年1月22日直播 20210122_1裕达的神奇与传奇， 将在爆料革命，新中国联邦再次应验，准备着国内前线战友的捷报]({{site.baseurl}}/miles/transcript/2021/01/20210122-1090424)
-
-[郭文贵2021年1月22日盖特 20210122_2下午6:20我们正在和战友一起．等待这一切的到来……]({{site.baseurl}}/miles/transcript/2021/01/20210122-1090426)
 
 
 ## 頁面 38/112 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page39)

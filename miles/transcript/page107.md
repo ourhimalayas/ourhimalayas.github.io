@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 107/112 [**<**]({{site.baseurl}}/miles/transcript/page106) [1]({{site.baseurl}}/miles/transcript/index) ... [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) **107** [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page108)
 
+[郭文贵2017年9月7日视频 20170907是孙力军．孟建柱．傅政华．王岐山．的凶恶．促使文贵决定美国政治屁护！]({{site.baseurl}}/miles/transcript/2017/09/20170907-1094473)
+
+[郭文贵2017年9月6日视频 20170906王岐山．孟建柱．孙力军．傅政华．如何对待女人！]({{site.baseurl}}/miles/transcript/2017/09/20170906-1094375)
+
+[郭文贵2017年9月5日直播 20170905_1新领导孙力军副部长有了大决定]({{site.baseurl}}/miles/transcript/2017/09/20170905-1093307)
+
+[郭文贵2017年9月4日关于鲍彤先生 20170904关于鲍彤先生痛心我与老领导见面的音频，几个问题得澄清！]({{site.baseurl}}/miles/transcript/2017/09/20170904-1094466)
+
 [郭文贵2017年9月3日直播 20170903_1直播怀疑刘呈杰姐姐刚死。三段视频，被骇四次]({{site.baseurl}}/miles/transcript/2017/09/20170903-1093301)
 
 [郭文贵2017年9月2日视频 20170902_2感谢楼下挺郭的朋友们]({{site.baseurl}}/miles/transcript/2017/09/20170902-1094071)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年8月22日直播 20170822_2]({{site.baseurl}}/miles/transcript/2017/08/20170822-1093288)
 
 [郭文贵2017年8月22日第二次直播 20170822盗国贼组织上百特务来美，用‘蓝金黄’计划对付文贵及知名推友。很多人及家人会被威胁。]({{site.baseurl}}/miles/transcript/2017/08/20170822-1094823)
-
-[郭文贵2017年8月21日视频 20170821盗国贼害怕了，用假女助理推特、假音频攻击文贵。’’今后10天不爆料，估计是在等国内的回应，否则孟建柱政法系就是下一波被爆料的对象]({{site.baseurl}}/miles/transcript/2017/08/20170821-1094811)
-
-[郭文贵2017年8月20日直播 20170820_1推特四段小视频合集]({{site.baseurl}}/miles/transcript/2017/08/20170820-1093286)
-
-[郭文贵2017年8月19日视频 20170819健身报平安小视频：既兴奋又难过。大战在即！和平革命！]({{site.baseurl}}/miles/transcript/2017/08/20170819-1094296)
-
-[郭文贵2017年8月18日明镜专访第五期 20170818]({{site.baseurl}}/miles/transcript/2017/08/20170818-1094633)
 
 
 ## 頁面 107/112 [**<**]({{site.baseurl}}/miles/transcript/page106) [1]({{site.baseurl}}/miles/transcript/index) ... [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) **107** [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page108)

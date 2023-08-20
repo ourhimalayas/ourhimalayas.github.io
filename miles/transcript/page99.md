@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 99/112 [**<**]({{site.baseurl}}/miles/transcript/page98) [1]({{site.baseurl}}/miles/transcript/index) ... [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) **99** [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page100)
 
+[郭文贵2018年4月13日视频 20180413_1谈为什么要爆杨洁篪的料]({{site.baseurl}}/miles/transcript/2018/04/20180413-1092787)
+
+[郭文贵2018年4月12日直播 20180412_1在华盛顿的两天行程，夏夜良会不会在自己的家庭旅馆里按摄像头！]({{site.baseurl}}/miles/transcript/2018/04/20180412-1087951)
+
+[郭文贵2018年4月12日直播 20180412_2内涵段子是中国民主法治自由的新纪元！]({{site.baseurl}}/miles/transcript/2018/04/20180412-1087978)
+
+[郭文贵2018年4月10日视频 20180410文贵谈见宝胜．与到底该不该反习！]({{site.baseurl}}/miles/transcript/2018/04/20180410-1092780)
+
 [郭文贵2018年4月9日视频 20180409尊敬的战友们好：文贵为什么在华盛顿！]({{site.baseurl}}/miles/transcript/2018/04/20180409-1092756)
 
 [郭文贵2018年4月7日第一次直播 20180407_1谈吴小晖在华尔道夫酒店保险箱藏着什么以及与胡舒立和海航的逻辑关系]({{site.baseurl}}/miles/transcript/2018/04/20180407-1092804)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年3月26日第二次直播 20180326_2谈他们为什么让一个女人裸站几个小时]({{site.baseurl}}/miles/transcript/2018/03/20180326-1092482)
 
 [郭文贵2018年3月26日第一次直播 20180326_1不能将爆料变成娱乐]({{site.baseurl}}/miles/transcript/2018/03/20180326-1094199)
-
-[郭文贵2018年3月24日视频 20180324报平安短视频]({{site.baseurl}}/miles/transcript/2018/03/20180324-1092469)
-
-[郭文贵2018年3月21日直播 20180321_2报平安短视频]({{site.baseurl}}/miles/transcript/2018/03/20180321-1087875)
-
-[郭文贵2018年3月21日视频 20180321谈江曾两家是如何以65%的利息放高利贷的]({{site.baseurl}}/miles/transcript/2018/03/20180321-1092429)
-
-[郭文贵2018年3月20日第一次直播 20180320_1今天我们完成了对．谣言．诽谤．威胁．文贵的陈军先生．袁健斌先生．林宇丹女士(美猴王)三个人的控告！我们绝不会忘掉一个帮助我文贵的任何一个恩人！也不会放过一个伤害我们的坏人！]({{site.baseurl}}/miles/transcript/2018/03/20180320-1092345)
 
 
 ## 頁面 99/112 [**<**]({{site.baseurl}}/miles/transcript/page98) [1]({{site.baseurl}}/miles/transcript/index) ... [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) **99** [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page100)

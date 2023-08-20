@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 102/112 [**<**]({{site.baseurl}}/miles/transcript/page101) [1]({{site.baseurl}}/miles/transcript/index) ... [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) **102** [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page103)
 
+[郭文贵2018年2月12日 20180212_1郭文贵首次在郭媒体上直播！放出博讯拿钱删帖证据！对陈军做最后一次说明！大量网友互动内中有猛料！]({{site.baseurl}}/miles/transcript/2018/02/20180212-1094617)
+
+[郭文贵2018年2月11日视频 20180211_2郭文贵安保有漏洞，是谁向上海局报告的？]({{site.baseurl}}/miles/transcript/2018/02/20180211-1087665)
+
+[郭文贵2018年2月11日 20180211_1为什么这么多战友支持文贵]({{site.baseurl}}/miles/transcript/2018/02/20180211-1094588)
+
+[郭文贵2018年2月10日第五次直播 20180210_5大骗子吴征的汉奸爷爷，真的救过几万个犹太人么？]({{site.baseurl}}/miles/transcript/2018/02/20180210-1094484)
+
 [郭文贵2018年2月10日第三次直播 20180210_3钓鱼网站骗子韦石，屎诺，朋友骗子陈军，民主骗子李伟 东，流氓骗子袁建彬与吴征时什么关系？]({{site.baseurl}}/miles/transcript/2018/02/20180210-1094486)
 
 [郭文贵2018年2月10日第二次直播 20180210_2政治！经济！情色骗子，陈军，吴征与马云，流氓袁建斌是 什么样利益关系？]({{site.baseurl}}/miles/transcript/2018/02/20180210-1094488)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年2月3日视频 20180203陈军、袁建斌欲害文贵之背景；与博讯、明镜、陈小平、何频之关系！]({{site.baseurl}}/miles/transcript/2018/02/20180203-1094549)
 
 [郭文贵2018年2月1日 20180201_2 很快将爆光何频身边的陈军, 曾计划谋杀文贵]({{site.baseurl}}/miles/transcript/2018/02/20180201-1091866)
-
-[郭文贵2018年2月1日 20180201为什么有假郭媒体网站，诚征春晚节目，请网友踊跃投稿]({{site.baseurl}}/miles/transcript/2018/02/20180201-1094627)
-
-[郭文贵2018年1月31日视频 20180131尊敬的战友们好！文贵现在回答很多战友问题．是否可以参与文贵看春晚的节目！]({{site.baseurl}}/miles/transcript/2018/01/20180131-1094460)
-
-[郭文贵2018年1月30日第三次直播 20180130_3国内的很多战友给我发来信息．问文贵看春晚的节目的重点是什么现在我向大家汇报！]({{site.baseurl}}/miles/transcript/2018/01/20180130-1094620)
-
-[郭文贵2018年1月30日第二次直播 20180130_2回应“盲流子”视频，披露相关背景；谈王岐山“复出”和“文贵春晚”。]({{site.baseurl}}/miles/transcript/2018/01/20180130-1094622)
 
 
 ## 頁面 102/112 [**<**]({{site.baseurl}}/miles/transcript/page101) [1]({{site.baseurl}}/miles/transcript/index) ... [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) **102** [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page103)

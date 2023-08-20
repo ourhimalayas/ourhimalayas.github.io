@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 59/112 [**<**]({{site.baseurl}}/miles/transcript/page58) [1]({{site.baseurl}}/miles/transcript/index) ... [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) **59** [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page60)
 
+[郭文贵2020年3月16日 20200316_2在GTV与战友试试直播]({{site.baseurl}}/miles/transcript/2020/03/20200316-1088906)
+
+[郭文贵2020年3月16日 20200316谈参与爆料革命的战友们将来是世界上 最受尊敬的人]({{site.baseurl}}/miles/transcript/2020/03/20200316-1092275)
+
+[郭文贵2020年3月14日视频 20200314船上直播谈爆料革命面临着重要的选择，第三次世界大战？中美大战？九千万党员何去何从？郭七条一定会改，最坏的时刻从4月份开始]({{site.baseurl}}/miles/transcript/2020/03/20200314-1091978)
+
+[郭文贵2020年3月13日 20200313船上直播分享美食谈正在发生的世界经济危机]({{site.baseurl}}/miles/transcript/2020/03/20200313-1091959)
+
 [郭文贵2020年3月12日直播股市暴跌(上) 20200312_1船上直播华尔街股市暴跌，世界资产重新分配]({{site.baseurl}}/miles/transcript/2020/03/20200312-1091937)
 
 [郭文贵2020年3月12日直播股市暴跌(下) 20200312_2船上第二次直播华尔街股市暴跌，世界资产重新分配]({{site.baseurl}}/miles/transcript/2020/03/20200312-1091952)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年2月22日 20200222谈CCP要与世界玉石俱焚，法治基金发口罩准备解药救人]({{site.baseurl}}/miles/transcript/2020/02/20200222-1091844)
 
 [郭文贵2020年2月21日直播 20200221_3]({{site.baseurl}}/miles/transcript/2020/02/20200221-1088901)
-
-[郭文贵2020年2月21日第二次直播 20200221_2北京人民医院感染众多！疫情大爆发还没真正开始]({{site.baseurl}}/miles/transcript/2020/02/20200221-1091826)
-
-[郭文贵2020年2月21日第一次直播 20200221_1参加班农战斗室访谈]({{site.baseurl}}/miles/transcript/2020/02/20200221-1091858)
-
-[郭文贵2020年2月20日第二次直播 20200220_2再次提醒战友们同胞们2月29日是巨大的分水岭，呆家里莫上班]({{site.baseurl}}/miles/transcript/2020/02/20200220-1091804)
-
-[郭文贵2020年2月20日第一次直播 20200220_1参加班农战斗室第21期 谈武汉]({{site.baseurl}}/miles/transcript/2020/02/20200220-1091819)
 
 
 ## 頁面 59/112 [**<**]({{site.baseurl}}/miles/transcript/page58) [1]({{site.baseurl}}/miles/transcript/index) ... [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) **59** [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page60)

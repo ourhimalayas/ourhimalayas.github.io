@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 16/112 [**<**]({{site.baseurl}}/miles/transcript/page15) [1]({{site.baseurl}}/miles/transcript/index) ... [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) **16** [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page17)
 
+[郭文贵2021年11月8日直播 20211108_1文贵先生挑选GFASHION新品]({{site.baseurl}}/miles/transcript/2021/11/20211108-1093481)
+
+[郭文贵2021年11月8日盖特 20211108_2尊敬的战友们好，你们健身了吗？你们传播CCP病毒！香港危机和疫苗解药的真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/11/20211108-1093574)
+
+[郭文贵2021年11月8日盖特 20211108_3七哥扎真真了……]({{site.baseurl}}/miles/transcript/2021/11/20211108-1093580)
+
+[郭文贵2021年11月7日直播 20211107_1爆料革命班农战斗室发起的百家私人企业起诉，第五法庭暂停拜登政府强制疫苗令的重大意义；虚拟币交易所，银行，币价，市值，估值与提现之间的关系；中共为了冬奥会，掩盖疫苗死亡真相；]({{site.baseurl}}/miles/transcript/2021/11/20211107-1093849)
+
 [郭文贵2021年11月7日盖特 20211107_2尊敬的战友们好……工作了一整天，吃了好几顿饭非常的兴奋，一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/11/20211107-1094499)
 
 [郭文贵2021年11月6日盖特 20211106_1尊敬的战友们好．你们健身了吗？传播．C C P病毒．香港危机．疫苗解药的真相了吗？七哥今天一天都和DC来的朋友开会，就没有时间录长视频了……明天的大直播间！]({{site.baseurl}}/miles/transcript/2021/11/20211106-1093748)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年10月27日直播 20211027_1盖特的价值和盈利模式是什么；喜币新上市时间的历史意义；共产党的房产税与金融的关系；中共国经济，金融的大崩溃]({{site.baseurl}}/miles/transcript/2021/10/20211027-1093592)
 
 [郭文贵2021年10月27日盖特 20211027_2感谢玉米地大姐送的漂亮的鲜花]({{site.baseurl}}/miles/transcript/2021/10/20211027-1093625)
-
-[郭文贵2021年10月26日直播 20211026_1七哥健身直播沒時間的千萬別來]({{site.baseurl}}/miles/transcript/2021/10/20211026-1093499)
-
-[郭文贵2021年10月26日直播 20211026_22021年11月1号11:01分格林威治时间将发生什么？七哥告诉你他英文名字的来历]({{site.baseurl}}/miles/transcript/2021/10/20211026-1093504)
-
-[郭文贵2021年10月26日盖特 20211026_3尊敬的战后们好……为什么我们的穷人总是一直穷？为什么习近平在北京．江派的人竟然不知道？川普总统的股票为什么暴跌？]({{site.baseurl}}/miles/transcript/2021/10/20211026-1093611)
-
-[郭文贵2021年10月26日盖特 20211026_4椒麻鸡来啦……]({{site.baseurl}}/miles/transcript/2021/10/20211026-1093616)
 
 
 ## 頁面 16/112 [**<**]({{site.baseurl}}/miles/transcript/page15) [1]({{site.baseurl}}/miles/transcript/index) ... [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) **16** [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page17)

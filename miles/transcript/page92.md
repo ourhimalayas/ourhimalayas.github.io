@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 92/112 [**<**]({{site.baseurl}}/miles/transcript/page91) [1]({{site.baseurl}}/miles/transcript/index) ... [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) **92** [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page93)
 
+[郭文贵2018年9月24日视频 20180924_1]({{site.baseurl}}/miles/transcript/2018/09/20180924-1088813)
+
+[郭文贵2018年9月23日视频 20180923_1天下所有人都能中秋快樂 團圓]({{site.baseurl}}/miles/transcript/2018/09/20180923-1088809)
+
+[郭文贵2018年9月23日视频 20180923_2Snow攜女友隨文貴搭機飛往鄰國參加重要會議]({{site.baseurl}}/miles/transcript/2018/09/20180923-1088810)
+
+[郭文贵2018年9月22日视频 20180922_2Snow在偷吃他女朋友的飯]({{site.baseurl}}/miles/transcript/2018/09/20180922-1088799)
+
 [郭文贵2018年9月22日视频 20180922_3文貴周末為家人做魚肉丸]({{site.baseurl}}/miles/transcript/2018/09/20180922-1088802)
 
 [郭文贵2018年9月22日视频 20180922_4文貴周末為家人做魚肉丸 用趕麵杖趕魚肉]({{site.baseurl}}/miles/transcript/2018/09/20180922-1088807)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年9月12日第二次直播 20180912_2文贵先生進Sara Discord聊天室前]({{site.baseurl}}/miles/transcript/2018/09/20180912-1088763)
 
 [郭文贵2018年9月12日第三次直播 20180912_3某军委委员家一面墙的翡翠就价值3个亿美金；首次酒后爆文贵先生80年代－90年代起家经历；爆释永信的私生子；戒忍和尚写一个对联受8万元钱故事！]({{site.baseurl}}/miles/transcript/2018/09/20180912-1093083)
-
-[郭文贵2018年9月12日第一次直播 20180912_1战友之声聊天室曝光 调查王健的一个团队被盗国贼50万美金买走所有资料；爆料和姬胜德认识过程；文贵先生早年的经历；90年代赖昌星一天赚2个亿人民币；再次承诺2亿美金成立老兵基金！]({{site.baseurl}}/miles/transcript/2018/09/20180912-1093097)
-
-[郭文贵2018年9月11日视频 20180911_2文贵在船上与大家听音乐，并承诺给中国老兵捐两亿美元。]({{site.baseurl}}/miles/transcript/2018/09/20180911-1088733)
-
-[郭文贵2018年9月11日视频 20180911_3願美國不會再有911]({{site.baseurl}}/miles/transcript/2018/09/20180911-1088737)
-
-[郭文贵2018年9月11日视频 20180911文贵在船上与大家听音乐，并承诺给中国老兵捐两亿美元。]({{site.baseurl}}/miles/transcript/2018/09/20180911-1093079)
 
 
 ## 頁面 92/112 [**<**]({{site.baseurl}}/miles/transcript/page91) [1]({{site.baseurl}}/miles/transcript/index) ... [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) **92** [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page93)

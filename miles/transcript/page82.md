@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 82/112 [**<**]({{site.baseurl}}/miles/transcript/page81) [1]({{site.baseurl}}/miles/transcript/index) ... [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) **82** [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page83)
 
+[郭文贵2019年5月3日视频 20190503_2与战友分享日本拉面]({{site.baseurl}}/miles/transcript/2019/05/20190503-1089196)
+
+[郭文贵2019年5月3日视频 20190503_3希望＂政经关不了＂永远都不被关！文贵将和你联系！与您连线直播！只要有利于台湾和台湾人民的事我都愿意干]({{site.baseurl}}/miles/transcript/2019/05/20190503-1089200)
+
+[郭文贵2019年5月3日视频 20190503_4文贵在做平板称时的视频做得不标准，希望战友们不要秀文贵这样的做共28分钟。]({{site.baseurl}}/miles/transcript/2019/05/20190503-1089206)
+
+[郭文贵2019年5月3日视频 201905032017年的5月3号和2018年的5月3号都发生了哪些重大事件，文贵与大家分享一些过去没有讲过的事情]({{site.baseurl}}/miles/transcript/2019/05/20190503-1092988)
+
 [郭文贵2019年5月2日视频 20190502霍尔木兹海峡决定灭共是否成功 毛泽东，邓小平，妈祖．给我托梦了．人民大会堂委内瑞拉，台湾香港要出大事儿．郭台铭的梦是假的，哈哈哈哈，一切都是刚刚开始。]({{site.baseurl}}/miles/transcript/2019/05/20190502-1092978)
 
 [郭文贵2019年5月1日委内瑞拉革命 20190501从委内瑞拉革命，我们可以得到如何保护台湾和香港快速灭共的最佳办法，什么是尿脸党！]({{site.baseurl}}/miles/transcript/2019/05/20190501-1092973)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年4月18日视频 20190418_1一个难忘的日子……2017年与VOA龚小夏女士．东方先生……在我家的釆访！断播二周年．文贵回顾这两年来爆料的一些人和事……一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/04/20190418-1092834)
 
 [郭文贵2019年4月17日视频 20190417_1在喜馬拉雅大使館試衛星WIFI]({{site.baseurl}}/miles/transcript/2019/04/20190417-1089114)
-
-[郭文贵2019年4月17日视频 20190417_2戰友第一次參觀喜馬拉雅大使館(上)]({{site.baseurl}}/miles/transcript/2019/04/20190417-1089130)
-
-[郭文贵2019年4月17日视频 20190417_3戰友第一次參觀喜馬拉雅大使館(下)]({{site.baseurl}}/miles/transcript/2019/04/20190417-1089142)
-
-[郭文贵2019年4月16日视频 20190416_220分钟左右文贵将在郭媒体直播报平安！不爆料就是谈谈，昨天让大家搜集李嘉诚10个人信息的进展！和简单谈谈维基解密解密的信息]({{site.baseurl}}/miles/transcript/2019/04/20190416-1089106)
-
-[郭文贵2019年4月16日 20190416简单谈谈维基解密解密的信息 搜集李嘉诚10个人信息的进展]({{site.baseurl}}/miles/transcript/2019/04/20190416-1092824)
 
 
 ## 頁面 82/112 [**<**]({{site.baseurl}}/miles/transcript/page81) [1]({{site.baseurl}}/miles/transcript/index) ... [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) **82** [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page83)

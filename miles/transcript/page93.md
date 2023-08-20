@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 93/112 [**<**]({{site.baseurl}}/miles/transcript/page92) [1]({{site.baseurl}}/miles/transcript/index) ... [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) **93** [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page94)
 
+[郭文贵2018年9月12日第一次直播 20180912_1战友之声聊天室曝光 调查王健的一个团队被盗国贼50万美金买走所有资料；爆料和姬胜德认识过程；文贵先生早年的经历；90年代赖昌星一天赚2个亿人民币；再次承诺2亿美金成立老兵基金！]({{site.baseurl}}/miles/transcript/2018/09/20180912-1093097)
+
+[郭文贵2018年9月11日视频 20180911_2文贵在船上与大家听音乐，并承诺给中国老兵捐两亿美元。]({{site.baseurl}}/miles/transcript/2018/09/20180911-1088733)
+
+[郭文贵2018年9月11日视频 20180911_3願美國不會再有911]({{site.baseurl}}/miles/transcript/2018/09/20180911-1088737)
+
+[郭文贵2018年9月11日视频 20180911文贵在船上与大家听音乐，并承诺给中国老兵捐两亿美元。]({{site.baseurl}}/miles/transcript/2018/09/20180911-1093079)
+
 [郭文贵2018年9月10日视频 20180910_4船上视频：刚刚从海浪中归来的感受]({{site.baseurl}}/miles/transcript/2018/09/20180910-1087776)
 
 [郭文贵2018年9月10日直播 20180910_3文贵在雨中建议所有的战友们观看"斯大林之死"这部电影]({{site.baseurl}}/miles/transcript/2018/09/20180910-1088727)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年8月27日直播 20180827_1]({{site.baseurl}}/miles/transcript/2018/08/20180827-1088693)
 
 [郭文贵2018年8月27日直播 20180827_2]({{site.baseurl}}/miles/transcript/2018/08/20180827-1088694)
-
-[郭文贵2018年8月26日视频 20180826应战友们的要求发一个Snow现在的生活视频]({{site.baseurl}}/miles/transcript/2018/08/20180826-1087773)
-
-[郭文贵2018年8月24日视频 20180824澳大利亚是西方向中共说不的开始！西方的一根筋为什么能赢中共的千招会！西方用法律．宗教．科技．赢到了什么！]({{site.baseurl}}/miles/transcript/2018/08/20180824-1093028)
-
-[郭文贵2018年8月23日视频 20180823在船上谈王建]({{site.baseurl}}/miles/transcript/2018/08/20180823-1093024)
-
-[郭文贵2018年8月20日视频 20180820_2Snow小视频]({{site.baseurl}}/miles/transcript/2018/08/20180820-1088672)
 
 
 ## 頁面 93/112 [**<**]({{site.baseurl}}/miles/transcript/page92) [1]({{site.baseurl}}/miles/transcript/index) ... [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) **93** [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page94)

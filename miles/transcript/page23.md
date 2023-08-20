@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 23/112 [**<**]({{site.baseurl}}/miles/transcript/page22) [1]({{site.baseurl}}/miles/transcript/index) ... [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) **23** [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page24)
 
+[郭文贵2021年8月8日盖特 20210808_1尊敬的战友们好……你们健身了吗？传播C C P病毒．郑州人祸．香港危机真相了吗？  1968年的8月8号：是中国共产党正式发动文化大革命的日子，我们永远要记住每一年的今天．8月8日]({{site.baseurl}}/miles/transcript/2021/08/20210808-1092062)
+
+[郭文贵2021年8月8日盖特 20210808_2尊敬的战友们好．共产党在全世界发动的又一次．一个又一个的．大革命，都是摧毁人类的文明．和二战后世界．共同创造的经济．和和平的军事合作体系，人类正面对巨大的安全和生存的挑战。]({{site.baseurl}}/miles/transcript/2021/08/20210808-1092067)
+
+[郭文贵2021年8月7日直播 20210807_1新中国联邦与黑水公司将联合打造海外华人防护力量；永远不能忘记了爆料革命的真，蛇妖闫亡腚缸的假，共产党做的恶，追求自由是我们的根本；今年北戴河会议，中共两派在政治、经济、政法]({{site.baseurl}}/miles/transcript/2021/08/20210807-1092014)
+
+[郭文贵2021年8月7日盖特 20210807_2我才知道．路大脑骗．蛇妖闫．又一重磅发表．郝海东兄弟．叶钊颖妹妹现在海南不在西班牙了]({{site.baseurl}}/miles/transcript/2021/08/20210807-1092061)
+
 [郭文贵2021年8月6日盖特 20210806_1尊敬的战友们好，你们健身了吗？传播C C P病毒．郑州人祸．香港危机真相了吗？一切都已经开始。]({{site.baseurl}}/miles/transcript/2021/08/20210806-1092053)
 
 [郭文贵2021年8月6日盖特 20210806_2尊敬的战友们好，全国水灾．人祸．病毒肆虐．经济接近崩溃，为什么中南坑的老杂毛？还是照样的群居北戴河呢，他们在干什么？他们想干什么？无产阶级的中国共产党，所享受的物质的生活，]({{site.baseurl}}/miles/transcript/2021/08/20210806-1092058)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年7月30日直播 20210730_1东京奥运会背后的故事；灭爆小组最后的疯狂和新中国联邦追求信仰自由法治独立的根本意义]({{site.baseurl}}/miles/transcript/2021/07/20210730-1091756)
 
 [郭文贵2021年7月30日直播 20210730_2东京奥运会背后的故事；灭爆小组最后的疯狂和新中国联邦追求信仰自由法治独立的根本意义]({{site.baseurl}}/miles/transcript/2021/07/20210730-1091762)
-
-[郭文贵2021年7月30日盖特 20210730_3尊敬的战友们好！你们健身了吗？传播郑州人祸．CCP病毒真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/07/20210730-1091854)
-
-[郭文贵2021年7月30日盖特 20210730_4我三天没锻炼，随便吃东西，肚子大了两个号呀????????????????太可怕了，我今天要做300个]({{site.baseurl}}/miles/transcript/2021/07/20210730-1091856)
-
-[郭文贵2021年7月30日盖特 20210730_5越说越开心，这肚子大了太丑了]({{site.baseurl}}/miles/transcript/2021/07/20210730-1091859)
-
-[郭文贵2021年7月30日盖特 20210730_6真心觉得自己真的很棒！]({{site.baseurl}}/miles/transcript/2021/07/20210730-1091861)
 
 
 ## 頁面 23/112 [**<**]({{site.baseurl}}/miles/transcript/page22) [1]({{site.baseurl}}/miles/transcript/index) ... [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) **23** [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page24)

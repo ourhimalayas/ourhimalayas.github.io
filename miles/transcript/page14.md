@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 14/112 [**<**]({{site.baseurl}}/miles/transcript/page13) [1]({{site.baseurl}}/miles/transcript/index) ... [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) **14** [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page15)
 
+[郭文贵2021年12月14日盖特 20211214_1尊敬的战友们好，你们健身了吗？你们传播C C P病毒疫苗解药的真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/12/20211214-1093854)
+
+[郭文贵2021年12月13日盖特 20211213_1尊敬的战友们好，你们健身了吗？传播C C P病毒疫苗解药的真相了吗？一切都已经开始了！]({{site.baseurl}}/miles/transcript/2021/12/20211213-1093851)
+
+[郭文贵2021年12月12日直播 20211212_1疫苗 冬奥会 数字货币； 除夕 大游行 回答问题；Billboard和iTunes全球打榜记录- Hcoin To The Moon；1936年西安事变及中国历史上双十一、双十二的意义；过去24小时内在中国大陆到底发生了什么事情]({{site.baseurl}}/miles/transcript/2021/12/20211212-1094008)
+
+[郭文贵2021年12月11日盖特 20211211_1尊敬的战友们好，你们健身了吗？你们传播C C P病毒和疫苗解药的真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/12/20211211-1094727)
+
 [郭文贵2021年12月10日直播 20211210_1全球各国抵制冬奥会；数字货币市场未来变化趋势；郭先生新歌Billboard数字歌曲销售排行榜一名；Hcoin To The Moon iTunes打榜记录；对准中共高层海外春节大行动]({{site.baseurl}}/miles/transcript/2021/12/20211210-1093945)
 
 [郭文贵2021年12月8日直播 20211208_1拜登外交抵制冬奥会；盘古物业接管惊世界；中共高级特务单伟建；新中国联邦未来1-3年对准中共高层海外大行动]({{site.baseurl}}/miles/transcript/2021/12/20211208-1093805)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年11月23日直播 20211123_1文貴健身直播]({{site.baseurl}}/miles/transcript/2021/11/20211123-1094014)
 
 [郭文贵2021年11月21日盖特 20211121_1吃饭饭啦……]({{site.baseurl}}/miles/transcript/2021/11/20211121-1093651)
-
-[郭文贵2021年11月21日盖特 20211121_2时间真是个好东西，能让一切真假和善恶得出最真实的结果！]({{site.baseurl}}/miles/transcript/2021/11/20211121-1093652)
-
-[郭文贵2021年11月20日直播 20211120_1“11·20”发布会及法治基金、法治社会成立三周年纪念日大直播]({{site.baseurl}}/miles/transcript/2021/11/20211120-1094009)
-
-[郭文贵2021年11月19日直播 20211119_1国际市场资金短缺；数字货币、法币及经济膨胀所带来的危害；疫苗灾难最新数据及病毒解药的进展]({{site.baseurl}}/miles/transcript/2021/11/20211119-1093861)
-
-[郭文贵2021年11月19日直播 20211119_2试镜头]({{site.baseurl}}/miles/transcript/2021/11/20211119-1093873)
 
 
 ## 頁面 14/112 [**<**]({{site.baseurl}}/miles/transcript/page13) [1]({{site.baseurl}}/miles/transcript/index) ... [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) **14** [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page15)

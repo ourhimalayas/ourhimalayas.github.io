@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 49/112 [**<**]({{site.baseurl}}/miles/transcript/page48) [1]({{site.baseurl}}/miles/transcript/index) ... [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) **49** [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page50)
 
+[郭文贵2020年8月13日盖特 202008138月13号尊敬的战友们好，你们健身了吗？你们传播C C P病毒…香港危机真相了吗？文贵在这里向战友报告正在进行时…发生几个事情]({{site.baseurl}}/miles/transcript/2020/08/20200813-1092611)
+
+[郭文贵2020年8月12日直播 20200812_3中共香港抓捕黎智英惹众怒，港人的团结击破中共白色恐怖！]({{site.baseurl}}/miles/transcript/2020/08/20200812-1088904)
+
+[郭文贵2020年8月12日盖特 202008128月12号尊敬的战友们好，你们健身了吗？你们传播C C P病毒．香港危机真相了吗？文贵在半夜向战友们问好]({{site.baseurl}}/miles/transcript/2020/08/20200812-1092599)
+
+[郭文贵2020年8月12日直播 20200812_2美灭共大锤如期一一砸下；下一制裁目标阿里巴巴，百度；文贵与战友们与中共展开智慧游击战]({{site.baseurl}}/miles/transcript/2020/08/20200812-1092607)
+
 [郭文贵2020年8月11日视频 20200811_2 希望…战友们永远都要坚持唯真不破．无我的爆料革命的原则，希望战友们能互相真正的尊重…和珍惜。]({{site.baseurl}}/miles/transcript/2020/08/20200811-1090015)
 
 [郭文贵2020年8月10日盖特 202008108月10号尊敬的战友们好，你们健身了吗？你们传播CCP病毒香港危机真相了吧，刚刚收到了很多战友发来的私信。没办法一一回信息…]({{site.baseurl}}/miles/transcript/2020/08/20200810-1092525)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年7月31日直播 20200731_2【中英字幕】文贵先生连线战斗室：美国只有放弃官僚和个人利益，通过证据找到真相，才能让美国更加安全！[Chinese-English subtitled] Mr. Miles Guo on War Room: Only if the US officials and individuals give up perso]({{site.baseurl}}/miles/transcript/2020/07/20200731-1089035)
 
 [郭文贵2020年7月31日视频 20200731_1]({{site.baseurl}}/miles/transcript/2020/07/20200731-1090005)
-
-[郭文贵2020年7月30日视频 20200730_2]({{site.baseurl}}/miles/transcript/2020/07/20200730-1090004)
-
-[郭文贵2020年7月30日连线韩国农场 20200730]({{site.baseurl}}/miles/transcript/2020/07/20200730-1092458)
-
-[郭文贵2020年7月29日盖特 20200729早上5:27．尊敬的战友们好，你们健身了吗？传播C C P病毒香港危机真相了吗？文贵向大家报告几个好消息……黄故事……一切都已经开始！]({{site.baseurl}}/miles/transcript/2020/07/20200729-1092419)
-
-[郭文贵2020年7月28日直播 20200728习江曾栗．大战开始．曾维．戴永革等南普陀会议，相关家族一批人员将被抓捕……]({{site.baseurl}}/miles/transcript/2020/07/20200728-1092413)
 
 
 ## 頁面 49/112 [**<**]({{site.baseurl}}/miles/transcript/page48) [1]({{site.baseurl}}/miles/transcript/index) ... [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) **49** [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page50)

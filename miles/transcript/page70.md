@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 70/112 [**<**]({{site.baseurl}}/miles/transcript/page69) [1]({{site.baseurl}}/miles/transcript/index) ... [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) **70** [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page71)
 
+[郭文贵2019年9月30日视频 20190930_4大阅兵直播]({{site.baseurl}}/miles/transcript/2019/09/20190930-1088565)
+
+[郭文贵2019年9月30日视频 20190930_1北京阅兵 郭媒体进入战备状态 天安門廣場的國慶晚宴音樂晚會將有事發生]({{site.baseurl}}/miles/transcript/2019/09/20190930-1089530)
+
+[郭文贵2019年9月30日视频 20190930_2直播测试]({{site.baseurl}}/miles/transcript/2019/09/20190930-1089539)
+
+[郭文贵2019年9月29日 20190929_2连线北京姑娘聊天室]({{site.baseurl}}/miles/transcript/2019/09/20190929-1088573)
+
 [郭文贵2019年9月29日 20190929郭文贵先生班农先生连线北京姑娘聊天室，颤抖吧中南坑，盘古发力之日就在2020年！（完整版）]({{site.baseurl}}/miles/transcript/2019/09/20190929-1093809)
 
 [2019年9月29日 郭文贵先生班农先生连线北京姑娘聊天室，颤抖吧中南坑，盘古发力之日就在2020年 全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190929-1098248)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年9月17日视频 20190917马云儒学也得肛门癌，还有大佬会出事，体制内战友要安全的支持爆料革命，香港人要时刻提防CCP灭绝人性的行动]({{site.baseurl}}/miles/transcript/2019/09/20190917-1093639)
 
 [2019年9月17日文贵报平安全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190917-1098227)
-
-[2019年9月17日郭文贵先生报平安全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190917-1098228)
-
-[《文贵大直播》全文听写组]({{site.baseurl}}/miles/transcript/2019/09/20190916-1098220)
-
-[郭文贵2019年9月16日视频 20190916]({{site.baseurl}}/miles/transcript/2019/09/20190916-1093612)
-
-[2019年9月16日郭文贵先生直播全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190916-1098223)
 
 
 ## 頁面 70/112 [**<**]({{site.baseurl}}/miles/transcript/page69) [1]({{site.baseurl}}/miles/transcript/index) ... [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) **70** [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page71)

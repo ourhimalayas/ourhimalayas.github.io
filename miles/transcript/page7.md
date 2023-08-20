@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 7/112 [**<**]({{site.baseurl}}/miles/transcript/page6) [1]({{site.baseurl}}/miles/transcript/index) ... [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) **7** [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page8)
 
+[郭文贵2022年4月21日直播 20220421_1七哥乱聊直播]({{site.baseurl}}/miles/transcript/2022/04/20220421-1091279)
+
+[郭文贵2022年4月20日直播 20220420_1]({{site.baseurl}}/miles/transcript/2022/04/20220420-1090976)
+
+[郭文贵2022年4月20日盖特 20220420_2尊敬的战友们好……衷心地感谢国内所有战友昨天一整天的陪伴．观看直播……和给我发的信息，我不能一一回复．万分的抱歉，一切都已经开始！]({{site.baseurl}}/miles/transcript/2022/04/20220420-1091696)
+
+[郭文贵2022年4月19日直播 20220419_1419五周年专场,霹雳一声断播门,文贵爆料惊鬼神,五载星火燎原势,喜马拉雅再昆仑]({{site.baseurl}}/miles/transcript/2022/04/20220419-1091232)
+
 [郭文贵2022年4月18日盖特 20220418_1尊敬的战友们好，刚才的视频没有讲完．最后一个重点是．刚刚收到信息．上海会马上解封！]({{site.baseurl}}/miles/transcript/2022/04/20220418-1091692)
 
 [郭文贵2022年4月17日直播 20220417_1七哥来啦]({{site.baseurl}}/miles/transcript/2022/04/20220417-1090964)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2022年4月4日盖特 20220404_1尊敬的战友们好．衷心的感谢．战友们在过去几个小时，将我们的新的两个在苹果iTunes刚刚发布的《锁链梦》《灭共的雪》歌曲．在全球很多国家打榜第一名和第二名，一切都已经开始！]({{site.baseurl}}/miles/transcript/2022/04/20220404-1090707)
 
 [郭文贵2022年4月3日直播 20220403_1世界新能源的发展现状和展望； 国内疫情封城最新信息汇总及WHO最新发布的病毒变种分析；俄乌战争最新战况及全球最新政治外交；《商君书》与中共极权极权统治之二：连坐与告密]({{site.baseurl}}/miles/transcript/2022/04/20220403-1091468)
-
-[郭文贵2022年4月2日盖特 20220402_1尊敬的战友们好，????????????????????????????????????????????????????????????????你们健身了吗？你们想七哥了吗？你一切都已经开始！]({{site.baseurl}}/miles/transcript/2022/04/20220402-1090698)
-
-[郭文贵2022年3月31日盖特 20220331_1尊敬的战友们好，你们健身了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2022/03/20220331-1090693)
-
-[郭文贵2022年3月30日直播 20220330_1俄乌战争与和谈最新动态；墙内疫情与民众生活危机；扩大应用与喜币价值提升；房地产债务违约金融分析]({{site.baseurl}}/miles/transcript/2022/03/20220330-1091414)
-
-[郭文贵2022年3月27日直播 20220327_1世界政治地域文化经济彻底改变；美国点明俄国非西方敌人普京是；从普京必须离开看习近平的命运；GClubs年会显天意人心遥相呼应]({{site.baseurl}}/miles/transcript/2022/03/20220327-1091315)
 
 
 ## 頁面 7/112 [**<**]({{site.baseurl}}/miles/transcript/page6) [1]({{site.baseurl}}/miles/transcript/index) ... [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) **7** [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page8)

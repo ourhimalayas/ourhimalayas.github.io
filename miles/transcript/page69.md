@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 69/112 [**<**]({{site.baseurl}}/miles/transcript/page68) [1]({{site.baseurl}}/miles/transcript/index) ... [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) **69** [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page70)
 
+[2019年10月9日 港人的好日子要来了，美对CCP将有雷霆行动，不仅仅制裁 全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191009-1087416)
+
+[2019年10月9日 港人的好日子要来了，美对CCP将有雷霆行动，不仅仅制裁  全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191009-1087420)
+
+[郭文贵2019年10月9日视频 20191009_2文贵与战友分享与可爱的Snow和纯种松狮笨笨．在家一起渡过欢乐的时光！]({{site.baseurl}}/miles/transcript/2019/10/20191009-1089557)
+
+[郭文贵2019年10月9日视频 20191009港人的好日子要来了，美对CCP将有雷霆行动，不仅仅制裁]({{site.baseurl}}/miles/transcript/2019/10/20191009-1093814)
+
 [2019年10月8日郭文贵先生班农先生直播对谈新疆与香港人权法案，及最新反共局势包括贸易谈判和NBA等方面，制裁中共才刚刚开始全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191008-1087421)
 
 [郭文贵2019年10月8日视频 20191008_1勿中招中共挑起与新疆民族仇恨 NBA言论令中共玻璃心碎一地了]({{site.baseurl}}/miles/transcript/2019/10/20191008-1089554)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年10月1日郭文贵先生与班农先生连线各地战友，传播香港抗议现场、解读国际重大事件，揭露中共十一国庆真相！（上）全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191001-1098246)
 
 [郭文贵2019年9月30日视频 20190930_3大阅兵直播]({{site.baseurl}}/miles/transcript/2019/09/20190930-1088563)
-
-[郭文贵2019年9月30日视频 20190930_4大阅兵直播]({{site.baseurl}}/miles/transcript/2019/09/20190930-1088565)
-
-[郭文贵2019年9月30日视频 20190930_1北京阅兵 郭媒体进入战备状态 天安門廣場的國慶晚宴音樂晚會將有事發生]({{site.baseurl}}/miles/transcript/2019/09/20190930-1089530)
-
-[郭文贵2019年9月30日视频 20190930_2直播测试]({{site.baseurl}}/miles/transcript/2019/09/20190930-1089539)
-
-[郭文贵2019年9月29日 20190929_2连线北京姑娘聊天室]({{site.baseurl}}/miles/transcript/2019/09/20190929-1088573)
 
 
 ## 頁面 69/112 [**<**]({{site.baseurl}}/miles/transcript/page68) [1]({{site.baseurl}}/miles/transcript/index) ... [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) **69** [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page70)

@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 9/112 [**<**]({{site.baseurl}}/miles/transcript/page8) [1]({{site.baseurl}}/miles/transcript/index) ... [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) **9** [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page10)
 
+[郭文贵2022年3月7日盖特 20220307_1尊敬的战友们好衷心的感谢在波兰和乌克兰前线的救援的所有的兄弟姐妹吗？可恨的共产党驻乌克兰大使馆……竟然将已经登上我们在乌克兰救援大巴的人．用谎言将他们骗下车，这些人现在生死]({{site.baseurl}}/miles/transcript/2022/03/20220307-1090471)
+
+[郭文贵2022年3月6日直播 20220306_1新中国联邦营救行动意义；共产党给华人带来的危险；未来排华及保护华人安全；俄乌战争爆发与世界经济]({{site.baseurl}}/miles/transcript/2022/03/20220306-1090465)
+
+[郭文贵2022年3月6日盖特 20220306_2尊敬的战友们好，你们健身了吗？传播乌克兰战争……人道危机的真相了吗？一切都已经开始]({{site.baseurl}}/miles/transcript/2022/03/20220306-1090468)
+
+[郭文贵2022年3月4日盖特 20220304_1尊敬的战友们好，今天我收到了无数个战友对我母亲三年冥诞问候！衷心地感谢兄弟姐妹们！我们只有靠真实的行动，才能保护我们的父母．姐妹．兄弟．消灭中国共产党是唯一的，让我们能快乐]({{site.baseurl}}/miles/transcript/2022/03/20220304-1090410)
+
 [郭文贵2022年3月3日盖特 20220303_1尊敬的战友们好，明天是中国的农历二月初二……龙抬头，也是我母亲三年冥诞的日子，明天没有直播……文贵在此衷心地希望所有的战友．爱父母爱家人！]({{site.baseurl}}/miles/transcript/2022/03/20220303-1090408)
 
 [郭文贵2022年3月2日直播 20220302_1乌克兰救援人道关怀；俄乌战争中国人遭恨；核战与全球经济崩溃；新中国联邦之大拯救]({{site.baseurl}}/miles/transcript/2022/03/20220302-1090407)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2022年2月16日直播 20220216_1疫苗公司股价变化；看中共的普遍贪腐、以贪反贪、以反贪为名实施政治清理；世界多地反华苗头；冬奥会锁链女后续；太平联盟官司进展]({{site.baseurl}}/miles/transcript/2022/02/20220216-1090039)
 
 [郭文贵2022年2月15日盖特 20220215_1尊敬的战友们好！文贵衷心的祝大家元宵节快乐！]({{site.baseurl}}/miles/transcript/2022/02/20220215-1090193)
-
-[郭文贵2022年2月15日盖特 20220215_2七哥从这一刻起个人正式破产了……案件号码：Case No. 22-50073]({{site.baseurl}}/miles/transcript/2022/02/20220215-1090194)
-
-[郭文贵2022年2月14日盖特 20220214_1尊敬的战友们好！再祝全天下的兄弟姐妹们，战友们．情人节快乐！]({{site.baseurl}}/miles/transcript/2022/02/20220214-1089963)
-
-[郭文贵2022年2月13日盖特 20220213_2尊敬的战友们好，你们健身了吗？传播CCP病毒．疫苗解药的真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2022/02/20220213-1089959)
-
-[郭文贵2022年2月13日直播 20220213_1加拿大卡车清理事件；冬奥会连续爆丑闻；世界经济市场突发；西方法律系统渗透]({{site.baseurl}}/miles/transcript/2022/02/20220213-1090651)
 
 
 ## 頁面 9/112 [**<**]({{site.baseurl}}/miles/transcript/page8) [1]({{site.baseurl}}/miles/transcript/index) ... [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) **9** [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page10)

@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 42/112 [**<**]({{site.baseurl}}/miles/transcript/page41) [1]({{site.baseurl}}/miles/transcript/index) ... [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) **42** [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page43)
 
+[郭文贵2020年12月21日盖特 20201221_1尊敬的战友们好……文贵又做梦了……]({{site.baseurl}}/miles/transcript/2020/12/20201221-1090109)
+
+[郭文贵2020年12月21日盖特 20201221_2过冬至吃饺子喽……]({{site.baseurl}}/miles/transcript/2020/12/20201221-1090120)
+
+[郭文贵2020年12月20日盖特 20201220_1尊敬的战友们好！所有的战友们要知道．只有家和人和你才能平安，健康……中共的经济在崩塌……自己更要珍惜．与家人和周围同事．朋友的关系，这会让你更安全，更健康和躲过战争……饥荒]({{site.baseurl}}/miles/transcript/2020/12/20201220-1090107)
+
+[郭文贵2020年12月20日直播 20201220_2在线回答原凤凰农场和VOG战友的问题]({{site.baseurl}}/miles/transcript/2020/12/20201220-1090119)
+
 [郭文贵2020年12月20日音频聊天 20201220_3喜马拉雅大使馆Discord与战友聊天音频]({{site.baseurl}}/miles/transcript/2020/12/20201220-1090134)
 
 [郭文贵2020年12月19日盖特 20201219_1尊敬的战友们好……中共的经济完全处于崩溃状态，事实证明爆料革命救命，保财，保未来！事实．时间．是最好的验证的工具！]({{site.baseurl}}/miles/transcript/2020/12/20201219-1090106)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年12月10日盖特 20201210_5所有的战友们都要全力以赴去支持。在苹果商店在过去几年支持，我们爆料革命．坚持美国法律原则的这位姓范的朋友。]({{site.baseurl}}/miles/transcript/2020/12/20201210-1090061)
 
 [郭文贵2020年12月9日盖特 20201209_1蓋特：睡不著覺啦...胡說八道亂聊一下，翟東升所說的左欺右騙虾話，中國共產黨以假治國以黑治國以騙治國...狂妄自大...一個典型的代表人物...有時間的時候，能在這個星期六好好聊聊]({{site.baseurl}}/miles/transcript/2020/12/20201209-1090049)
-
-[郭文贵2020年12月9日盖特 20201209_2文貴衷心的感謝全球的懲賊滅共行動中......辛苦的戰友們......]({{site.baseurl}}/miles/transcript/2020/12/20201209-1090051)
-
-[郭文贵2020年12月8日盖特 20201208_3心地感谢日本富士会的007及所有的战友们的认真……和辛苦……制作的新中国联邦的旗帜和徽章的系列]({{site.baseurl}}/miles/transcript/2020/12/20201208-1090089)
-
-[郭文贵2020年12月8日直播 20201208_1文贵直播做羊肉丸子和蒸大馒头 第一部分]({{site.baseurl}}/miles/transcript/2020/12/20201208-1093258)
-
-[郭文贵2020年12月8日直播 20201208_2文贵直播做羊肉丸子和蒸大馒头 第二部分 （约翰叔叔向战友谢罪篇，感谢上天造和秘密翻译组）]({{site.baseurl}}/miles/transcript/2020/12/20201208-1093271)
 
 
 ## 頁面 42/112 [**<**]({{site.baseurl}}/miles/transcript/page41) [1]({{site.baseurl}}/miles/transcript/index) ... [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) **42** [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page43)

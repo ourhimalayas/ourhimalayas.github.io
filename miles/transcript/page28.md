@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 28/112 [**<**]({{site.baseurl}}/miles/transcript/page27) [1]({{site.baseurl}}/miles/transcript/index) ... [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) **28** [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page29)
 
+[郭文贵2021年6月4日直播 20210604_1新中国联邦一周年庆典]({{site.baseurl}}/miles/transcript/2021/06/20210604-1091490)
+
+[郭文贵2021年6月4日直播 20210604_2文贵谈新中国联邦周年庆观后感，及国内的反响；三个重镑人物，军事大佬弗林将军，经济沼泽地摩根家族，政治新星枕头哥；更多新中国联邦的新人，有才能的战友将涌现出来]({{site.baseurl}}/miles/transcript/2021/06/20210604-1091504)
+
+[郭文贵2021年6月4日盖特 20210604_3尊敬的战友们好！新的一天已经开始……世界政治，经济，军事的全面处在动荡的和战争的边缘。我们务必要强大我们自己！抓住这个历史关键的时刻……实现我们以钱灭共．以毒灭共.以共灭共．]({{site.baseurl}}/miles/transcript/2021/06/20210604-1091506)
+
+[郭文贵2021年6月3日盖特 20210603_1尊敬的战友们好，我们一起来向万佛万神祈福，我们新中国联邦一周年……在自由之塔的庆祝活动圆满成功，也祈求万佛万神．从今天起唤醒这个贪婪被共产主义蒙蔽了的黑暗的世界！从今天起让]({{site.baseurl}}/miles/transcript/2021/06/20210603-1091424)
+
 [郭文贵2021年6月2日盖特 20210602_1尊敬的战友们好，为了报复新中国联邦一周年……老杂毛们制定了九项反击政策。美国所谓的主流媒体黑谣我们．和在中共国拍卖方式抢夺方正证券股票！以及尝试对我们放毒攻击我们的科学家和]({{site.baseurl}}/miles/transcript/2021/06/20210602-1091494)
 
 [郭文贵2021年6月1日盖特 20210601_1看着战友来到曼哈顿相聚！七哥冰火两重天的感受！英雄在共产党以一国之力要阻止上线！他们能成功吗？我们新中国联邦人要建设的新中国的标准是什么？]({{site.baseurl}}/miles/transcript/2021/06/20210601-1091483)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年5月25日盖特 20210525_2尊敬的战友们好，由于今天的和时间问题．的特殊安排的听证会！早上没有发盖特，现在7哥马上给大家补上！谈谈这两天7哥的一些关于正在开发中躺币的一些概念！]({{site.baseurl}}/miles/transcript/2021/05/20210525-1091405)
 
 [郭文贵2021年5月25日盖特 20210525_3尊敬的战友们好，由于今天的和时间问题．的特殊安排的听证会！早上没有发盖特，现在7哥马上给大家补上！谈谈这两天7哥的一些关于正在开发中躺币的一些概念！]({{site.baseurl}}/miles/transcript/2021/05/20210525-1091406)
-
-[郭文贵2021年5月24日盖特 20210524_1尊敬的战友们好！全世界都在用生命和代价来证明极权后的政府能干大事是否是正确的，全世界用生命和血汗在证明极权后的财富，最后由谁说了算……？被极权谎言愚弄的时代即将成为历史！]({{site.baseurl}}/miles/transcript/2021/05/20210524-1091394)
-
-[郭文贵2021年5月24日盖特 20210524_2尊敬的战友们好！全世界都在用生命和代价来证明极权后的政府能干大事是否是正确的，全世界用生命和血汗在证明极权后的财富，最后由谁说了算……？被极权谎言愚弄的时代即将成为历史！(接]({{site.baseurl}}/miles/transcript/2021/05/20210524-1091396)
-
-[郭文贵2021年5月23日直播 20210523_1中共的楼震，桥震，币震，粮震，随时脆断；Gnews，GTV，盖特，国际影响力巨大；九指妖故意毁坏财物暴露了，她是一个嫉妒心理变态，早已经背叛了爆料革命的叛徒]({{site.baseurl}}/miles/transcript/2021/05/20210523-1091390)
-
-[郭文贵2021年5月22日盖特 20210522_1尊敬的战友的好！共产党的流氓统治极权！正在被全世界正义的力量围缫中！每天每时每刻都在加速共产党这个流氓体制．政权的灭亡！我们的爆料革命和新中国联邦！应该做更多的实际行动，唤]({{site.baseurl}}/miles/transcript/2021/05/20210522-1091368)
 
 
 ## 頁面 28/112 [**<**]({{site.baseurl}}/miles/transcript/page27) [1]({{site.baseurl}}/miles/transcript/index) ... [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) **28** [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page29)

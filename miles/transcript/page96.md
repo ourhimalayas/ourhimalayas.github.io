@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 96/112 [**<**]({{site.baseurl}}/miles/transcript/page95) [1]({{site.baseurl}}/miles/transcript/index) ... [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) **96** [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page97)
 
+[郭文贵2018年7月10日视频 20180710王岐山设计王健可能用诈死．被杀事件使海航重组．将盗国财富合法化！王岐山已经开始出大招了！]({{site.baseurl}}/miles/transcript/2018/07/20180710-1092917)
+
+[郭文贵2018年7月9日视频 20180709王健拍照死．孟的张明鹏院长被抓．709案件国际高度关注！代表着什么？]({{site.baseurl}}/miles/transcript/2018/07/20180709-1092902)
+
+[郭文贵2018年7月8日视频 20180708在船上报平安]({{site.baseurl}}/miles/transcript/2018/07/20180708-1087726)
+
+[郭文贵2018年7月6日视频 20180706王健不是正常死亡！真相既将大白于天下！很可能是王歧山干的！]({{site.baseurl}}/miles/transcript/2018/07/20180706-1092892)
+
 [郭文贵2018年7月4日直播 20180704_1郭文贵先生在群里对王健突然丧命的评价]({{site.baseurl}}/miles/transcript/2018/07/20180704-1088543)
 
 [郭文贵2018年7月2日直播 20180702_2路德访谈约翰小哥時文貴之講話]({{site.baseurl}}/miles/transcript/2018/07/20180702-1088538)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年6月10日 20180610玉岐山孟建柱命不久了！马航真相一定会公布！(一)]({{site.baseurl}}/miles/transcript/2018/06/20180610-1094313)
 
 [郭文贵2018年6月5日直播 20180605_1拉斯维加斯的会议出钱者．A级通缉犯成水炎的过去与现在！]({{site.baseurl}}/miles/transcript/2018/06/20180605-1088350)
-
-[郭文贵2018年6月5日直播 20180605_2 看了万润南先生的视频后的感想！]({{site.baseurl}}/miles/transcript/2018/06/20180605-1088359)
-
-[郭文贵2018年6月4日直播 20180604_1红冰与习近平拍女人屁股．砖拍李克强全是吹象乂……！]({{site.baseurl}}/miles/transcript/2018/06/20180604-1088341)
-
-[郭文贵2018年6月3日直播 20180603_1文贵先生来到聊天室(51:53起)和网友共同热议六四！文贵先生爆料范冰冰已经到了洛杉矶，上面领导打招呼尽快离开。]({{site.baseurl}}/miles/transcript/2018/06/20180603-1088335)
-
-[郭文贵2018年6月2日 20180602接受安红女士．丘岳首先生釆访．纪念六四．及袁红冰．郭宝胜．赖建平的盗骗之劣术！]({{site.baseurl}}/miles/transcript/2018/06/20180602-1094299)
 
 
 ## 頁面 96/112 [**<**]({{site.baseurl}}/miles/transcript/page95) [1]({{site.baseurl}}/miles/transcript/index) ... [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) **96** [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page97)

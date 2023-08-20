@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 110/112 [**<**]({{site.baseurl}}/miles/transcript/page109) [1]({{site.baseurl}}/miles/transcript/index) ... [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) **110** [111]({{site.baseurl}}/miles/transcript/page111) [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page111)
 
+[郭文贵2017年6月22日视频 20170622推特报平安视频……一切都是刚刚开始！✊️✊️✊️✊️]({{site.baseurl}}/miles/transcript/2017/06/20170622-1094039)
+
+[郭文贵2017年6月19日视频 20170619再让子弹飞一会儿！]({{site.baseurl}}/miles/transcript/2017/06/20170619-1094298)
+
+[郭文贵2017年6月16日明镜专访第三期 20170616]({{site.baseurl}}/miles/transcript/2017/06/20170616-1094805)
+
+[郭文贵2017年6月13日 20170613关于章立凡与胡平先生在VoA节目中对文贵的诬陷]({{site.baseurl}}/miles/transcript/2017/06/20170613-1094288)
+
 [郭文贵2017年6月11日视频 20170611]({{site.baseurl}}/miles/transcript/2017/06/20170611-1094383)
 
 [郭文贵2017年6月10日第二次直播 20170610_2]({{site.baseurl}}/miles/transcript/2017/06/20170610-1094373)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年5月20日第一次直播 20170520在香港是否存在执法黑屋]({{site.baseurl}}/miles/transcript/2017/05/20170520-1094273)
 
 [郭文贵2017年5月19日 20170519感恩推友关心 呼吁推友冷静]({{site.baseurl}}/miles/transcript/2017/05/20170519-1094271)
-
-[郭文贵2017年5月18日第一次直播 20170518_1郭文贵的紧急联络人]({{site.baseurl}}/miles/transcript/2017/05/20170518-1094256)
-
-[郭文贵2017年5月18日第二次直播 20170518_2意外状况下的沟通方式]({{site.baseurl}}/miles/transcript/2017/05/20170518-1094437)
-
-[郭文贵2017年5月17日视频 20170517家庭国家和社会的关系]({{site.baseurl}}/miles/transcript/2017/05/20170517-1094425)
-
-[郭文贵2017年5月16日视频 20170516]({{site.baseurl}}/miles/transcript/2017/05/20170516-1094403)
 
 
 ## 頁面 110/112 [**<**]({{site.baseurl}}/miles/transcript/page109) [1]({{site.baseurl}}/miles/transcript/index) ... [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) **110** [111]({{site.baseurl}}/miles/transcript/page111) [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page111)

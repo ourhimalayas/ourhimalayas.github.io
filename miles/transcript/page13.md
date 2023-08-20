@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 13/112 [**<**]({{site.baseurl}}/miles/transcript/page12) [1]({{site.baseurl}}/miles/transcript/index) ... [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) **13** [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page14)
 
+[郭文贵2021年12月27日盖特 20211227_1尊敬的战友们好！共产党内部的政治斗争和经济的即将崩溃，已经成了美国和欧洲利用的工具． 他们越来越相信消灭共产党的最好方式……正在发生中，没有人能改变共产党正在加速走向灭亡……]({{site.baseurl}}/miles/transcript/2021/12/20211227-1093899)
+
+[郭文贵2021年12月27日盖特 20211227_2吃馍馍喽…]({{site.baseurl}}/miles/transcript/2021/12/20211227-1093901)
+
+[郭文贵2021年12月26日直播 20211226_1]({{site.baseurl}}/miles/transcript/2021/12/20211226-1094630)
+
+[郭文贵2021年12月25日盖特 20211225_3文贵衷心再愿全天下人……和所有的兄弟姐妹，战友们！及家人．圣诞节快乐，文贵为你们蒸馍馍吃咯????]({{site.baseurl}}/miles/transcript/2021/12/20211225-1093889)
+
 [郭文贵2021年12月25日盖特 20211225_4尊敬的战友们好，你们健身了吗？传播CC P病毒．疫苗解药的真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/12/20211225-1093890)
 
 [郭文贵2021年12月25日盖特直播 20211225_5蒸馍馍]({{site.baseurl}}/miles/transcript/2021/12/20211225-1093892)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年12月16日盖特 20211216_1非常非常的抱歉，亲爱的战友们……刚才视频没有发出去，我再发一遍！]({{site.baseurl}}/miles/transcript/2021/12/20211216-1093859)
 
 [郭文贵2021年12月15日直播 20211215_1Billboard和iTunes全球打榜记录- Hcoin To The Moon；欧美制裁 奥运人权经济；疫苗灾难 危害验证抗议 ；国内经济 地产负债脱钩；终共行动 中共是否报复]({{site.baseurl}}/miles/transcript/2021/12/20211215-1093817)
-
-[郭文贵2021年12月14日盖特 20211214_1尊敬的战友们好，你们健身了吗？你们传播C C P病毒疫苗解药的真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/12/20211214-1093854)
-
-[郭文贵2021年12月13日盖特 20211213_1尊敬的战友们好，你们健身了吗？传播C C P病毒疫苗解药的真相了吗？一切都已经开始了！]({{site.baseurl}}/miles/transcript/2021/12/20211213-1093851)
-
-[郭文贵2021年12月12日直播 20211212_1疫苗 冬奥会 数字货币； 除夕 大游行 回答问题；Billboard和iTunes全球打榜记录- Hcoin To The Moon；1936年西安事变及中国历史上双十一、双十二的意义；过去24小时内在中国大陆到底发生了什么事情]({{site.baseurl}}/miles/transcript/2021/12/20211212-1094008)
-
-[郭文贵2021年12月11日盖特 20211211_1尊敬的战友们好，你们健身了吗？你们传播C C P病毒和疫苗解药的真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/12/20211211-1094727)
 
 
 ## 頁面 13/112 [**<**]({{site.baseurl}}/miles/transcript/page12) [1]({{site.baseurl}}/miles/transcript/index) ... [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) **13** [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page14)

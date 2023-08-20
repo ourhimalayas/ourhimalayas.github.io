@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 61/112 [**<**]({{site.baseurl}}/miles/transcript/page60) [1]({{site.baseurl}}/miles/transcript/index) ... [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) **61** [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page62)
 
+[郭文贵2020年1月30日 20200130谈中南坑政治局常委有人会死]({{site.baseurl}}/miles/transcript/2020/01/20200130-1091760)
+
+[郭文贵2020年1月29日 20200129谈CCP统治下的孤国孤市孤镇孤]({{site.baseurl}}/miles/transcript/2020/01/20200129-1091747)
+
+[郭文贵2020年1月28日谈WHO已经认错 20200128CCP对疫情必须承担责任]({{site.baseurl}}/miles/transcript/2020/01/20200128-1091727)
+
+[郭文贵2020年1月27日谈科比意外死亡 20200127并呼吁中共在灾难面前以人命]({{site.baseurl}}/miles/transcript/2020/01/20200127-1091716)
+
 [郭文贵2020年1月26日 20200126大年初二谈为什么共产党要控制世界卫生组织．国际刑警组织．国际人权组织．中共为什么拒绝世界卫生组织给武汉疫区医生护士的防护设备和设施。2020年1月26日爆料革命三周年文贵致谢所有的战]({{site.baseurl}}/miles/transcript/2020/01/20200126-1092308)
 
 [郭文贵2020年1月25日 20200125大年初一文贵严肃负责任向战友及疫区同胞报告：……武汉疫情绝对是人为不是天灾！]({{site.baseurl}}/miles/transcript/2020/01/20200125-1091698)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年1月9日视频 20200109_1看房子啦！]({{site.baseurl}}/miles/transcript/2020/01/20200109-1089753)
 
 [郭文贵2020年1月8日 20200108跟战友们分享在小飞机上吃鸡]({{site.baseurl}}/miles/transcript/2020/01/20200108-1091785)
-
-[郭文贵2020年1月7日 20200107談CCP把中美貿易戰當成內鬥工具，華人要跳出中共的孤島現象，臺灣請選蔡英文]({{site.baseurl}}/miles/transcript/2020/01/20200107-1091772)
-
-[郭文贵2020年1月6日第一次直播 20200106_1谈灭爆小组 网络占山头插红旗全线失败]({{site.baseurl}}/miles/transcript/2020/01/20200106-1091738)
-
-[郭文贵2020年1月6日第二次直播 20200106_2到底谁是傅希秋 他是什么样的]({{site.baseurl}}/miles/transcript/2020/01/20200106-1091757)
-
-[郭文贵2020年1月5日视频 20200105_3文贵在这里又要浪一浪了，应战友们的要求，将今天穿的衣服录一段视频发出来，一切都是刚刚开始。]({{site.baseurl}}/miles/transcript/2020/01/20200105-1089023)
 
 
 ## 頁面 61/112 [**<**]({{site.baseurl}}/miles/transcript/page60) [1]({{site.baseurl}}/miles/transcript/index) ... [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) **61** [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page62)

@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 106/112 [**<**]({{site.baseurl}}/miles/transcript/page105) [1]({{site.baseurl}}/miles/transcript/index) ... [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) **106** [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [112]({{site.baseurl}}/miles/transcript/page112) ... [**>**]({{site.baseurl}}/miles/transcript/page107)
 
+[郭文贵2017年9月28日视频 20170928国内封网，放出曲龙，游虎给虎看！]({{site.baseurl}}/miles/transcript/2017/09/20170928-1094112)
+
+[郭文贵2017年9月27日视频 20170927不要开会，不要搞募捐，要行动！]({{site.baseurl}}/miles/transcript/2017/09/20170927-1094109)
+
+[郭文贵2017年9月26日视频 20170926_2酒店警告不准看郭视频 断网还要断电吗？]({{site.baseurl}}/miles/transcript/2017/09/20170926-1094104)
+
+[郭文贵2017年9月26日 20170926任何一个同胞都应该听的视频这是 2017年5月26日 与刘彦平书记在纽约两次开会后——经孙立军要求我去华盛顿去见面，这是我们语音沟通的一部分。]({{site.baseurl}}/miles/transcript/2017/09/20170926-1094521)
+
 [郭文贵2017年9月25日视频 20170925首发爆料后国内炸了锅了！]({{site.baseurl}}/miles/transcript/2017/09/20170925-1094102)
 
 [郭文贵2017年9月24日 20170924文贵爆料中国盗国贼首场全球信息发＂不＂会（原版、未作任何刪減）！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！]({{site.baseurl}}/miles/transcript/2017/09/20170924-1094599)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年9月9日视频 20170909_5在船上]({{site.baseurl}}/miles/transcript/2017/09/20170909-1094084)
 
 [郭文贵2017年9月9日 20170909说说姚依林与马云，孟建柱，孙立军]({{site.baseurl}}/miles/transcript/2017/09/20170909-1094477)
-
-[郭文贵2017年9月7日视频 20170907是孙力军．孟建柱．傅政华．王岐山．的凶恶．促使文贵决定美国政治屁护！]({{site.baseurl}}/miles/transcript/2017/09/20170907-1094473)
-
-[郭文贵2017年9月6日视频 20170906王岐山．孟建柱．孙力军．傅政华．如何对待女人！]({{site.baseurl}}/miles/transcript/2017/09/20170906-1094375)
-
-[郭文贵2017年9月5日直播 20170905_1新领导孙力军副部长有了大决定]({{site.baseurl}}/miles/transcript/2017/09/20170905-1093307)
-
-[郭文贵2017年9月4日关于鲍彤先生 20170904关于鲍彤先生痛心我与老领导见面的音频，几个问题得澄清！]({{site.baseurl}}/miles/transcript/2017/09/20170904-1094466)
 
 
 ## 頁面 106/112 [**<**]({{site.baseurl}}/miles/transcript/page105) [1]({{site.baseurl}}/miles/transcript/index) ... [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) **106** [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [112]({{site.baseurl}}/miles/transcript/page112) ... [**>**]({{site.baseurl}}/miles/transcript/page107)

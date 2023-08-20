@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 65/112 [**<**]({{site.baseurl}}/miles/transcript/page64) [1]({{site.baseurl}}/miles/transcript/index) ... [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) **65** [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page66)
 
+[郭文贵2019年11月19日第一次直播 20191119_1香港人权和民主法案参议院通过 连线班农先生庆祝香港人权和民主法案全票通过！]({{site.baseurl}}/miles/transcript/2019/11/20191119-1093989)
+
+[郭文贵2019年11月18日视频 20191118_220191118之2 文贵又开始浪啦浪花钱啦…]({{site.baseurl}}/miles/transcript/2019/11/20191118-1089655)
+
+[郭文贵2019年11月18日视频 20191118_3新的劳斯莱斯库里内 另外一台是深藍色 這一台是淺咖啡色]({{site.baseurl}}/miles/transcript/2019/11/20191118-1089656)
+
+[郭文贵2019年11月18日视频 20191118_4香港的人权法案可能今天要通过了 你能擋得住嗎共產黨]({{site.baseurl}}/miles/transcript/2019/11/20191118-1089657)
+
 [郭文贵2019年11月18日 20191118香港理工大事件的背后故事和王建到底是怎么死的！ part1 2]({{site.baseurl}}/miles/transcript/2019/11/20191118-1093975)
 
 [2019年11月17日文贵大直播全文字版：对香港理工大学即将发生的人道危机提出的个人看法]({{site.baseurl}}/miles/transcript/2019/11/20191117-1086589)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年11月8日视频 20191108_2戰友們好啊今天是發生很多事情啊今天是個好日子啊一天沒發信息了但是太好了啊 好事 好事啊 哈哈哈 Ps搂住搂住]({{site.baseurl}}/miles/transcript/2019/11/20191108-1089642)
 
 [2019年11月7日文贵大直播全文字版：中国现状和大清灭亡前一样；十几家基金公司相聚曼哈顿，一致决定从香港全面撤资]({{site.baseurl}}/miles/transcript/2019/11/20191107-1077178)
-
-[郭文贵2019年11月7日 20191107中国现状和大清灭亡前一样；十几家基金公司相聚曼哈顿，一致决定从香港全面撤资]({{site.baseurl}}/miles/transcript/2019/11/20191107-1093921)
-
-[2019年11月6日文贵大直播全文字版：第二次直播 共产党创造了几个荒唐政治事件]({{site.baseurl}}/miles/transcript/2019/11/20191106-1086575)
-
-[郭文贵2019年11月6日第二次直播 20191106_2共产党创造了几个荒唐政治事件(1)]({{site.baseurl}}/miles/transcript/2019/11/20191106-1093858)
-
-[郭文贵2019年11月6日第三次直播 20191106_3“文贵和路德在喜马拉雅大使馆直播”上部 共产党创造了几个荒唐政治事件(2)]({{site.baseurl}}/miles/transcript/2019/11/20191106-1093877)
 
 
 ## 頁面 65/112 [**<**]({{site.baseurl}}/miles/transcript/page64) [1]({{site.baseurl}}/miles/transcript/index) ... [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) **65** [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page66)

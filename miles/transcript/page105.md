@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 105/112 [**<**]({{site.baseurl}}/miles/transcript/page104) [1]({{site.baseurl}}/miles/transcript/index) ... [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) **105** [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page106)
 
+[郭文贵2017年10月31日第二次直播 20171031_2关于郭文贵家人再次被捕被判]({{site.baseurl}}/miles/transcript/2017/10/20171031-1094537)
+
+[郭文贵2017年10月31日第一次直播 20171031_1改變十九大布局後，郭文貴首次接受媒體採訪-新常委中盜國賊是韓正還是栗戰書？是趙樂際還是汪洋？18屆政治局委員劉延東如何成為盜國婊？民生銀行的張宏偉是怎樣成為劉盜國婊的白手套？]({{site.baseurl}}/miles/transcript/2017/10/20171031-1094683)
+
+[郭文贵2017年10月27日视频 20171027]({{site.baseurl}}/miles/transcript/2017/10/20171027-1094534)
+
+[郭文贵2017年10月26日视频 20171026_3直播公告]({{site.baseurl}}/miles/transcript/2017/10/20171026-1087464)
+
 [郭文贵2017年10月26日第二次直播 20171026_2]({{site.baseurl}}/miles/transcript/2017/10/20171026-1094522)
 
 [郭文贵2017年10月26日第一次直播 20171026_1十九大后爆料计划]({{site.baseurl}}/miles/transcript/2017/10/20171026-1094531)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年9月30日视频 20170930中国驻美大使馆给哈德逊打电话阻止郭的演讲]({{site.baseurl}}/miles/transcript/2017/09/20170930-1094116)
 
 [郭文贵2017年9月29日视频 20170929北京老领导说信息梗阻 吴征杨澜来纽约了]({{site.baseurl}}/miles/transcript/2017/09/20170929-1094113)
-
-[郭文贵2017年9月28日视频 20170928国内封网，放出曲龙，游虎给虎看！]({{site.baseurl}}/miles/transcript/2017/09/20170928-1094112)
-
-[郭文贵2017年9月27日视频 20170927不要开会，不要搞募捐，要行动！]({{site.baseurl}}/miles/transcript/2017/09/20170927-1094109)
-
-[郭文贵2017年9月26日视频 20170926_2酒店警告不准看郭视频 断网还要断电吗？]({{site.baseurl}}/miles/transcript/2017/09/20170926-1094104)
-
-[郭文贵2017年9月26日 20170926任何一个同胞都应该听的视频这是 2017年5月26日 与刘彦平书记在纽约两次开会后——经孙立军要求我去华盛顿去见面，这是我们语音沟通的一部分。]({{site.baseurl}}/miles/transcript/2017/09/20170926-1094521)
 
 
 ## 頁面 105/112 [**<**]({{site.baseurl}}/miles/transcript/page104) [1]({{site.baseurl}}/miles/transcript/index) ... [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) **105** [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page106)

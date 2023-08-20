@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 67/112 [**<**]({{site.baseurl}}/miles/transcript/page66) [1]({{site.baseurl}}/miles/transcript/index) ... [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) **67** [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page68)
 
+[郭文贵2019年10月28日视频 20191028_3Snow]({{site.baseurl}}/miles/transcript/2019/10/20191028-1089610)
+
+[郭文贵2019年10月28日视频 20191028_4【Joe庄随手拍】郭文贵先生说至今没人谈到“区块链”的关键性]({{site.baseurl}}/miles/transcript/2019/10/20191028-1089612)
+
+[郭文贵2019年10月28日视频 20191028紧急直播]({{site.baseurl}}/miles/transcript/2019/10/20191028-1093790)
+
+[2019年10月27日文贵大直播全文字版：与战友闲聊]({{site.baseurl}}/miles/transcript/2019/10/20191027-1087430)
+
 [郭文贵2019年10月27日视频 20191027_2此时此刻的纽约．正在下着毛毛雨．和临近秋天的中央公园．以及最现代化的摩天大楼．相应成画．浪漫至极]({{site.baseurl}}/miles/transcript/2019/10/20191027-1089606)
 
 [郭文贵2019年10月27日视频 20191027试直播与战友闲聊]({{site.baseurl}}/miles/transcript/2019/10/20191027-1093787)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年10月21日第一次直播 20191021_1]({{site.baseurl}}/miles/transcript/2019/10/20191021-1093710)
 
 [郭文贵2019年10月21日第二次紧急直播 20191021_2陈彦霖是枉死，共产党准备了多处灭尸毁证机构]({{site.baseurl}}/miles/transcript/2019/10/20191021-1093717)
-
-[郭文贵2019年10月20日视频 20191020_1大家分享纽约雨天船上时光]({{site.baseurl}}/miles/transcript/2019/10/20191020-1089587)
-
-[2019年10月18日文贵大直播全文字版：郭先生与战友们聊天：美国引领全球反共，港人宁死不屈，是反共先锋！]({{site.baseurl}}/miles/transcript/2019/10/20191018-1087423)
-
-[郭文贵2019年10月18日视频 20191018_2一個半小时后，纽约时间18号上午9點半到10點之间．文贵将在郭媒体．开始今天的直播！不爆料，就是与战友们聊天]({{site.baseurl}}/miles/transcript/2019/10/20191018-1089585)
-
-[郭文贵2019年10月18日 20191018美国引领全球反共，港人宁死不屈，是反共先锋！]({{site.baseurl}}/miles/transcript/2019/10/20191018-1093703)
 
 
 ## 頁面 67/112 [**<**]({{site.baseurl}}/miles/transcript/page66) [1]({{site.baseurl}}/miles/transcript/index) ... [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) **67** [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page68)

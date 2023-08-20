@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 45/112 [**<**]({{site.baseurl}}/miles/transcript/page44) [1]({{site.baseurl}}/miles/transcript/index) ... [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) **45** [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page46)
 
+[郭文贵2020年11月10日盖特 20201110_1尊敬的战友们好，你们健身了吗？你们传播CCP病毒！香港危机真相了，一切都已经开始！]({{site.baseurl}}/miles/transcript/2020/11/20201110-1093139)
+
+[郭文贵2020年11月10日盖特 20201110_2很多战友发信息……问文贵，现在辉瑞公司药的防冠疫苗，是不是可靠？可信？可用？文贵在这里给大家一个回复！]({{site.baseurl}}/miles/transcript/2020/11/20201110-1093151)
+
+[郭文贵2020年11月9日视频 20201109_2川普總統百分之百贏 誰能決定川普總統贏? 新中國聯邦 信不信?]({{site.baseurl}}/miles/transcript/2020/11/20201109-1090027)
+
+[郭文贵2020年11月9日直播 20201109]({{site.baseurl}}/miles/transcript/2020/11/20201109-1093131)
+
 [郭文贵2020年11月8日直播 20201108_1]({{site.baseurl}}/miles/transcript/2020/11/20201108-1093104)
 
 [郭文贵2020年11月8日直播与大卫连线 20201108_2]({{site.baseurl}}/miles/transcript/2020/11/20201108-1093113)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年10月2日盖特 20201002文贵在此衷心地祝福川普总统夫妇和天下所有的的人们……都能安全的度过C C P中共的潘多拉之战]({{site.baseurl}}/miles/transcript/2020/10/20201002-1093022)
 
 [郭文贵2020年10月1日gtv连线香草山 20201001_2]({{site.baseurl}}/miles/transcript/2020/10/20201001-1089040)
-
-[郭文贵2020年10月1日连线香草山 20201001美东香草山农场终共十一游行，在十八楼下连线七哥]({{site.baseurl}}/miles/transcript/2020/10/20201001-1093053)
-
-[郭文贵2020年9月28日盖特 20200928文贵去大教堂．为新中国联邦为爆料革命战友祈福]({{site.baseurl}}/miles/transcript/2020/09/20200928-1092900)
-
-[郭文贵2020年9月27日直播 20200927_1新中国联邦受到了世界多国的欢迎和认可，这是战友们共同团结和奉献的结果。]({{site.baseurl}}/miles/transcript/2020/09/20200927-1092895)
-
-[郭文贵2020年9月26日连线我是音雄 20200926_2《我是音雄》第一期复赛七哥空降现场，并发布震撼消息！]({{site.baseurl}}/miles/transcript/2020/09/20200926-1092888)
 
 
 ## 頁面 45/112 [**<**]({{site.baseurl}}/miles/transcript/page44) [1]({{site.baseurl}}/miles/transcript/index) ... [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) **45** [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page46)

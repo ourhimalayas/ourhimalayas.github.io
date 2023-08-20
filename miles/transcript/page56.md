@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 56/112 [**<**]({{site.baseurl}}/miles/transcript/page55) [1]({{site.baseurl}}/miles/transcript/index) ... [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) **56** [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page57)
 
+[郭文贵2020年4月25日视频 20200425_4]({{site.baseurl}}/miles/transcript/2020/04/20200425-1089847)
+
+[郭文贵2020年4月25日视频 20200425_6(中文字幕)文贵先生接受班农疫情战斗室专访：讓VOA斷播的台長阿曼達，中共的蓝金黄和3F计划，中共很早就早尝试用很小的代价来对付美国]({{site.baseurl}}/miles/transcript/2020/04/20200425-1089851)
+
+[郭文贵2020年4月23日吴征靠女人上位 20200423有史以来最严重的一次被黑客袭击的．直播。建立了没有共产党的新中国！应该马上做什么？文贵强烈推荐]({{site.baseurl}}/miles/transcript/2020/04/20200423-1091942)
+
+[郭文贵2020年4月22日视频 20200422]({{site.baseurl}}/miles/transcript/2020/04/20200422-1091930)
+
 [郭文贵2020年4月21日视频 20200421_1简短录播]({{site.baseurl}}/miles/transcript/2020/04/20200421-1089829)
 
 [郭文贵2020年4月19日视频 20200419_2剛直播完跟女兒聚餐]({{site.baseurl}}/miles/transcript/2020/04/20200419-1089825)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年4月8日GTV直播 20200408_2关于G-TV战友们关心的问题和现在国内疫情的真实现状。]({{site.baseurl}}/miles/transcript/2020/04/20200408-1092112)
 
 [郭文贵2020年4月7日gtv视频 20200407_4关于战友关心的集体为投资．以及文贵如何看待，国内疫情大爆发的根本原因！]({{site.baseurl}}/miles/transcript/2020/04/20200407-1088991)
-
-[郭文贵2020年4月7日视频 20200407_2就4月7号上午的直播中一些关键的信息的严肃纠正]({{site.baseurl}}/miles/transcript/2020/04/20200407-1089802)
-
-[郭文贵2020年4月7日视频 20200407_3与战友分享农场的美景……你对自然多爱护．大自然就会让你体验到．更多倍的……多么不可思议的美丽的风景]({{site.baseurl}}/miles/transcript/2020/04/20200407-1089804)
-
-[郭文贵2020年4月7日视频 20200407我们已经处在世界第三次战争中！]({{site.baseurl}}/miles/transcript/2020/04/20200407-1092106)
-
-[郭文贵2020年4月6日视频 20200406_1]({{site.baseurl}}/miles/transcript/2020/04/20200406-1089796)
 
 
 ## 頁面 56/112 [**<**]({{site.baseurl}}/miles/transcript/page55) [1]({{site.baseurl}}/miles/transcript/index) ... [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) **56** [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page57)

@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 63/112 [**<**]({{site.baseurl}}/miles/transcript/page62) [1]({{site.baseurl}}/miles/transcript/index) ... [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) **63** [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page64)
 
+[郭文贵2019年12月21日视频 20191221_3現在吃飯．吃完飯以後就馬上直播！還是真正的中國飯好吃]({{site.baseurl}}/miles/transcript/2019/12/20191221-1089715)
+
+[郭文贵2019年12月21日视频 20191221谈谈欺诈犯郭宝胜庭审细节和海外华人形象的危机]({{site.baseurl}}/miles/transcript/2019/12/20191221-1094082)
+
+[郭文贵2019年12月20日视频 20191220_1]({{site.baseurl}}/miles/transcript/2019/12/20191220-1089710)
+
+[郭文贵2019年12月19日视频 20191219_1由于文贵诉郭宝胜的案件在华盛顿开庭．延期一了天．今天不能直播了]({{site.baseurl}}/miles/transcript/2019/12/20191219-1089706)
+
 [郭文贵2019年12月18日视频 20191218_1文贵今天还要继续开庭，所以早上5：00起床，今天只能是录制视频给大家了]({{site.baseurl}}/miles/transcript/2019/12/20191218-1089702)
 
 [郭文贵2019年12月17日视频 20191217在华盛顿报平安]({{site.baseurl}}/miles/transcript/2019/12/20191217-1094063)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年12月3日视频 20191203_2Snow]({{site.baseurl}}/miles/transcript/2019/12/20191203-1089690)
 
 [郭文贵2019年12月3日视频 20191203大量資本希望折价离开中国，有渠道的有大资金的可以联系文贵，路德]({{site.baseurl}}/miles/transcript/2019/12/20191203-1094134)
-
-[郭文贵2019年12月2日视频 20191202路江谈老少必看；习近平令被撤回原因有二：一是习危也；二是令是实施香港紧急戒严法]({{site.baseurl}}/miles/transcript/2019/12/20191202-1094139)
-
-[郭文贵2019年12月1日视频 20191201梁振英站台的海南恒大超级医院；龚火鸡欺骗VOA并做各种假材料；香港人权法案打响了全世界灭共的第一枪]({{site.baseurl}}/miles/transcript/2019/12/20191201-1094129)
-
-[郭文贵2019年11月30日 20191130曾宏和赵岩是如何为小夏争风吃醋的！乱聊再乱聊，一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/11/20191130-1094105)
-
-[郭文贵2019年11月29日 20191129龚小夏过往点滴,龚你啥时候看过帐？]({{site.baseurl}}/miles/transcript/2019/11/20191129-1094098)
 
 
 ## 頁面 63/112 [**<**]({{site.baseurl}}/miles/transcript/page62) [1]({{site.baseurl}}/miles/transcript/index) ... [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) **63** [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page64)

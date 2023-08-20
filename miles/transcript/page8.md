@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 8/112 [**<**]({{site.baseurl}}/miles/transcript/page7) [1]({{site.baseurl}}/miles/transcript/index) ... [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) **8** [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page9)
 
+[郭文贵2022年4月2日盖特 20220402_1尊敬的战友们好，????????????????????????????????????????????????????????????????你们健身了吗？你们想七哥了吗？你一切都已经开始！]({{site.baseurl}}/miles/transcript/2022/04/20220402-1090698)
+
+[郭文贵2022年3月31日盖特 20220331_1尊敬的战友们好，你们健身了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2022/03/20220331-1090693)
+
+[郭文贵2022年3月30日直播 20220330_1俄乌战争与和谈最新动态；墙内疫情与民众生活危机；扩大应用与喜币价值提升；房地产债务违约金融分析]({{site.baseurl}}/miles/transcript/2022/03/20220330-1091414)
+
+[郭文贵2022年3月27日直播 20220327_1世界政治地域文化经济彻底改变；美国点明俄国非西方敌人普京是；从普京必须离开看习近平的命运；GClubs年会显天意人心遥相呼应]({{site.baseurl}}/miles/transcript/2022/03/20220327-1091315)
+
 [郭文贵2022年3月26日直播 20220326_1G CLUB2022年年会]({{site.baseurl}}/miles/transcript/2022/03/20220326-1091221)
 
 [郭文贵2022年3月25日直播 20220325_1从俄乌战争看真正的世界军事实力；香港地产大缩水金融市场黑市交易]({{site.baseurl}}/miles/transcript/2022/03/20220325-1091067)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2022年3月9日直播 20220309_1是谁黑掉乌克兰救援邮件官网；是谁暂禁郭先生油管上传视频；什么力量封杀乌克兰救援信息；《铁锁梦》创作及推出后感受]({{site.baseurl}}/miles/transcript/2022/03/20220309-1090535)
 
 [郭文贵2022年3月8日盖特 20220308_1尊敬的战友们好．俄乌战争，让世界看清了中国共产党的丑恶……和危险，唤醒了无数的中国人，新中国联邦人正在俄乌战场，拯救着乌克兰的妇女和孩子……和中国同胞。我们一定让世界更多的]({{site.baseurl}}/miles/transcript/2022/03/20220308-1091473)
-
-[郭文贵2022年3月7日盖特 20220307_1尊敬的战友们好衷心的感谢在波兰和乌克兰前线的救援的所有的兄弟姐妹吗？可恨的共产党驻乌克兰大使馆……竟然将已经登上我们在乌克兰救援大巴的人．用谎言将他们骗下车，这些人现在生死]({{site.baseurl}}/miles/transcript/2022/03/20220307-1090471)
-
-[郭文贵2022年3月6日直播 20220306_1新中国联邦营救行动意义；共产党给华人带来的危险；未来排华及保护华人安全；俄乌战争爆发与世界经济]({{site.baseurl}}/miles/transcript/2022/03/20220306-1090465)
-
-[郭文贵2022年3月6日盖特 20220306_2尊敬的战友们好，你们健身了吗？传播乌克兰战争……人道危机的真相了吗？一切都已经开始]({{site.baseurl}}/miles/transcript/2022/03/20220306-1090468)
-
-[郭文贵2022年3月4日盖特 20220304_1尊敬的战友们好，今天我收到了无数个战友对我母亲三年冥诞问候！衷心地感谢兄弟姐妹们！我们只有靠真实的行动，才能保护我们的父母．姐妹．兄弟．消灭中国共产党是唯一的，让我们能快乐]({{site.baseurl}}/miles/transcript/2022/03/20220304-1090410)
 
 
 ## 頁面 8/112 [**<**]({{site.baseurl}}/miles/transcript/page7) [1]({{site.baseurl}}/miles/transcript/index) ... [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) **8** [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page9)

@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 55/112 [**<**]({{site.baseurl}}/miles/transcript/page54) [1]({{site.baseurl}}/miles/transcript/index) ... [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) **55** [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page56)
 
+[郭文贵2020年5月14日视频 20200514_2视频恢复 ： 绝不能让任何国家利用共产党犯罪来抢着中国人的财富．Gfashion将成为战友们走向世界的综合舞台！]({{site.baseurl}}/miles/transcript/2020/05/20200514-1092157)
+
+[郭文贵2020年5月13日视频 20200513GTV录播：下午7：30，是谁把银行买垮了，阴阳乾坤，隔空取钱。]({{site.baseurl}}/miles/transcript/2020/05/20200513-1089007)
+
+[郭文贵2020年5月11日GTV连线长岛伟哥 20200511]({{site.baseurl}}/miles/transcript/2020/05/20200511-1092113)
+
+[郭文贵2020年5月10日GTV连线文欣 20200510]({{site.baseurl}}/miles/transcript/2020/05/20200510-1092132)
+
 [郭文贵2020年5月10日连线老江等五人 20200510_2建立爆料革命受害者援助会．和保证灭共后的护卫力量，建立更强大的战友核心团队．建立喜马拉雅联储系统]({{site.baseurl}}/miles/transcript/2020/05/20200510-1092423)
 
 [郭文贵2020年5月9日连线草根小哥 20200509_2]({{site.baseurl}}/miles/transcript/2020/05/20200509-1092070)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年4月25日视频 20200425_2GTV 作战工作室, 还有snow 哈哈]({{site.baseurl}}/miles/transcript/2020/04/20200425-1089840)
 
 [郭文贵2020年4月25日视频 20200425_3]({{site.baseurl}}/miles/transcript/2020/04/20200425-1089844)
-
-[郭文贵2020年4月25日视频 20200425_4]({{site.baseurl}}/miles/transcript/2020/04/20200425-1089847)
-
-[郭文贵2020年4月25日视频 20200425_6(中文字幕)文贵先生接受班农疫情战斗室专访：讓VOA斷播的台長阿曼達，中共的蓝金黄和3F计划，中共很早就早尝试用很小的代价来对付美国]({{site.baseurl}}/miles/transcript/2020/04/20200425-1089851)
-
-[郭文贵2020年4月23日吴征靠女人上位 20200423有史以来最严重的一次被黑客袭击的．直播。建立了没有共产党的新中国！应该马上做什么？文贵强烈推荐]({{site.baseurl}}/miles/transcript/2020/04/20200423-1091942)
-
-[郭文贵2020年4月22日视频 20200422]({{site.baseurl}}/miles/transcript/2020/04/20200422-1091930)
 
 
 ## 頁面 55/112 [**<**]({{site.baseurl}}/miles/transcript/page54) [1]({{site.baseurl}}/miles/transcript/index) ... [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) **55** [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page56)

@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 29/112 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page30)
 
+[郭文贵2021年5月24日盖特 20210524_1尊敬的战友们好！全世界都在用生命和代价来证明极权后的政府能干大事是否是正确的，全世界用生命和血汗在证明极权后的财富，最后由谁说了算……？被极权谎言愚弄的时代即将成为历史！]({{site.baseurl}}/miles/transcript/2021/05/20210524-1091394)
+
+[郭文贵2021年5月24日盖特 20210524_2尊敬的战友们好！全世界都在用生命和代价来证明极权后的政府能干大事是否是正确的，全世界用生命和血汗在证明极权后的财富，最后由谁说了算……？被极权谎言愚弄的时代即将成为历史！(接]({{site.baseurl}}/miles/transcript/2021/05/20210524-1091396)
+
+[郭文贵2021年5月23日直播 20210523_1中共的楼震，桥震，币震，粮震，随时脆断；Gnews，GTV，盖特，国际影响力巨大；九指妖故意毁坏财物暴露了，她是一个嫉妒心理变态，早已经背叛了爆料革命的叛徒]({{site.baseurl}}/miles/transcript/2021/05/20210523-1091390)
+
+[郭文贵2021年5月22日盖特 20210522_1尊敬的战友的好！共产党的流氓统治极权！正在被全世界正义的力量围缫中！每天每时每刻都在加速共产党这个流氓体制．政权的灭亡！我们的爆料革命和新中国联邦！应该做更多的实际行动，唤]({{site.baseurl}}/miles/transcript/2021/05/20210522-1091368)
+
 [郭文贵2021年5月22日盖特 20210522_2今天的真人真事节目．代表了新中国联邦的现在……新中国联邦的未来……的两个不同年龄代别的具体的一个缩影。新中国联邦人每一步的成功．都是背后，无数个无名的战友的奉献．今天的成功]({{site.baseurl}}/miles/transcript/2021/05/20210522-1091370)
 
 [郭文贵2021年5月21日盖特 20210521_1尊敬的战友们好，为什么在这短短的一两周内世界经济，政治，军事科学．教育各个领域．都突然的统一迅速的。在转向灭共．反共呢？为什么那么多世界上曾经否定我们的科学家的报告的人，现]({{site.baseurl}}/miles/transcript/2021/05/20210521-1091354)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年5月15日盖特 20210515_4G翻身正在一场新的革命当中．即将给Gclub会员带来一些福利惊喜！]({{site.baseurl}}/miles/transcript/2021/05/20210515-1091333)
 
 [郭文贵2021年5月14日盖特 20210514_1任何对无辜的体制内的孩子．被拒签而幸灾乐祸的人！都是不正确的，呼吁所有的买Gclub的战友以最快的时间．到你的农场对账，或给Gclub公司直接打电话．对帐领卡！不要让自己失去利益的机会！]({{site.baseurl}}/miles/transcript/2021/05/20210514-1091318)
-
-[郭文贵2021年5月13日盖特 20210513_5挡不住的诱惑！]({{site.baseurl}}/miles/transcript/2021/05/20210513-1091312)
-
-[郭文贵2021年5月13日盖特 20210513_1尊敬的战友们好，7哥将在半小时左右．开始乱聊直播！]({{site.baseurl}}/miles/transcript/2021/05/20210513-1091329)
-
-[郭文贵2021年5月13日盖特 20210513_2啥好事儿．也不能让我们有任何借口不锻炼，不健身！]({{site.baseurl}}/miles/transcript/2021/05/20210513-1091331)
-
-[郭文贵2021年5月13日直播 20210513_3文贵直播：以毒灭共，喜币打疼了中共，中共对文贵开始新一轮打压；秦刚女婿大使来美的首要任务；虚拟币在美国合法化的重大意义；我们已经有了喜银行]({{site.baseurl}}/miles/transcript/2021/05/20210513-1091338)
 
 
 ## 頁面 29/112 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page30)

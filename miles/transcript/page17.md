@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 17/112 [**<**]({{site.baseurl}}/miles/transcript/page16) [1]({{site.baseurl}}/miles/transcript/index) ... [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) **17** [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page18)
 
+[郭文贵2021年10月26日直播 20211026_1七哥健身直播沒時間的千萬別來]({{site.baseurl}}/miles/transcript/2021/10/20211026-1093499)
+
+[郭文贵2021年10月26日直播 20211026_22021年11月1号11:01分格林威治时间将发生什么？七哥告诉你他英文名字的来历]({{site.baseurl}}/miles/transcript/2021/10/20211026-1093504)
+
+[郭文贵2021年10月26日盖特 20211026_3尊敬的战后们好……为什么我们的穷人总是一直穷？为什么习近平在北京．江派的人竟然不知道？川普总统的股票为什么暴跌？]({{site.baseurl}}/miles/transcript/2021/10/20211026-1093611)
+
+[郭文贵2021年10月26日盖特 20211026_4椒麻鸡来啦……]({{site.baseurl}}/miles/transcript/2021/10/20211026-1093616)
+
 [郭文贵2021年10月26日盖特 20211026_5太好吃了????]({{site.baseurl}}/miles/transcript/2021/10/20211026-1093621)
 
 [郭文贵2021年10月24日直播 20211024_1与川普公司合并的SPAC公司DWAC背后的11家投资机构与中共的关系，这场交易是以共产党情报为背景进行的连环操作，涉嫌多项内幕交易和犯罪的惊天的计划，让川普总统处在极度危险之中；我们永远]({{site.baseurl}}/miles/transcript/2021/10/20211024-1093490)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年10月12日盖特 20211012_1尊敬的战友们好……共产党的经济超限战……正危害全球的所有的金融市场和国家的经济安全！]({{site.baseurl}}/miles/transcript/2021/10/20211012-1093609)
 
 [郭文贵2021年10月12日盖特 20211012_2吃饭饭喽……]({{site.baseurl}}/miles/transcript/2021/10/20211012-1093614)
-
-[郭文贵2021年10月12日盖特 20211012_3尊敬的战友们好．世界政治经济面临的巨大挑战给新中国联邦带来了前所未有的机会，我们要冷静，客观全面进行揭发．帮助世界拆除共产党在全世界埋下的各种定时炸弹……]({{site.baseurl}}/miles/transcript/2021/10/20211012-1093619)
-
-[郭文贵2021年10月11日盖特 20211011_1刚才的视频大家的反应有卡顿，我再重发一次。]({{site.baseurl}}/miles/transcript/2021/10/20211011-1093476)
-
-[郭文贵2021年10月11日盖特直播 20211011_2]({{site.baseurl}}/miles/transcript/2021/10/20211011-1093478)
-
-[郭文贵2021年10月10日直播 20211010_1文贵在双十节给台湾同胞说的话：台湾凶也，中共与美方对台湾问题早有文字性承诺勾兑;习以孙灭台，与国民党卖台贼呼应；国内经济房地产的万亿债务危机，华平基金的腐败会把西方掏空，中美]({{site.baseurl}}/miles/transcript/2021/10/20211010-1093468)
 
 
 ## 頁面 17/112 [**<**]({{site.baseurl}}/miles/transcript/page16) [1]({{site.baseurl}}/miles/transcript/index) ... [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) **17** [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page18)

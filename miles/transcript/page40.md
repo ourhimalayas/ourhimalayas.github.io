@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 40/112 [**<**]({{site.baseurl}}/miles/transcript/page39) [1]({{site.baseurl}}/miles/transcript/index) ... [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) **40** [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page41)
 
+[郭文贵2021年1月14日盖特 20210114_1共产党在美国的黑客袭击……和对每个国家的安全威胁，再次由于我们爆料革命的努力和残酷的与邪恶的斗争，得到了新的法律印证……将有一个新的灭共的胜利，共产党正在快速走向全世界人民]({{site.baseurl}}/miles/transcript/2021/01/20210114-1090372)
+
+[郭文贵2021年1月13日盖特 20210113_1这个对全人类的重要的日子．让我们更加深刻看清了共产党的邪恶……和正道主义的伟大，最终结果会如何呢？]({{site.baseurl}}/miles/transcript/2021/01/20210113-1090368)
+
+[郭文贵2021年1月12日直播 20210112_1]({{site.baseurl}}/miles/transcript/2021/01/20210112-1090366)
+
+[郭文贵2021年1月11日盖特 20210111_1尊敬的战友们好……文贵向国内正在遭受共产党的国安．及警察．对G-TV投资者的威胁下，正在被逼迫所谓的填写虚假的投诉……和退款要求的战友们的…的两个紧急建议！]({{site.baseurl}}/miles/transcript/2021/01/20210111-1090360)
+
 [郭文贵2021年1月11日盖特 20210111_2文贵第二次发盖特……特殊的今天……让我文贵更加感触很深很深刻……一个国家和民族的安全．法律．和信仰……是多么的重要……]({{site.baseurl}}/miles/transcript/2021/01/20210111-1090362)
 
 [郭文贵2021年1月10日直播 20210110_1]({{site.baseurl}}/miles/transcript/2021/01/20210110-1090356)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年12月31日音频聊天 20201231_3郭先生喜马拉雅大使馆discord群答疑录音]({{site.baseurl}}/miles/transcript/2020/12/20201231-1090263)
 
 [郭文贵2020年12月30日盖特 20201230_1尊敬的战友们好，所有的战友们一定要小心被洗脑后．被利用传播仇恨，传播共产主义，对家人及后代所带来的不可估量的负面影响，这是极为可怕的严重的不可接受的丑陋的行为，一切都已经开]({{site.baseurl}}/miles/transcript/2020/12/20201230-1090171)
-
-[郭文贵2020年12月30日音频聊天 20201230_2郭先生喜马拉雅大使馆discord群答疑录音]({{site.baseurl}}/miles/transcript/2020/12/20201230-1090179)
-
-[郭文贵2020年12月30日视频 20201230_3郭先生为“G Forever我是音雄全球跨年晚会”录制视频第二弹]({{site.baseurl}}/miles/transcript/2020/12/20201230-1090259)
-
-[郭文贵2020年12月29日盖特 20201229_1文贵刚开完会向大家报平安，一切都已经开始]({{site.baseurl}}/miles/transcript/2020/12/20201229-1090163)
-
-[郭文贵2020年12月29日视频 20201229_2郭文贵先生给《我是音雄》的祝贺和期许（一）]({{site.baseurl}}/miles/transcript/2020/12/20201229-1090167)
 
 
 ## 頁面 40/112 [**<**]({{site.baseurl}}/miles/transcript/page39) [1]({{site.baseurl}}/miles/transcript/index) ... [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) **40** [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page41)

@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 77/112 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page78)
 
+[郭文贵2019年7月16日视频 20190716_1香港会有什么紧急情况发生？一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/07/20190716-1089320)
+
+[郭文贵2019年7月15日视频 20190715_2试试郭媒体即将推出的新软件]({{site.baseurl}}/miles/transcript/2019/07/20190715-1089317)
+
+[郭文贵2019年7月15日视频 20190715盘古大观在7月14号被北京高院公告……将以实际价格的10％被拍卖……实际的背后的黑手就是江泽民．和江志成．孟建柱和孙力军……王岐山！这就是过去两周他们要栽赃文贵]({{site.baseurl}}/miles/transcript/2019/07/20190715-1093329)
+
+[2019年7月15日直播全文字版：盘古大观在7月14日被北京高院公告······]({{site.baseurl}}/miles/transcript/2019/07/20190715-1098113)
+
 [郭文贵2019年7月14日 20190714班农与文贵直播: 共产党为什么可以强奸美国70年？]({{site.baseurl}}/miles/transcript/2019/07/20190714-1093421)
 
 [2019年7月14日直播全文字版: 班农与文贵：共产党为什么可以强奸美国70年？]({{site.baseurl}}/miles/transcript/2019/07/20190714-1098114)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年7月7日直播全文字版：聊聊我们的郭媒体，王岐山又出手，王健“活该死”及香港抗议将引发的CCP灭亡第一战的意义合集]({{site.baseurl}}/miles/transcript/2019/07/20190707-1098102)
 
 [郭文贵2019年7月6日连线彭文正 20190706Miles live with Dennis Peng - Destroying the CCP to protect Taiwan...]({{site.baseurl}}/miles/transcript/2019/07/20190706-1093356)
-
-[2019年7月6日直播全文字版：与彭文正先生连线——灭共保台]({{site.baseurl}}/miles/transcript/2019/07/20190706-1098104)
-
-[郭文贵2019年7月5日视频 20190705美国最高层“中国人站起来反抗，美国人一定跟上”]({{site.baseurl}}/miles/transcript/2019/07/20190705-1093334)
-
-[2019年7月5日文贵船上直播全文字版：从美国国庆日看中共的假丑黑恶]({{site.baseurl}}/miles/transcript/2019/07/20190705-1098098)
-
-[郭文贵2019年7月3日视频 20190703_2伪民运为什么敢在法院侮辱威胁文贵 高清部分内容]({{site.baseurl}}/miles/transcript/2019/07/20190703-1088593)
 
 
 ## 頁面 77/112 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page78)

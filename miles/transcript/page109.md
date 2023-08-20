@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 109/112 [**<**]({{site.baseurl}}/miles/transcript/page108) [1]({{site.baseurl}}/miles/transcript/index) ... [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) **109** [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page110)
 
+[郭文贵2017年7月27日 20170727王岐山的真姚庆到底怕什么]({{site.baseurl}}/miles/transcript/2017/07/20170727-1094331)
+
+[郭文贵2017年7月26日 20170726贯君的6000亿原来去了这里！刘呈杰他爹原来是他！]({{site.baseurl}}/miles/transcript/2017/07/20170726-1094320)
+
+[郭文贵2017年7月25日 20170725王岐山、贯君的6000亿海航股权去哪了？]({{site.baseurl}}/miles/transcript/2017/07/20170725-1094304)
+
+[郭文贵2017年7月24日第三次直播 20170724_3]({{site.baseurl}}/miles/transcript/2017/07/20170724-1093281)
+
 [郭文贵2017年7月24日第一次直播 20170724_1王岐山盗国贼们的恐惧]({{site.baseurl}}/miles/transcript/2017/07/20170724-1094457)
 
 [郭文贵2017年7月24日第二次直播 20170724_2呼吁推友不要冲动]({{site.baseurl}}/miles/transcript/2017/07/20170724-1094663)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年6月26日视频 20170626]({{site.baseurl}}/miles/transcript/2017/06/20170626-1094301)
 
 [郭文贵2017年6月24日视频 20170624推特报平安视频. 推文打成了“报仇平安”哈哈O(∩_∩)O]({{site.baseurl}}/miles/transcript/2017/06/20170624-1094038)
-
-[郭文贵2017年6月22日视频 20170622推特报平安视频……一切都是刚刚开始！✊️✊️✊️✊️]({{site.baseurl}}/miles/transcript/2017/06/20170622-1094039)
-
-[郭文贵2017年6月19日视频 20170619再让子弹飞一会儿！]({{site.baseurl}}/miles/transcript/2017/06/20170619-1094298)
-
-[郭文贵2017年6月16日明镜专访第三期 20170616]({{site.baseurl}}/miles/transcript/2017/06/20170616-1094805)
-
-[郭文贵2017年6月13日 20170613关于章立凡与胡平先生在VoA节目中对文贵的诬陷]({{site.baseurl}}/miles/transcript/2017/06/20170613-1094288)
 
 
 ## 頁面 109/112 [**<**]({{site.baseurl}}/miles/transcript/page108) [1]({{site.baseurl}}/miles/transcript/index) ... [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) **109** [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page110)

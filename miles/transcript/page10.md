@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 10/112 [**<**]({{site.baseurl}}/miles/transcript/page9) [1]({{site.baseurl}}/miles/transcript/index) ... [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) **10** [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page11)
 
+[郭文贵2022年2月15日盖特 20220215_2七哥从这一刻起个人正式破产了……案件号码：Case No. 22-50073]({{site.baseurl}}/miles/transcript/2022/02/20220215-1090194)
+
+[郭文贵2022年2月14日盖特 20220214_1尊敬的战友们好！再祝全天下的兄弟姐妹们，战友们．情人节快乐！]({{site.baseurl}}/miles/transcript/2022/02/20220214-1089963)
+
+[郭文贵2022年2月13日盖特 20220213_2尊敬的战友们好，你们健身了吗？传播CCP病毒．疫苗解药的真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2022/02/20220213-1089959)
+
+[郭文贵2022年2月13日直播 20220213_1加拿大卡车清理事件；冬奥会连续爆丑闻；世界经济市场突发；西方法律系统渗透]({{site.baseurl}}/miles/transcript/2022/02/20220213-1090651)
+
 [郭文贵2022年2月12日盖特 20220212_1尊敬的战友们好，你们健身了吗？传播CCP病毒，疫苗解药真相了吗？七哥继续和大家分享，昨天大直播中，我没回答完的问题…… 一切都已经开始！]({{site.baseurl}}/miles/transcript/2022/02/20220212-1089932)
 
 [郭文贵2022年2月11日直播 20220211_1冬奥会爆出“美”谷爱凌；黑操作假裁判破坏规则；共产党蓝金黄无孔不入；感染下降疫苗政策在变]({{site.baseurl}}/miles/transcript/2022/02/20220211-1090579)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2022年1月28日盖特 20220128_1尊敬的战友们好？你们健身了吗？传播C C P病毒，疫苗解药的真相了吗？共产党在美国授权撤离的外交后……还在尝试磕头，下跪．求美国！帮他们欺骗十几亿中国人……悲剧呀……中国人可怜至极]({{site.baseurl}}/miles/transcript/2022/01/20220128-1089805)
 
 [郭文贵2022年1月28日盖特 20220128_2感谢战友凯莉，收藏的SNOW 的视频，一切都是如此的美好。]({{site.baseurl}}/miles/transcript/2022/01/20220128-1089810)
-
-[郭文贵2022年1月27日直播 20220127_1卧薪尝胆三十载 爆料革命整五年 正道至善得人心 除恶建邦开纪元；冬奥会开幕在即 美国授权撤离大使馆]({{site.baseurl}}/miles/transcript/2022/01/20220127-1089647)
-
-[郭文贵2022年1月27日盖特 20220127_2谢谢来福福战友，发来保存的……SNOW 视频????????????????????????美好的回忆]({{site.baseurl}}/miles/transcript/2022/01/20220127-1089801)
-
-[郭文贵2022年1月26日中英文视频 20220126_1郭文贵先生和爆料革命的战友们在过去五年揭露了中共腐败和种族大屠杀、提前向西方警告了中共制造的黑暗即将到来、并最早说出中共病毒及其疫苗的真相！美国政府刚刚做出决定“授权撤离”]({{site.baseurl}}/miles/transcript/2022/01/20220126-1089566)
-
-[郭文贵2022年1月26日盖特 20220126_2尊敬的战友们好！在爆料革命五周年之际，文贵衷心的感谢，????????????????????????????????????亿万个战友的付出……和文贵一起奋斗消灭这个邪恶的中国共产党……一切都已经开始]({{site.baseurl}}/miles/transcript/2022/01/20220126-1089795)
 
 
 ## 頁面 10/112 [**<**]({{site.baseurl}}/miles/transcript/page9) [1]({{site.baseurl}}/miles/transcript/index) ... [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) **10** [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page11)

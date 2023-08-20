@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 84/112 [**<**]({{site.baseurl}}/miles/transcript/page83) [1]({{site.baseurl}}/miles/transcript/index) ... [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) **84** [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page85)
 
+[郭文贵2019年3月5日 20190305为什么在两会上说，金正恩拯救了中国？]({{site.baseurl}}/miles/transcript/2019/03/20190305-1092684)
+
+[郭文贵2019年3月4日 20190304文贵谈10亿欧元支票怎么来的！北京正在进行的两会为什么说2019的64民主全民运动即将来临……]({{site.baseurl}}/miles/transcript/2019/03/20190304-1092673)
+
+[郭文贵2019年3月3日视频 20190303金正恩为什么直接回朝鲜为什么要枪毙．偷拍金正恩视频的中国人吗？]({{site.baseurl}}/miles/transcript/2019/03/20190303-1092667)
+
+[郭文贵2019年3月2日视频 20190302_2尊敬的战友们好！纽约今天下了大雪！非常的漂亮浪漫极了！我正在准备两个小时以后的直播！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/03/20190302-1089156)
+
 [郭文贵2019年3月2日视频 20190302_3与战友们分享媳妇刚刚组装的乐高越野赛车！]({{site.baseurl}}/miles/transcript/2019/03/20190302-1089158)
 
 [郭文贵2019年3月2日 20190302和Sara,安红,路德,邱先生谈话]({{site.baseurl}}/miles/transcript/2019/03/20190302-1092663)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年2月7日 20190207文贵、班农、凯琳 回答战友们对春晚爆料的问题]({{site.baseurl}}/miles/transcript/2019/02/20190207-1092740)
 
 [郭文贵2019年2月6日 20190206文贵、班农、凯琳 回答战友们对春晚爆料的问题]({{site.baseurl}}/miles/transcript/2019/02/20190206-1092699)
-
-[郭文贵2019年2月5日视频 20190205_1文贵先生、SARA、路德给大家拜年直播]({{site.baseurl}}/miles/transcript/2019/02/20190205-1089104)
-
-[郭文贵2019年2月4日视频 20190204_3赶饺子????皮！感恩美国感恩战友！感恩上天！]({{site.baseurl}}/miles/transcript/2019/02/20190204-1089086)
-
-[郭文贵2019年2月4日中文 20190204_2除夕去共赢正道爆料春晚]({{site.baseurl}}/miles/transcript/2019/02/20190204-1092641)
-
-[郭文贵2019年2月4日英文 20190204_1除夕爆料春晚 达赖喇嘛尊者]({{site.baseurl}}/miles/transcript/2019/02/20190204-1092670)
 
 
 ## 頁面 84/112 [**<**]({{site.baseurl}}/miles/transcript/page83) [1]({{site.baseurl}}/miles/transcript/index) ... [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) **84** [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page85)

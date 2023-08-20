@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 43/112 [**<**]({{site.baseurl}}/miles/transcript/page42) [1]({{site.baseurl}}/miles/transcript/index) ... [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) **43** [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page44)
 
+[郭文贵2020年12月9日盖特 20201209_2文貴衷心的感謝全球的懲賊滅共行動中......辛苦的戰友們......]({{site.baseurl}}/miles/transcript/2020/12/20201209-1090051)
+
+[郭文贵2020年12月8日盖特 20201208_3心地感谢日本富士会的007及所有的战友们的认真……和辛苦……制作的新中国联邦的旗帜和徽章的系列]({{site.baseurl}}/miles/transcript/2020/12/20201208-1090089)
+
+[郭文贵2020年12月8日直播 20201208_1文贵直播做羊肉丸子和蒸大馒头 第一部分]({{site.baseurl}}/miles/transcript/2020/12/20201208-1093258)
+
+[郭文贵2020年12月8日直播 20201208_2文贵直播做羊肉丸子和蒸大馒头 第二部分 （约翰叔叔向战友谢罪篇，感谢上天造和秘密翻译组）]({{site.baseurl}}/miles/transcript/2020/12/20201208-1093271)
+
 [郭文贵2020年12月7日盖特 20201207_1尊敬的戰友們好，明天1 2月8號上午9 ：0 0至1 0 ：0 0間文貴直播做羊肉丸子，蒸大饅頭，一切都已經開始！]({{site.baseurl}}/miles/transcript/2020/12/20201207-1093249)
 
 [郭文贵2020年12月7日盖特 20201207_2尊敬的戰友們好。再次的感謝所有的戰友。為朱利安尼先生的祈禱，他現在恢复非常好。文貴在此表達衷心的感謝，一切都已經開始！]({{site.baseurl}}/miles/transcript/2020/12/20201207-1093252)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年11月22日盖特 20201122_2尊敬的战友们好，你们健身了吗？你们传统播C C B病毒——香港危机真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2020/11/20201122-1093206)
 
 [郭文贵2020年11月22日直播 20201122_3夜晚部分]({{site.baseurl}}/miles/transcript/2020/11/20201122-1093219)
-
-[郭文贵2020年11月21日盖特 20201121_1文贵与战友们一起吃新鲜出炉的面包]({{site.baseurl}}/miles/transcript/2020/11/20201121-1093158)
-
-[郭文贵2020年11月21日直播 20201121_2]({{site.baseurl}}/miles/transcript/2020/11/20201121-1093196)
-
-[郭文贵2020年11月20日盖特 20201120_11120我到底应不应该直播，由于各种原因，我要兑现我的承诺啊，今天还不能谈这个事情，王建的被杀害的事情远远没有结束]({{site.baseurl}}/miles/transcript/2020/11/20201120-1093241)
-
-[郭文贵2020年11月20日盖特 20201120_2尊敬的战友们好．几天来，我一直都在思考……这个难以忘记重大的爆料革命的历史的日子里……1120我到底应不应该直播，由于各种原因，我要兑现我的承诺啊，今天还不能谈这个事情，]({{site.baseurl}}/miles/transcript/2020/11/20201120-1093242)
 
 
 ## 頁面 43/112 [**<**]({{site.baseurl}}/miles/transcript/page42) [1]({{site.baseurl}}/miles/transcript/index) ... [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) **43** [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page44)

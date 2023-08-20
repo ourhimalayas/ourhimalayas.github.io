@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 26/112 [**<**]({{site.baseurl}}/miles/transcript/page25) [1]({{site.baseurl}}/miles/transcript/index) ... [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) **26** [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page27)
 
+[郭文贵2021年7月3日盖特 20210703_2与上海老领导的通话，让我更加自信的是新中国联邦的宣言和思想……已经深入了中国共产党体制的内部]({{site.baseurl}}/miles/transcript/2021/07/20210703-1091690)
+
+[郭文贵2021年7月2日盖特 20210702_1聊聊7月1号共产党人百年冥诞，和我们新中国联邦……全球连线直播……最大的不同之处是什么？]({{site.baseurl}}/miles/transcript/2021/07/20210702-1091702)
+
+[郭文贵2021年7月2日盖特 20210702_27月1号在北京天安门广场的前方後方左邊右邊都發生了你们还不知道的重大事件, 先不爆料, 未來會解密; 共產黨將被西方追究人口販運, 洗錢, 黑客, 操縱貨幣(包括數字貨幣)]({{site.baseurl}}/miles/transcript/2021/07/20210702-1091706)
+
+[郭文贵2021年7月1日直播 20210701_1终结中国百年杀戮]({{site.baseurl}}/miles/transcript/2021/07/20210701-1091722)
+
 [郭文贵2021年6月30日直播 20210630_1共产党的百年冥诞．将彻底的扭转中国人的命运……和明天7月1号我们的一整天的直播．全世界的被共产主义杀害的人们正在紧紧地联合起来．将选择最快的方式消灭中国共产党！]({{site.baseurl}}/miles/transcript/2021/06/20210630-1091651)
 
 [郭文贵2021年6月29日直播 20210629_1共产党你完了百年冥诞的恐惧即将崩溃的经济．和世界对共产党的病毒追责．你共产党还会有明天吗？]({{site.baseurl}}/miles/transcript/2021/06/20210629-1091639)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年6月19日盖特 20210619_1]({{site.baseurl}}/miles/transcript/2021/06/20210619-1091593)
 
 [郭文贵2021年6月19日盖特 20210619_2聊聊昨天接到了国内被以黄灭共吓破胆人的电话……！]({{site.baseurl}}/miles/transcript/2021/06/20210619-1091600)
-
-[郭文贵2021年6月18日盖特 20210618_1以黄灭共开始，杨澜黑森林后，还有宋祖英，汤灿。。中共国在崩塌前会有大量高官叛逃！]({{site.baseurl}}/miles/transcript/2021/06/20210618-1091589)
-
-[郭文贵2021年6月17日直播 20210617_1以黄灭共正式开始；爆料三品兰，李萍，李薇，汤灿，爆肛芳等与中南坑老杂毛的故事；各农场怎样做好直播节目]({{site.baseurl}}/miles/transcript/2021/06/20210617-1091560)
-
-[郭文贵2021年6月17日盖特 20210617_2]({{site.baseurl}}/miles/transcript/2021/06/20210617-1091565)
-
-[郭文贵2021年6月16日盖特 20210616_2]({{site.baseurl}}/miles/transcript/2021/06/20210616-1089819)
 
 
 ## 頁面 26/112 [**<**]({{site.baseurl}}/miles/transcript/page25) [1]({{site.baseurl}}/miles/transcript/index) ... [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) **26** [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page27)

@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 64/112 [**<**]({{site.baseurl}}/miles/transcript/page63) [1]({{site.baseurl}}/miles/transcript/index) ... [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) **64** [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page65)
 
+[郭文贵2019年12月2日视频 20191202路江谈老少必看；习近平令被撤回原因有二：一是习危也；二是令是实施香港紧急戒严法]({{site.baseurl}}/miles/transcript/2019/12/20191202-1094139)
+
+[郭文贵2019年12月1日视频 20191201梁振英站台的海南恒大超级医院；龚火鸡欺骗VOA并做各种假材料；香港人权法案打响了全世界灭共的第一枪]({{site.baseurl}}/miles/transcript/2019/12/20191201-1094129)
+
+[郭文贵2019年11月30日 20191130曾宏和赵岩是如何为小夏争风吃醋的！乱聊再乱聊，一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/11/20191130-1094105)
+
+[郭文贵2019年11月29日 20191129龚小夏过往点滴,龚你啥时候看过帐？]({{site.baseurl}}/miles/transcript/2019/11/20191129-1094098)
+
 [郭文贵2019年11月28日视频 20191128_1欺民賊又在撒謊 美國又不行了 到處是要飯的 這幫騙子]({{site.baseurl}}/miles/transcript/2019/11/20191128-1089683)
 
 [郭文贵2019年11月28日视频 20191128_2文贵嗑瓜子等大事发生]({{site.baseurl}}/miles/transcript/2019/11/20191128-1089684)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年11月20日文贵大直播全文字版：王建之死 两周年（上）]({{site.baseurl}}/miles/transcript/2019/11/20191120-1243310)
 
 [郭文贵2019年11月19日第二次直播 20191119_2一整天直播的大概安排和香港理工大的背后故事。]({{site.baseurl}}/miles/transcript/2019/11/20191119-1093981)
-
-[郭文贵2019年11月19日第一次直播 20191119_1香港人权和民主法案参议院通过 连线班农先生庆祝香港人权和民主法案全票通过！]({{site.baseurl}}/miles/transcript/2019/11/20191119-1093989)
-
-[郭文贵2019年11月18日视频 20191118_220191118之2 文贵又开始浪啦浪花钱啦…]({{site.baseurl}}/miles/transcript/2019/11/20191118-1089655)
-
-[郭文贵2019年11月18日视频 20191118_3新的劳斯莱斯库里内 另外一台是深藍色 這一台是淺咖啡色]({{site.baseurl}}/miles/transcript/2019/11/20191118-1089656)
-
-[郭文贵2019年11月18日视频 20191118_4香港的人权法案可能今天要通过了 你能擋得住嗎共產黨]({{site.baseurl}}/miles/transcript/2019/11/20191118-1089657)
 
 
 ## 頁面 64/112 [**<**]({{site.baseurl}}/miles/transcript/page63) [1]({{site.baseurl}}/miles/transcript/index) ... [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) **64** [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page65)

@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 91/112 [**<**]({{site.baseurl}}/miles/transcript/page90) [1]({{site.baseurl}}/miles/transcript/index) ... [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) **91** [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page92)
 
+[郭文贵2018年10月9日视频 20181009_2ccp如果攻击台湾美国会不会出兵为什么说港币和人民币会垮掉．保护台湾香港极为重要！]({{site.baseurl}}/miles/transcript/2018/10/20181009-1087954)
+
+[郭文贵2018年10月9日instagram直播 20181009CCP如果攻击台湾美国会不会出兵为什么说港币和人民币会垮掉．保护台湾香港极为重要！]({{site.baseurl}}/miles/transcript/2018/10/20181009-1093349)
+
+[郭文贵2018年10月8日视频 20181008_1与黑水公司朋友射击]({{site.baseurl}}/miles/transcript/2018/10/20181008-1088633)
+
+[郭文贵2018年10月8日视频 20181008_2与黑水公司朋友射击]({{site.baseurl}}/miles/transcript/2018/10/20181008-1088634)
+
 [郭文贵2018年10月6日视频 20181006_2]({{site.baseurl}}/miles/transcript/2018/10/20181006-1088838)
 
 [郭文贵2018年10月6日视频 20181006_3]({{site.baseurl}}/miles/transcript/2018/10/20181006-1088839)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年9月27日视频 20180927_1]({{site.baseurl}}/miles/transcript/2018/09/20180927-1088820)
 
 [郭文贵2018年9月26日视频 20180926_1Snow: 搞幾個娘兒們算啥腐敗啊]({{site.baseurl}}/miles/transcript/2018/09/20180926-1088816)
-
-[郭文贵2018年9月24日视频 20180924_1]({{site.baseurl}}/miles/transcript/2018/09/20180924-1088813)
-
-[郭文贵2018年9月23日视频 20180923_1天下所有人都能中秋快樂 團圓]({{site.baseurl}}/miles/transcript/2018/09/20180923-1088809)
-
-[郭文贵2018年9月23日视频 20180923_2Snow攜女友隨文貴搭機飛往鄰國參加重要會議]({{site.baseurl}}/miles/transcript/2018/09/20180923-1088810)
-
-[郭文贵2018年9月22日视频 20180922_2Snow在偷吃他女朋友的飯]({{site.baseurl}}/miles/transcript/2018/09/20180922-1088799)
 
 
 ## 頁面 91/112 [**<**]({{site.baseurl}}/miles/transcript/page90) [1]({{site.baseurl}}/miles/transcript/index) ... [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) **91** [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page92)

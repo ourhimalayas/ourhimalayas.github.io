@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 52/112 [**<**]({{site.baseurl}}/miles/transcript/page51) [1]({{site.baseurl}}/miles/transcript/index) ... [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) **52** [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page53)
 
+[郭文贵2020年7月5日视频 20200705_3 Ladymay2號]({{site.baseurl}}/miles/transcript/2020/07/20200705-1089903)
+
+[郭文贵2020年7月5日直播 20200705_1为什么我们中国的同胞们不愿相信．真和善，却易信假和恶！]({{site.baseurl}}/miles/transcript/2020/07/20200705-1092306)
+
+[郭文贵2020年7月5日直播 20200705_2从这个星期一开始，美国将会有什么样的重锤的具体队C P的惩罚和制裁，一切都已经开始！]({{site.baseurl}}/miles/transcript/2020/07/20200705-1092323)
+
+[郭文贵2020年7月4日直播 20200704新中国联邦被西方政府认可吗？以及GTV投资．美国队中共有史以来最严厉的制裁意味着什么？爆料革命的下一步计划和行动]({{site.baseurl}}/miles/transcript/2020/07/20200704-1092200)
+
 [郭文贵2020年7月3日视频 20200703_1海航王健被殺害2周年]({{site.baseurl}}/miles/transcript/2020/07/20200703-1089897)
 
 [郭文贵2020年7月3日视频 20200703_2听听美国政府官员这一系列制裁和我们战友们在华盛顿抗议的一些观点以及背后的故事]({{site.baseurl}}/miles/transcript/2020/07/20200703-1089901)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年6月18日视频 20200618_2郭文貴參加班农战斗室特别节目：中共在美国的信息超限战中文版]({{site.baseurl}}/miles/transcript/2020/06/20200618-1089870)
 
 [郭文贵2020年6月18日直播 20200618全世界都在关注，新中国联邦世界正在改变]({{site.baseurl}}/miles/transcript/2020/06/20200618-1092224)
-
-[郭文贵2020年6月17日视频 20200617_2有在旧金山湾区的战友们 请战友帮忙在斯坦福大学附近购买或租赁2万尺到4万尺的写字楼]({{site.baseurl}}/miles/transcript/2020/06/20200617-1089843)
-
-[郭文贵2020年6月17日视频 20200617_3衷心地感谢硅谷的战友们在过去的24小时．提供的有关在硅谷寻找的房产信息，由于巨量的信息．导致了当地的房地产中介市场的混乱，我们现在指定由一个我们的战友小羊女士]({{site.baseurl}}/miles/transcript/2020/06/20200617-1089848)
-
-[郭文贵2020年6月17日视频 20200617_4所有被确认成功投资后的GTV投资者都将会收到一封投资成功确认函没有被退款的战友不用咨询请耐心等待回复]({{site.baseurl}}/miles/transcript/2020/06/20200617-1089849)
-
-[郭文贵2020年6月17日直播 20200617GTV投资和查询股票及夏威夷会议及喜马拉雅农场，新中国联邦的巨大影响力]({{site.baseurl}}/miles/transcript/2020/06/20200617-1094203)
 
 
 ## 頁面 52/112 [**<**]({{site.baseurl}}/miles/transcript/page51) [1]({{site.baseurl}}/miles/transcript/index) ... [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) **52** [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page53)

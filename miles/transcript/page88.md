@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 88/112 [**<**]({{site.baseurl}}/miles/transcript/page87) [1]({{site.baseurl}}/miles/transcript/index) ... [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) **88** [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page89)
 
+[郭文贵2018年12月08日视频 20181208船上跟大家聊聊天,.张首晟绝不会自杀!]({{site.baseurl}}/miles/transcript/2018/12/20181208-1088983)
+
+[郭文贵2018年12月7日视频 20181207_1文贵现在会捞鱼了]({{site.baseurl}}/miles/transcript/2018/12/20181207-1089068)
+
+[郭文贵2018年12月4日视频 20181204_1正在研究設計的郭戰友領帶是如何的特別]({{site.baseurl}}/miles/transcript/2018/12/20181204-1089066)
+
+[郭文贵2018年12月2日视频 20181202杨澜找钥匙和G20会议的背后真相，开棺验王健的尸，谈谈王岐山，孟建柱，吴征。]({{site.baseurl}}/miles/transcript/2018/12/20181202-1087653)
+
 [郭文贵2018年11月29日视频 20181129郭戰裝到了]({{site.baseurl}}/miles/transcript/2018/11/20181129-1094422)
 
 [郭文贵2018年11月28日视频 20181128_1不好了 Snow吸大麻被活逮 遭雙規了]({{site.baseurl}}/miles/transcript/2018/11/20181128-1089063)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年11月16日视频 20181116_1文贵在皮埃尔酒店现场采访演习搞笑版]({{site.baseurl}}/miles/transcript/2018/11/20181116-1088912)
 
 [郭文贵2018年11月16日视频 20181116_2]({{site.baseurl}}/miles/transcript/2018/11/20181116-1088914)
-
-[郭文贵2018年11月15日视频 20181115_2]({{site.baseurl}}/miles/transcript/2018/11/20181115-1088907)
-
-[郭文贵2018年11月15日视频 20181115_3]({{site.baseurl}}/miles/transcript/2018/11/20181115-1088909)
-
-[郭文贵2018年11月15日视频 20181115发布会定在11月20日，班农主持，美国3大律师所之一Quinn参与的“以法灭共”新时代即将全面开始]({{site.baseurl}}/miles/transcript/2018/11/20181115-1091302)
-
-[郭文贵2018年11月14日视频 20181114王健之死真相新聞發布會為什麼可能從11月19日延後一天改為11月20日]({{site.baseurl}}/miles/transcript/2018/11/20181114-1091622)
 
 
 ## 頁面 88/112 [**<**]({{site.baseurl}}/miles/transcript/page87) [1]({{site.baseurl}}/miles/transcript/index) ... [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) **88** [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page89)

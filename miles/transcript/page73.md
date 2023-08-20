@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 73/112 [**<**]({{site.baseurl}}/miles/transcript/page72) [1]({{site.baseurl}}/miles/transcript/index) ... [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) **73** [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page74)
 
+[郭文贵2019年8月27日 20190827这些招数的出台．才是共产党要拿下香港的真实目的！暴露了共产党要彻底拿下香港规划已久的野心！这不仅仅是一个＂香港戒严法＂这是要毁灭香港]({{site.baseurl}}/miles/transcript/2019/08/20190827-1094194)
+
+[2019年8月27日文贵大直播全文字版：紧急，这些招数的出台．才是共产党要拿下香港的真实目的！]({{site.baseurl}}/miles/transcript/2019/08/20190827-1098183)
+
+[郭文贵2019年8月26日视频 20190826尊敬的战友们好！你们健身了吗？你们传播香港危机的真相了吗？非常的抱歉，前几天一直在＂床＂见人开会……没有及时向大家报平安视频！一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/08/20190826-1093484)
+
+[2019年8月26日文贵大直播全文字版：报平安]({{site.baseurl}}/miles/transcript/2019/08/20190826-1098184)
+
 [郭文贵2019年8月24日视频 20190824_1报平安，好消息不断]({{site.baseurl}}/miles/transcript/2019/08/20190824-1089431)
 
 [郭文贵2019年8月24日视频 20190824_2文贵怀孕了]({{site.baseurl}}/miles/transcript/2019/08/20190824-1089437)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年8月12日第二次直播 20190812_2 Mr. Miles Kwok live stream: letting everyone know that he is safe. What Hong Kongers...]({{site.baseurl}}/miles/transcript/2019/08/20190812-1093513)
 
 [郭文贵2019年8月12日第一次直播 20190812_1在车上Miles Kwok live streaming from car: the CCP showed its true colors during its crackdown..]({{site.baseurl}}/miles/transcript/2019/08/20190812-1093519)
-
-[2019年8月12日文贵大直播全文字版：报平安 和在车上直播合集：香港人现在的遭遇和共产党在香港的镇压]({{site.baseurl}}/miles/transcript/2019/08/20190812-1098190)
-
-[郭文贵2019年8月11日视频 20190811Mr. Miles Kwok live stream: please focus your attention on Hong Kong, in order to stop...]({{site.baseurl}}/miles/transcript/2019/08/20190811-1093509)
-
-[2019年8月11日《文贵大直播》全文字版：船上直播高度关注香港]({{site.baseurl}}/miles/transcript/2019/08/20190811-1098171)
-
-[郭文贵2019年8月10日视频 20190810Today is a good day, Miles proudly announcing from the "bed": our Exposé Revolution...]({{site.baseurl}}/miles/transcript/2019/08/20190810-1093494)
 
 
 ## 頁面 73/112 [**<**]({{site.baseurl}}/miles/transcript/page72) [1]({{site.baseurl}}/miles/transcript/index) ... [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) **73** [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page74)

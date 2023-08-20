@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 72/112 [**<**]({{site.baseurl}}/miles/transcript/page71) [1]({{site.baseurl}}/miles/transcript/index) ... [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) **72** [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page73)
 
+[郭文贵2019年9月6日视频 20190906_1中共在香港对全世界发起了金融核战争……这意味着什么？全球联合集体灭共！全民灭共！一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/09/20190906-1089508)
+
+[郭文贵2019年9月5日视频 20190905_1全球从自动灭共到联合灭共]({{site.baseurl}}/miles/transcript/2019/09/20190905-1089506)
+
+[2019年9月5日文贵大直播全文字版：回顾自林郑月娥置顶遣返法案，郭先生直播预警，香港69开始游行抗议，CCP派匪警镇压，中国外交部的谎言，美国方面的反应]({{site.baseurl}}/miles/transcript/2019/09/20190905-1098205)
+
+[2019年9月5日文贵大直播全文字版：报平安 全球从自动灭共到联合灭共的时代]({{site.baseurl}}/miles/transcript/2019/09/20190905-1098206)
+
 [郭文贵2019年9月4日直播 20190904“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!]({{site.baseurl}}/miles/transcript/2019/09/20190904-1093532)
 
 [2019年9月4日文贵大直播全文字版：平安直播“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!]({{site.baseurl}}/miles/transcript/2019/09/20190904-1098214)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年08月28日文贵大直播全文字版：解放军军车 装甲车已经开进香港香港已经进入紧急状态]({{site.baseurl}}/miles/transcript/2019/08/20190828-1098194)
 
 [郭文贵2019年8月27日视频 20190827_2香港《戒严法》就是可以随时征用你 随时把你的家人抓起来 随时没收你的所有财产]({{site.baseurl}}/miles/transcript/2019/08/20190827-1089443)
-
-[郭文贵2019年8月27日 20190827这些招数的出台．才是共产党要拿下香港的真实目的！暴露了共产党要彻底拿下香港规划已久的野心！这不仅仅是一个＂香港戒严法＂这是要毁灭香港]({{site.baseurl}}/miles/transcript/2019/08/20190827-1094194)
-
-[2019年8月27日文贵大直播全文字版：紧急，这些招数的出台．才是共产党要拿下香港的真实目的！]({{site.baseurl}}/miles/transcript/2019/08/20190827-1098183)
-
-[郭文贵2019年8月26日视频 20190826尊敬的战友们好！你们健身了吗？你们传播香港危机的真相了吗？非常的抱歉，前几天一直在＂床＂见人开会……没有及时向大家报平安视频！一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/08/20190826-1093484)
-
-[2019年8月26日文贵大直播全文字版：报平安]({{site.baseurl}}/miles/transcript/2019/08/20190826-1098184)
 
 
 ## 頁面 72/112 [**<**]({{site.baseurl}}/miles/transcript/page71) [1]({{site.baseurl}}/miles/transcript/index) ... [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) **72** [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page73)

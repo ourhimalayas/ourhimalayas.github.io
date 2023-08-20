@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 39/112 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page40)
 
+[郭文贵2021年1月23日直播 20210123_1以共灭共大时代到来，习，王，江，胡四派斗争白热化公开化，关注台湾，感谢前线战友的付出]({{site.baseurl}}/miles/transcript/2021/01/20210123-1090433)
+
+[郭文贵2021年1月23日盖特 20210123_2美国以及欧洲正在全面的……前所未有的……审视和评估……共产党病毒．给保险业．金融业．国防业．带来的深度的打击：所产生的后果，共产党被灭亡的最重要原因之一就是C C P病毒????无任何]({{site.baseurl}}/miles/transcript/2021/01/20210123-1090437)
+
+[郭文贵2021年1月22日直播 20210122_1裕达的神奇与传奇， 将在爆料革命，新中国联邦再次应验，准备着国内前线战友的捷报]({{site.baseurl}}/miles/transcript/2021/01/20210122-1090424)
+
+[郭文贵2021年1月22日盖特 20210122_2下午6:20我们正在和战友一起．等待这一切的到来……]({{site.baseurl}}/miles/transcript/2021/01/20210122-1090426)
+
 [郭文贵2021年1月21日直播 20210121_1深刻总结爆料革命的成功与不足，今年重点发展Ｇ系列，壮大灭共经济体系，与美新政府合作，联合灭共]({{site.baseurl}}/miles/transcript/2021/01/20210121-1090420)
 
 [郭文贵2021年1月20日直播 20210120_1新中国联邦见证美国120]({{site.baseurl}}/miles/transcript/2021/01/20210120-1090412)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年1月15日盖特 20210115_1辛丑年是全人类．找共产党要钱，要命……要责任．的灭共年，新中国联邦中国人……是1月6号到1月20号最大的受益者……智慧的战友，要充分的看到和利用这种危机中的机会。新中国联邦将创造你]({{site.baseurl}}/miles/transcript/2021/01/20210115-1090376)
 
 [郭文贵2021年1月15日音频聊天 20210115_2]({{site.baseurl}}/miles/transcript/2021/01/20210115-1090395)
-
-[郭文贵2021年1月14日盖特 20210114_1共产党在美国的黑客袭击……和对每个国家的安全威胁，再次由于我们爆料革命的努力和残酷的与邪恶的斗争，得到了新的法律印证……将有一个新的灭共的胜利，共产党正在快速走向全世界人民]({{site.baseurl}}/miles/transcript/2021/01/20210114-1090372)
-
-[郭文贵2021年1月13日盖特 20210113_1这个对全人类的重要的日子．让我们更加深刻看清了共产党的邪恶……和正道主义的伟大，最终结果会如何呢？]({{site.baseurl}}/miles/transcript/2021/01/20210113-1090368)
-
-[郭文贵2021年1月12日直播 20210112_1]({{site.baseurl}}/miles/transcript/2021/01/20210112-1090366)
-
-[郭文贵2021年1月11日盖特 20210111_1尊敬的战友们好……文贵向国内正在遭受共产党的国安．及警察．对G-TV投资者的威胁下，正在被逼迫所谓的填写虚假的投诉……和退款要求的战友们的…的两个紧急建议！]({{site.baseurl}}/miles/transcript/2021/01/20210111-1090360)
 
 
 ## 頁面 39/112 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page40)

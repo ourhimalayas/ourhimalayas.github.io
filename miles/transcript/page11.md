@@ -3,6 +3,14 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 11/112 [**<**]({{site.baseurl}}/miles/transcript/page10) [1]({{site.baseurl}}/miles/transcript/index) ... [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) **11** [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page12)
 
+[郭文贵2022年1月27日直播 20220127_1卧薪尝胆三十载 爆料革命整五年 正道至善得人心 除恶建邦开纪元；冬奥会开幕在即 美国授权撤离大使馆]({{site.baseurl}}/miles/transcript/2022/01/20220127-1089647)
+
+[郭文贵2022年1月27日盖特 20220127_2谢谢来福福战友，发来保存的……SNOW 视频????????????????????????美好的回忆]({{site.baseurl}}/miles/transcript/2022/01/20220127-1089801)
+
+[郭文贵2022年1月26日中英文视频 20220126_1郭文贵先生和爆料革命的战友们在过去五年揭露了中共腐败和种族大屠杀、提前向西方警告了中共制造的黑暗即将到来、并最早说出中共病毒及其疫苗的真相！美国政府刚刚做出决定“授权撤离”]({{site.baseurl}}/miles/transcript/2022/01/20220126-1089566)
+
+[郭文贵2022年1月26日盖特 20220126_2尊敬的战友们好！在爆料革命五周年之际，文贵衷心的感谢，????????????????????????????????????亿万个战友的付出……和文贵一起奋斗消灭这个邪恶的中国共产党……一切都已经开始]({{site.baseurl}}/miles/transcript/2022/01/20220126-1089795)
+
 [郭文贵2022年1月26日盖特 20220126_3第二次发Gettr、对上个视频的补充]({{site.baseurl}}/miles/transcript/2022/01/20220126-1089798)
 
 [郭文贵2022年1月25日盖特 20220125_2尊敬的战友们好……七哥一边蒸馍馍．一边练这首歌呢？甜蜜蜜 你笑得甜蜜蜜 好像花儿开在春风里 开在春风里 在哪里]({{site.baseurl}}/miles/transcript/2022/01/20220125-1089788)
@@ -44,14 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2022年1月16日盖特 20220116_1尊敬的战友们好……现在最重要的就是不要让病毒发生在你．和你家人的身上……共产党的邪恶力量的源泉……是西方乃至整个世界贪婪自私培养出来的结果，世界正在为此付出代价，人类中的最]({{site.baseurl}}/miles/transcript/2022/01/20220116-1089709)
 
 [郭文贵2022年1月15日盖特 20220115_1尊敬的战友们好……你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2022/01/20220115-1089699)
-
-[郭文贵2022年1月15日盖特 20220115_2尊敬的战友们好文贵在这里????????????????????????????????????????衷心地，祈求所有的战友们????????????????????????????????????认真的严肃的防止被感染病毒，做好一切灾难到来的物资的储备，一切都已经开始！]({{site.baseurl}}/miles/transcript/2022/01/20220115-1089705)
-
-[郭文贵2022年1月14日直播 20220114_1为何YouTube在冬奥会前全面封杀爆料革命的频道；再谈病毒疫苗虚拟货币；Joe Rogan 加入盖特前后；小飞象获政庇意义何在]({{site.baseurl}}/miles/transcript/2022/01/20220114-1089261)
-
-[郭文贵2022年1月14日盖特 20220114_2尊敬的战友们好，你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2022/01/20220114-1089696)
-
-[郭文贵2022年1月12日直播 20220112_1伊萨贝拉杨新出的采访视频对华人的威胁将有怎样后果；美国、香港和世界的金融市场的变化与动向；中共与哈萨克斯坦事件背后的真相；桥水基金-“美国共同富裕”北京冬奥会和国内的疫情情况]({{site.baseurl}}/miles/transcript/2022/01/20220112-1089137)
 
 
 ## 頁面 11/112 [**<**]({{site.baseurl}}/miles/transcript/page10) [1]({{site.baseurl}}/miles/transcript/index) ... [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) **11** [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page12)
