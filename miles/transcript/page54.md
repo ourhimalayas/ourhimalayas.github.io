@@ -3,6 +3,26 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 54/112 [**<**]({{site.baseurl}}/miles/transcript/page53) [1]({{site.baseurl}}/miles/transcript/index) ... [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) **54** [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page55)
 
+[郭文贵2020年6月9日 20200609_2新中国联邦的护照什么时候可以获得？及新中国联邦接下来的几个重要工作重点？]({{site.baseurl}}/miles/transcript/2020/06/20200609-1092363)
+
+[郭文贵2020年6月9日 20200609_1关于G币的退款．诉讼．赔偿．一些问题．及如何拥有投资GTV老股的机会！的一些回答。]({{site.baseurl}}/miles/transcript/2020/06/20200609-1092536)
+
+[郭文贵2020年6月8日连线木兰乱聊 20200608GTV恢复连线等功能；新中国联邦成立在中国国内和台湾的影响；中共持续造谣抹黑郝海东夫妇]({{site.baseurl}}/miles/transcript/2020/06/20200608-1092508)
+
+[郭文贵2020年6月6日 20200606新中国联邦对世界和中国人民的三大影响和正道主义的新中国的未来设想。]({{site.baseurl}}/miles/transcript/2020/06/20200606-1092470)
+
+[郭文贵2020年6月4日gtv视频 20200604_5郭文贵和班农先生在听郝海东朗读新中国联邦宣言]({{site.baseurl}}/miles/transcript/2020/06/20200604-1089025)
+
+[郭文贵2020年6月4日gtv视频 20200604_6全球灭共的时代已经开始 中国人民并不孤单 世界正道主义与你们站在一起]({{site.baseurl}}/miles/transcript/2020/06/20200604-1089026)
+
+[郭文贵2020年6月4日gtv视频 20200604_7讲述国旗上面的七七四十九宇宙之星， 心中之星，太阳之心]({{site.baseurl}}/miles/transcript/2020/06/20200604-1089027)
+
+[郭文贵2020年6月4日gtv视频 20200604_8新中国联邦成立庆典航拍全记录]({{site.baseurl}}/miles/transcript/2020/06/20200604-1089031)
+
+[郭文贵2020年6月4日视频 20200604_4新中國聯邦成立後大雨傾盆]({{site.baseurl}}/miles/transcript/2020/06/20200604-1089871)
+
+[郭文贵2020年6月4日 20200604_3新中国联邦宣言的历史意义]({{site.baseurl}}/miles/transcript/2020/06/20200604-1092446)
+
 [郭文贵2020年6月4日新中国联邦成立 20200604_1郭先生宣布新中国联邦正式成立，郝海东先生班农先生宣读新中国联邦宣言]({{site.baseurl}}/miles/transcript/2020/06/20200604-1094215)
 
 [郭文贵2020年6月4日参访众战友 20200604_2新中国联邦宣言仪式后参访众战友]({{site.baseurl}}/miles/transcript/2020/06/20200604-1094228)
@@ -32,26 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年5月25日视频 20200525_3如何解决共产党对我们投资的封杀．请战友们准备好六四宣言，讲遇到的挑战和挫折。]({{site.baseurl}}/miles/transcript/2020/05/20200525-1092378)
 
 [郭文贵2020年5月23日视频 20200523_4在班农War Room对美国的呐喊]({{site.baseurl}}/miles/transcript/2020/05/20200523-1089009)
-
-[郭文贵2020年5月23日第一次GTV直播 20200523_1从中国的五四民主运动和北京天安门的六四事件与美国的七四建国日．来看今天人类的大灾难……]({{site.baseurl}}/miles/transcript/2020/05/20200523-1092041)
-
-[郭文贵2020年5月23日GTV第二次直播 20200523_2文贵如何看待十几天后的六四……新宣言和内心的感受。]({{site.baseurl}}/miles/transcript/2020/05/20200523-1092288)
-
-[郭文贵2020年5月23日GTV第三次直播 20200523_3文贵不会带任何战友参与做空港币重新认识香港保护香港，是我们每个中国人起码的道德底线。]({{site.baseurl}}/miles/transcript/2020/05/20200523-1092401)
-
-[郭文贵2020年5月22日视频 20200522_2文贵先生在班农先生战斗室谈五四运动和呼吁美国关注香港！]({{site.baseurl}}/miles/transcript/2020/05/20200522-1089857)
-
-[郭文贵2020年5月22日视频 20200522两会的所谓西部大开发是灾难大转移新的大跃进，香港官方将成为美中大战的导火索．喜马拉雅农场到底是个什么]({{site.baseurl}}/miles/transcript/2020/05/20200522-1092274)
-
-[郭文贵2020年5月21日视频 20200521爆料革命为什么又要篾工还要在海外准备国中之国的基地？由G币引发的资金大外逃说明了什么？]({{site.baseurl}}/miles/transcript/2020/05/20200521-1092256)
-
-[郭文贵2020年5月19日视频 20200519谁偷走了你的G币和你的信息？为什么文贵不配合专案组．伤害傅政华．孟建柱．孙立军，王岐山的家人！]({{site.baseurl}}/miles/transcript/2020/05/20200519-1092226)
-
-[郭文贵2020年5月17日视频 20200517国内战友，不要在6月4号左右有任何冲动的行动，我们要灭共．灭贼．不要反真正的好企业和我们中国人的智慧]({{site.baseurl}}/miles/transcript/2020/05/20200517-1092203)
-
-[郭文贵2020年5月16日视频 20200516疯狂的共产党很有可能对台湾香港下毒手]({{site.baseurl}}/miles/transcript/2020/05/20200516-1092178)
-
-[郭文贵2020年5月14日视频 20200514]({{site.baseurl}}/miles/transcript/2020/05/20200514-1092081)
 
 
 ## 頁面 54/112 [**<**]({{site.baseurl}}/miles/transcript/page53) [1]({{site.baseurl}}/miles/transcript/index) ... [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) **54** [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page55)

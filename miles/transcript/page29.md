@@ -3,6 +3,26 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 29/112 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page30)
 
+[郭文贵2021年5月28日盖特 20210528_1尊敬的战友们好！为什么躺平币．在国内造成这么大的影响？在这里公开回复很多战友．要求加入关于．G系列的将获得新GTV股票奖励的一些细节！]({{site.baseurl}}/miles/transcript/2021/05/20210528-1091447)
+
+[郭文贵2021年5月27日直播 20210527_1中共把贸易全球化变成全球贸易中国化，强奸联合国组织，新中国联邦拯救了世界；关于武汉实验室在过去48小时已发生根本变化；6月4号新中国联邦一周年活动意义非凡]({{site.baseurl}}/miles/transcript/2021/05/20210527-1091431)
+
+[郭文贵2021年5月27日盖特 20210527_2尊敬的战友们好！先来120个热身……一会儿和战友们乱聊一切都已经开始了！]({{site.baseurl}}/miles/transcript/2021/05/20210527-1091433)
+
+[郭文贵2021年5月27日盖特 20210527_3尊敬的战友们好……开了一天会……有些好消息肖向你们报告一下……]({{site.baseurl}}/miles/transcript/2021/05/20210527-1091437)
+
+[郭文贵2021年5月26日盖特 20210526_1尊敬的战友们好，由于一系列的特殊会议安排．上午发不了盖特．向大家表示道歉！]({{site.baseurl}}/miles/transcript/2021/05/20210526-1091410)
+
+[郭文贵2021年5月26日盖特 20210526_2尊敬的战友好！7哥谈谈今天的开会！和关于共产党最近的疯狂⋯]({{site.baseurl}}/miles/transcript/2021/05/20210526-1091412)
+
+[郭文贵2021年5月26日盖特 20210526_3尊敬的战友们好……健身是爆料革命的一个伟大的，具有广泛意义的一个行动，不管7哥有多累，永远不会给自己借口，让自己有一次机会去偷懒，永不放弃，是需要每个人真实的行动和坚定的决心]({{site.baseurl}}/miles/transcript/2021/05/20210526-1091416)
+
+[郭文贵2021年5月25日视频 20210525_1喜联盟GNEWS64文宣大赛颁奖典礼]({{site.baseurl}}/miles/transcript/2021/05/20210525-1091402)
+
+[郭文贵2021年5月25日盖特 20210525_2尊敬的战友们好，由于今天的和时间问题．的特殊安排的听证会！早上没有发盖特，现在7哥马上给大家补上！谈谈这两天7哥的一些关于正在开发中躺币的一些概念！]({{site.baseurl}}/miles/transcript/2021/05/20210525-1091405)
+
+[郭文贵2021年5月25日盖特 20210525_3尊敬的战友们好，由于今天的和时间问题．的特殊安排的听证会！早上没有发盖特，现在7哥马上给大家补上！谈谈这两天7哥的一些关于正在开发中躺币的一些概念！]({{site.baseurl}}/miles/transcript/2021/05/20210525-1091406)
+
 [郭文贵2021年5月24日盖特 20210524_1尊敬的战友们好！全世界都在用生命和代价来证明极权后的政府能干大事是否是正确的，全世界用生命和血汗在证明极权后的财富，最后由谁说了算……？被极权谎言愚弄的时代即将成为历史！]({{site.baseurl}}/miles/transcript/2021/05/20210524-1091394)
 
 [郭文贵2021年5月24日盖特 20210524_2尊敬的战友们好！全世界都在用生命和代价来证明极权后的政府能干大事是否是正确的，全世界用生命和血汗在证明极权后的财富，最后由谁说了算……？被极权谎言愚弄的时代即将成为历史！(接]({{site.baseurl}}/miles/transcript/2021/05/20210524-1091396)
@@ -32,26 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年5月18日盖特 20210518_2从早晨6:00到现在，基本上没有吃任何东西．开了一整天的会和采访，但是还是要锻炼．不要给自己任何理由放弃自己的目标……和背叛自己的承诺！]({{site.baseurl}}/miles/transcript/2021/05/20210518-1091377)
 
 [郭文贵2021年5月18日盖特 20210518_3第三次兄弟姐妹们，这个看上去容易的锻炼模式……非常非常的艰难，非常非常的危险．千万千万不要模仿．务必注意自己的身体安全第一！科学锻炼．才能达到，我们健身强心的目的！]({{site.baseurl}}/miles/transcript/2021/05/20210518-1091381)
-
-[郭文贵2021年5月17日盖特 20210517_1回答很多国内战友问七哥．是否应该投资刚刚复出的过去的中国亿万富豪们的项目！七哥如何看待，现在比特币和加密货币的混乱！]({{site.baseurl}}/miles/transcript/2021/05/20210517-1091369)
-
-[郭文贵2021年5月17日盖特 20210517_2尊敬的战友们好，由于明天一整天的特别重要的事情的安排，上午没有时间发盖特，所以现在先发一个盖特！谈谈今天共产党操控的火鸡龚．????粑傅．在华盛顿邮报和所谓的一个．AI黑客网站。两]({{site.baseurl}}/miles/transcript/2021/05/20210517-1091371)
-
-[郭文贵2021年5月16日直播 20210516_1为什么文贵反对西方国家对中共子女的签证限制；怎样理解文贵坚决灭共，对99%党员大赦，反共不反华]({{site.baseurl}}/miles/transcript/2021/05/20210516-1091359)
-
-[郭文贵2021年5月16日盖特 20210516_2尊敬的战友们好！分享直播后的黄色故事的继续……大家知道康康，come come with me空空with me。是什么意思吗？]({{site.baseurl}}/miles/transcript/2021/05/20210516-1091362)
-
-[郭文贵2021年5月16日盖特 20210516_3尊敬的家人们好，最近穿黄西装多了点儿讲成人的笑话多了点儿，可能有点儿时空，又给大家造成不便之处，多多包涵七哥想在这里和大家谈谈这方面的看法！]({{site.baseurl}}/miles/transcript/2021/05/20210516-1091365)
-
-[郭文贵2021年5月15日盖特 20210515_1尊敬的战友们好，懂英文的请千万不要看这个七哥这个学英文的盖特．想学英文的一定前来观看啲！【Why should we take down the CCP? they committed genocide in Xinjiang Why should we take down the ccp? Ruined the Buddihst]({{site.baseurl}}/miles/transcript/2021/05/20210515-1091322)
-
-[郭文贵2021年5月15日盖特 20210515_2尊敬的战友们好！数字加密货币就是人类进入 数字时代的真正的核心！美中在数字时代加密货币时代争夺的是什么？共产党在巴勒斯坦巴以冲突当中扮演什么角色？]({{site.baseurl}}/miles/transcript/2021/05/20210515-1091328)
-
-[郭文贵2021年5月15日盖特 20210515_3衷心地希望台湾同胞．能团结一致，消灭共产党的这次的以毒攻台．以毒灭台的恶毒计划！]({{site.baseurl}}/miles/transcript/2021/05/20210515-1091330)
-
-[郭文贵2021年5月15日盖特 20210515_4G翻身正在一场新的革命当中．即将给Gclub会员带来一些福利惊喜！]({{site.baseurl}}/miles/transcript/2021/05/20210515-1091333)
-
-[郭文贵2021年5月14日盖特 20210514_1任何对无辜的体制内的孩子．被拒签而幸灾乐祸的人！都是不正确的，呼吁所有的买Gclub的战友以最快的时间．到你的农场对账，或给Gclub公司直接打电话．对帐领卡！不要让自己失去利益的机会！]({{site.baseurl}}/miles/transcript/2021/05/20210514-1091318)
 
 
 ## 頁面 29/112 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page30)

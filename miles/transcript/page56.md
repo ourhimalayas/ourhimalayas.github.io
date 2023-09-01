@@ -3,6 +3,26 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 56/112 [**<**]({{site.baseurl}}/miles/transcript/page55) [1]({{site.baseurl}}/miles/transcript/index) ... [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) **56** [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page57)
 
+[郭文贵2020年5月3日视频 20200503_1GTV简短录播。CCTV疯了..]({{site.baseurl}}/miles/transcript/2020/05/20200503-1089003)
+
+[郭文贵2020年5月3日视频 20200503_2GTV简短录播 2 ：”好事太多，答应战友的雪茄，以后别忘了问我要。”]({{site.baseurl}}/miles/transcript/2020/05/20200503-1089005)
+
+[郭文贵2020年5月2日 20200502爆料香港P3实验室和国际共产联盟]({{site.baseurl}}/miles/transcript/2020/05/20200502-1091995)
+
+[郭文贵2020年4月30日 20200430跟正在看直播的共产党员们聊]({{site.baseurl}}/miles/transcript/2020/04/20200430-1091988)
+
+[郭文贵2020年4月29日视频 20200429G币的未来价值与美国官方惩罚CCP巨额罚款查封共产党高官在西方的资产都意味着什么？]({{site.baseurl}}/miles/transcript/2020/04/20200429-1091981)
+
+[郭文贵2020年4月28日视频 20200428川普总统的玫瑰园讲话开启了真正的以美灭共．以法灭共．全面查封CCP海外资产的真正的全面开始！]({{site.baseurl}}/miles/transcript/2020/04/20200428-1091974)
+
+[郭文贵2020年4月27日视频 20200427]({{site.baseurl}}/miles/transcript/2020/04/20200427-1091970)
+
+[郭文贵2020年4月25日视频 20200425_1 (全程英語無翻譯)文贵先生接受班农疫情战斗室专访：讓VOA斷播的台長阿曼達，中共的蓝金黄和3F计划，中共很早就早尝试用很小的代价来对付美国]({{site.baseurl}}/miles/transcript/2020/04/20200425-1089837)
+
+[郭文贵2020年4月25日视频 20200425_2GTV 作战工作室, 还有snow 哈哈]({{site.baseurl}}/miles/transcript/2020/04/20200425-1089840)
+
+[郭文贵2020年4月25日视频 20200425_3]({{site.baseurl}}/miles/transcript/2020/04/20200425-1089844)
+
 [郭文贵2020年4月25日视频 20200425_4]({{site.baseurl}}/miles/transcript/2020/04/20200425-1089847)
 
 [郭文贵2020年4月25日视频 20200425_6(中文字幕)文贵先生接受班农疫情战斗室专访：讓VOA斷播的台長阿曼達，中共的蓝金黄和3F计划，中共很早就早尝试用很小的代价来对付美国]({{site.baseurl}}/miles/transcript/2020/04/20200425-1089851)
@@ -32,26 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年4月15日视频 20200415]({{site.baseurl}}/miles/transcript/2020/04/20200415-1091897)
 
 [郭文贵2020年4月14日视频 20200414_2过去的24小时华盛顿、欧洲、日本、俄罗斯全面开始了依法灭共、全球自动灭共的新的时代]({{site.baseurl}}/miles/transcript/2020/04/20200414-1089815)
-
-[郭文贵2020年4月14日视频 20200414爆料革命拯救的同胞和战友们留言，彻底感动了文贵]({{site.baseurl}}/miles/transcript/2020/04/20200414-1091882)
-
-[郭文贵2020年4月13日视频 20200413_1]({{site.baseurl}}/miles/transcript/2020/04/20200413-1089811)
-
-[郭文贵2020年4月12日视频 20200412]({{site.baseurl}}/miles/transcript/2020/04/20200412-1092301)
-
-[郭文贵2020年4月11日视频 20200411]({{site.baseurl}}/miles/transcript/2020/04/20200411-1091874)
-
-[郭文贵2020年4月9日 20200409上海首长驻地已经升级]({{site.baseurl}}/miles/transcript/2020/04/20200409-1092104)
-
-[郭文贵2020年4月9日视频 20200409_2看电影]({{site.baseurl}}/miles/transcript/2020/04/20200409-1092125)
-
-[郭文贵2020年4月8日GTV直播 20200408_1与木兰，连线聊天．听木兰哆聊欺民贼……家天下]({{site.baseurl}}/miles/transcript/2020/04/20200408-1088992)
-
-[郭文贵2020年4月8日视频 20200408_3誠徵寫代碼的工程師]({{site.baseurl}}/miles/transcript/2020/04/20200408-1089806)
-
-[郭文贵2020年4月8日GTV直播 20200408_2关于G-TV战友们关心的问题和现在国内疫情的真实现状。]({{site.baseurl}}/miles/transcript/2020/04/20200408-1092112)
-
-[郭文贵2020年4月7日gtv视频 20200407_4关于战友关心的集体为投资．以及文贵如何看待，国内疫情大爆发的根本原因！]({{site.baseurl}}/miles/transcript/2020/04/20200407-1088991)
 
 
 ## 頁面 56/112 [**<**]({{site.baseurl}}/miles/transcript/page55) [1]({{site.baseurl}}/miles/transcript/index) ... [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) **56** [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page57)

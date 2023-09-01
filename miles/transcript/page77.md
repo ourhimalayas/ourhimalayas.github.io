@@ -3,6 +3,26 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 77/112 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page78)
 
+[2019年7月22日 直播全文字版]({{site.baseurl}}/miles/transcript/2019/07/20190722-1098117)
+
+[郭文贵2019年7月21日视频 20190721_2喜马拉雅大使馆直播测试版]({{site.baseurl}}/miles/transcript/2019/07/20190721-1089349)
+
+[郭文贵2019年7月21日视频 20190721爆料革命进入全球共同灭共的新时代 Miles live stream: the Exposé Revolution has entered a new age of eliminating the CCP...]({{site.baseurl}}/miles/transcript/2019/07/20190721-1093343)
+
+[2019年7月21日直播全文字版：爆料革命进入全球灭共的新时代]({{site.baseurl}}/miles/transcript/2019/07/20190721-1098115)
+
+[郭文贵2019年7月20日视频 20190720_1郭文贵先生准备出山 天助我们的爆料革命 一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/07/20190720-1089331)
+
+[郭文贵2019年7月20日视频 20190720_2大家猜猜我这是去哪啦？？？天助我们的大的爆料革命！一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/07/20190720-1089334)
+
+[郭文贵2019年7月20日视频 20190720_3SNOW……想回纽约了]({{site.baseurl}}/miles/transcript/2019/07/20190720-1089336)
+
+[郭文贵2019年7月17日视频 20190717_1回答很多战友们关于郭战装的几个小问题]({{site.baseurl}}/miles/transcript/2019/07/20190717-1089323)
+
+[郭文贵2019年7月17日视频 20190717_2两架超级飞机和我们的SNOW一起起飞……文贵又进山啦……这几天我会很少上网]({{site.baseurl}}/miles/transcript/2019/07/20190717-1089327)
+
+[郭文贵2019年7月17日视频 20190717_3有战友们说有一个白色的狗在此就好啦……】这里的大自然太棒了]({{site.baseurl}}/miles/transcript/2019/07/20190717-1089329)
+
 [郭文贵2019年7月16日视频 20190716_1香港会有什么紧急情况发生？一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/07/20190716-1089320)
 
 [郭文贵2019年7月15日视频 20190715_2试试郭媒体即将推出的新软件]({{site.baseurl}}/miles/transcript/2019/07/20190715-1089317)
@@ -32,26 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年7月9日直播全文字版：香港逃犯法为什么死亡了？香港还会有抗议吗？会实现双普选吗？]({{site.baseurl}}/miles/transcript/2019/07/20190709-1098105)
 
 [郭文贵2019年7月8日视频 20190708_2刚刚完成一个两个小会．现在马上上快船……跨越一个海湾……去另外一个地方开大会，现在正在去见一个牛叉叉的人物……一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/07/20190708-1089300)
-
-[郭文贵2019年7月8日视频 20190708_3灭共的路上……幸福的战斗着]({{site.baseurl}}/miles/transcript/2019/07/20190708-1089302)
-
-[郭文贵2019年7月8日视频 20190708_4文贵开两个小会开一个大会的路上．在船上与战友们聊天]({{site.baseurl}}/miles/transcript/2019/07/20190708-1089307)
-
-[郭文贵2019年7月8日视频 20190708文贵是双面间谍？？]({{site.baseurl}}/miles/transcript/2019/07/20190708-1093386)
-
-[2019年7月8日直播全文字版：文贵在船上讲述在长岛买豪宅借战友和我是不是双料间谍和王健之死合集]({{site.baseurl}}/miles/transcript/2019/07/20190708-1098106)
-
-[郭文贵2019年7月7日视频 20190707_3Snow1]({{site.baseurl}}/miles/transcript/2019/07/20190707-1089291)
-
-[郭文贵2019年7月7日视频 20190707_4Snow2]({{site.baseurl}}/miles/transcript/2019/07/20190707-1089293)
-
-[郭文贵2019年7月7日第二次直播 20190707_2王岐山又出手 王健“活该死”；及香港抗议将引发的CCP灭亡第一战的意义]({{site.baseurl}}/miles/transcript/2019/07/20190707-1093369)
-
-[郭文贵2019年7月7日第一次直播 20190707_1爆料革命当中扮演的重要角色……并希望能给更多战友加入郭媒体……一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/07/20190707-1093377)
-
-[2019年7月7日直播全文字版：聊聊我们的郭媒体，王岐山又出手，王健“活该死”及香港抗议将引发的CCP灭亡第一战的意义合集]({{site.baseurl}}/miles/transcript/2019/07/20190707-1098102)
-
-[郭文贵2019年7月6日连线彭文正 20190706Miles live with Dennis Peng - Destroying the CCP to protect Taiwan...]({{site.baseurl}}/miles/transcript/2019/07/20190706-1093356)
 
 
 ## 頁面 77/112 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page78)

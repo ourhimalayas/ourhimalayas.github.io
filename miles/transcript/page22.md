@@ -3,6 +3,26 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 22/112 [**<**]({{site.baseurl}}/miles/transcript/page21) [1]({{site.baseurl}}/miles/transcript/index) ... [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) **22** [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page23)
 
+[郭文贵2021年8月24日盖特 20210824_2尊敬的战友们好．马上要开始的直播，继续谈疫苗灾难将给世界的经济，我们每个人生活．带来什么样的影响，从昨天到今天．太多战友给我发来的自己家人．朋友．打疫苗后的严重的后果的一个]({{site.baseurl}}/miles/transcript/2021/08/20210824-1092194)
+
+[郭文贵2021年8月24日直播 20210824_1中共病毒和疫苗的生化超限战对世界经济的前所未有的打击；疫苗灾难给人类带来什么样危机；经济负增长意味着什么；有毒的口罩和疫苗都含有氧化石墨烯；新中国联邦农场战友全面开始互助互]({{site.baseurl}}/miles/transcript/2021/08/20210824-1092799)
+
+[郭文贵2021年8月23日盖特 20210823_2尊敬的战友们好，你们健身了吗？传播郑州人祸．香港危机．C C P病毒真相了吗？]({{site.baseurl}}/miles/transcript/2021/08/20210823-1092192)
+
+[郭文贵2021年8月23日直播 20210823_1中共病毒疫苗到底是什么；共产党的放毒计划；中共放毒传染的方式就是“疫苗”；这场生化大战美国和西方国家是输家，是北京和俄罗斯合作进行的超限战；每个战友都是传播病毒疫苗真相的信]({{site.baseurl}}/miles/transcript/2021/08/20210823-1092722)
+
+[郭文贵2021年8月22日盖特 20210822_1尊敬的战友们好……共产党内部的经济到底坏到了什么样的程度？我们最近几天的直播在国内产生了什么样的影响……国内的同胞到底是怎么认知疫苗的？我们的灭共歌打榜的奇迹，深深地震撼了]({{site.baseurl}}/miles/transcript/2021/08/20210822-1092184)
+
+[郭文贵2021年8月22日盖特 20210822_2尊敬的战友们好，你们健身了吗？传播C C B病毒．香港危机．郑州人祸．真相了吗？]({{site.baseurl}}/miles/transcript/2021/08/20210822-1092188)
+
+[郭文贵2021年8月21日直播 20210821_1我们是否应该打疫苗；打疫苗背后的本质是什么；福奇的威胁性有多大；政府和技术官僚人士如何控制社交媒体，严肃媒体实行疫苗计划，疫苗计划最大的受益者是谁；警告：人类面临前所未有生]({{site.baseurl}}/miles/transcript/2021/08/20210821-1092659)
+
+[郭文贵2021年8月21日直播 20210821_2文贵第二次直播]({{site.baseurl}}/miles/transcript/2021/08/20210821-1092666)
+
+[郭文贵2021年8月20日直播 20210820_1文贵歌曲上榜世界最权威音乐排行榜Billboard 公告牌的重大意义；中共国即将面临的粮食危机和爆料革命精神上的富有及财富的成功来看中国人的未来]({{site.baseurl}}/miles/transcript/2021/08/20210820-1092605)
+
+[郭文贵2021年8月20日盖特 20210820_2几十年来第一次去摘瓜……吃着自己摘的瓜．为战友们表现表现，我的连环刀法．莲花刀法！]({{site.baseurl}}/miles/transcript/2021/08/20210820-1092625)
+
 [郭文贵2021年8月20日盖特 20210820_3尊敬的战友们好，你们健身了吗？传播郑州人祸．香港危机CCp病毒真相了吗？任何情况下都不能给自己借口偷懒，停止锻炼，这是新中国联邦人的必备基础]({{site.baseurl}}/miles/transcript/2021/08/20210820-1092630)
 
 [郭文贵2021年8月19日直播 20210819_1从华融，双汇万隆父子事件看中共经济的崩溃和中共的内斗；中共军方对付台湾第一批攻击将是无人机，镭射式武器；文贵准备用10-100亿开赌局，赌台湾是否发生战争，请有资源的战友与农场联盟]({{site.baseurl}}/miles/transcript/2021/08/20210819-1092474)
@@ -32,26 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年8月12日盖特 20210812_1尊敬的战友好！你们健身了吗？你传播C C P病毒，香港危机郑州人祸真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/08/20210812-1092091)
 
 [郭文贵2021年8月12日盖特 20210812_2尊敬的战友们好。我们新中国联邦所有的战友们……都应该认真的看一看，珍惜．我们的面临着什么样前所未有的国际形势．天助新中国联邦……]({{site.baseurl}}/miles/transcript/2021/08/20210812-1092093)
-
-[郭文贵2021年8月12日盖特 20210812_3第二段盖特．我们新中国联邦的战友们永远要记住．维护不包括共产党中国的利益，中国人的安全和利益……是永远不可妥协的原则……永远是我们的核心中的核心。]({{site.baseurl}}/miles/transcript/2021/08/20210812-1092096)
-
-[郭文贵2021年8月12日盖特 20210812_4吃饺饺喽…]({{site.baseurl}}/miles/transcript/2021/08/20210812-1092099)
-
-[郭文贵2021年8月12日盖特 20210812_5再次感谢亿万战友对文贵的支持，让七哥成了一个世界上最另类的摇滚歌星．只有新中国联邦和爆料革命的能创造这种前所未有的奇迹，没有主题的音乐，永远是没有生命，没有主题的创造！永远]({{site.baseurl}}/miles/transcript/2021/08/20210812-1092101)
-
-[郭文贵2021年8月11日直播 20210811_1文贵解读什么是“时尚”和“俱乐部”；G&#124;Fashion和G&#124;Club 是新中国联邦，爆料革命与战友之间心血相融的必须的平台，而且会成为正道主义传播的重要的方式，和聚集财富的平台]({{site.baseurl}}/miles/transcript/2021/08/20210811-1091993)
-
-[郭文贵2021年8月10日盖特 20210810_1尊敬的战友．美国朋友们好！很多人给我发信息．问我每天做多少个这个推拉器？我有时连续做12组．每一组做12个，有时候．做六组每一组，12到15个．每天一定做超过12组．我做得还很不好，还在]({{site.baseurl}}/miles/transcript/2021/08/20210810-1092075)
-
-[郭文贵2021年8月10日盖特 20210810_2尊敬的战友们好，我们准确的有价值无可替代的特殊的信息．关于中共内部的情报，将成为喜联储G系列．和全世界国家力量打交道最重要的交换的筹码，新中国联邦没有任何人……可以拒绝和轻视]({{site.baseurl}}/miles/transcript/2021/08/20210810-1092080)
-
-[郭文贵2021年8月10日盖特 20210810_3吃馍馍喽，吃草喽……]({{site.baseurl}}/miles/transcript/2021/08/20210810-1092085)
-
-[郭文贵2021年8月10日盖特 20210810_4亲爱的兄弟姐妹们……你说花和我．那个最好看呢？]({{site.baseurl}}/miles/transcript/2021/08/20210810-1092088)
-
-[郭文贵2021年8月9日直播 20210809_1为染病毒的战友和家人祈福；联盟农场第一首要任务备药防毒；文贵给世界的警告再次被验证；中共的邪恶计划，杀富，用疫苗杀死老年人和有缺陷的人; 新中国联邦人拯救世界]({{site.baseurl}}/miles/transcript/2021/08/20210809-1092050)
-
-[郭文贵2021年8月9日盖特 20210809_2尊敬的战友们好·你们健身了吗？传播C C P病毒！郑州人祸·香港危机真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/08/20210809-1092069)
 
 
 ## 頁面 22/112 [**<**]({{site.baseurl}}/miles/transcript/page21) [1]({{site.baseurl}}/miles/transcript/index) ... [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) **22** [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page23)

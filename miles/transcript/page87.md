@@ -3,6 +3,26 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 87/112 [**<**]({{site.baseurl}}/miles/transcript/page86) [1]({{site.baseurl}}/miles/transcript/index) ... [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) **87** [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page88)
 
+[郭文贵2019年1月8日视频 20190108春晚搞不搞，听听战友们的心声]({{site.baseurl}}/miles/transcript/2019/01/20190108-1092417)
+
+[郭文贵2019年1月7日视频 20190107_2-财新再一次造谣说陈刚和郭文贵有关系；郭媒体可以定位黑客IP地址；春晚邀请凯琳女做一个节目回答网友提问。]({{site.baseurl}}/miles/transcript/2019/01/20190107-1089008)
+
+[郭文贵2019年1月7日视频 20190107报平安直播被黑客掉未成功的视频。谈马云和被双规的成钢以及懒人郭宝胜的案子]({{site.baseurl}}/miles/transcript/2019/01/20190107-1092391)
+
+[郭文贵2019年1月6日视频 20190106关于战友们关心的法制基金的几个问题的回复！以及文贵对香港，澳门台湾法制沦陷……是被孟建柱．王岐山．孙力军等控制的结果几个观点！]({{site.baseurl}}/miles/transcript/2019/01/20190106-1092115)
+
+[郭文贵2019年1月5日视频 20190105_2-保镖告诉我，林宝坚尼为我特制的SUV已经到我的停车场了，我都快忘了这个车了]({{site.baseurl}}/miles/transcript/2019/01/20190105-1088994)
+
+[郭文贵2019年1月5日 20190105接受庄烈宏先生美东之声访问。中共敢打台湾吗？什么叫战友？2019文贵爆料的具体战略]({{site.baseurl}}/miles/transcript/2019/01/20190105-1092100)
+
+[郭文贵2019年1月4日视频 20190104_1欺民賊們在西方布下的中文媒體的配合CCP的網路大軍太可怕了]({{site.baseurl}}/miles/transcript/2019/01/20190104-1088993)
+
+[郭文贵2019年1月3日视频 20190103_1香港和台湾人民在2019年一定会对CCP全面反击，港台的光明时刻一定会到来]({{site.baseurl}}/miles/transcript/2019/01/20190103-1088989)
+
+[郭文贵2019年1月2日视频 20190102_1乔布斯与他带有神秘色彩的设计的游艇太牛了]({{site.baseurl}}/miles/transcript/2019/01/20190102-1088984)
+
+[郭文贵2019年1月2日视频 20190102_2风中的Snow]({{site.baseurl}}/miles/transcript/2019/01/20190102-1088987)
+
 [郭文贵2019年1月1日视频 20190101_2以法灭共开始倒计时]({{site.baseurl}}/miles/transcript/2019/01/20190101-1088981)
 
 [郭文贵2019年1月1日视频 20190101接受木兰访谈的卡丽熙，什么时候放91号文件，刘承杰他爹到底是谁，共产党会怎样灭亡，2019我们做什么。]({{site.baseurl}}/miles/transcript/2019/01/20190101-1092074)
@@ -32,26 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年12月20日视频 20181220要對你的嫂子好 對你的弟妹好 你的運氣才會好]({{site.baseurl}}/miles/transcript/2018/12/20181220-1094208)
 
 [郭文贵2018年12月19日视频 20181219改革開放40年大會確定要往回走 大家準備吃草吧]({{site.baseurl}}/miles/transcript/2018/12/20181219-1094206)
-
-[郭文贵2018年12月18日视频 20181218_1某部門已開始對過去在網路上造我的謠的人那個那個那個]({{site.baseurl}}/miles/transcript/2018/12/20181218-1088936)
-
-[郭文贵2018年12月17日视频 20181217关于昨天被删除的视频和路德Sara女]({{site.baseurl}}/miles/transcript/2018/12/20181217-1091943)
-
-[郭文贵2018年12月16日 20181216郭文贵回答战友之声的问题，聊天，怎么看待习江斗。]({{site.baseurl}}/miles/transcript/2018/12/20181216-1091936)
-
-[郭文贵2018年12月14日视频 20181214肖建华的资产被分的差不多了，很快就会消失了]({{site.baseurl}}/miles/transcript/2018/12/20181214-1091902)
-
-[郭文贵2018年12月12日视频 20181212]({{site.baseurl}}/miles/transcript/2018/12/20181212-1091752)
-
-[郭文贵2018年12月11日视频 20181211_1文贵简单的早餐]({{site.baseurl}}/miles/transcript/2018/12/20181211-1089076)
-
-[郭文贵2018年12月11日视频 20181211_2回到了美麗的藍天白雲的紐約]({{site.baseurl}}/miles/transcript/2018/12/20181211-1089077)
-
-[郭文贵2018年12月10日视频 20181210_2大连刘乐国因为通过李友案件掌握了中南海的高官的很多证据被释放．他能活多久？]({{site.baseurl}}/miles/transcript/2018/12/20181210-1089071)
-
-[郭文贵2018年12月10日视频 20181210纠正一下昨天直播时的几个口误！刘乐国因为掌握令计划案北大李友案太多案情]({{site.baseurl}}/miles/transcript/2018/12/20181210-1091730)
-
-[郭文贵2018年12月9日视频 20181209量震床上功夫和G20中美峰會的真相，孟晚舟女士在加拿大被抓與華為公司的背后真相，張首晟先生是自殺還是被殺。]({{site.baseurl}}/miles/transcript/2018/12/20181209-1089956)
 
 
 ## 頁面 87/112 [**<**]({{site.baseurl}}/miles/transcript/page86) [1]({{site.baseurl}}/miles/transcript/index) ... [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) **87** [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page88)

@@ -3,6 +3,26 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 28/112 [**<**]({{site.baseurl}}/miles/transcript/page27) [1]({{site.baseurl}}/miles/transcript/index) ... [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) **28** [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page29)
 
+[郭文贵2021年6月8日盖特 20210608_1尊敬的战友们好14亿同胞．和孩子们的绝望……中共经济的即将的崩溃……和社会治安的动乱……和美军即将长期派驻台湾……保护台湾……宣布台湾成为主权独立的国家……这些事件的发生这意味]({{site.baseurl}}/miles/transcript/2021/06/20210608-1091524)
+
+[郭文贵2021年6月7日直播 20210607_164后大家需要抓紧完成的几件大事，与各农场联系；宣布联盟农场的变动，介绍铁血组新成员]({{site.baseurl}}/miles/transcript/2021/06/20210607-1091520)
+
+[郭文贵2021年6月6日盖特 20210606_1尊敬的战友们好！新中国联邦的宣言．和爆料革命的．行动力．正在对冲掉共产党在中共的一切谎言．爆料革命将横扫中共在世界上任何一个角落的黑暗的力量！]({{site.baseurl}}/miles/transcript/2021/06/20210606-1091509)
+
+[郭文贵2021年6月6日盖特 20210606_2尊敬的战友们好……吃鱼头喽……]({{site.baseurl}}/miles/transcript/2021/06/20210606-1091511)
+
+[郭文贵2021年6月6日盖特 20210606_3尊敬的战友们……好在开会20分钟时间为SNOW 理理战发！]({{site.baseurl}}/miles/transcript/2021/06/20210606-1091513)
+
+[郭文贵2021年6月5日盖特 20210605_3七哥代表14亿新中国联邦人感谢．愿拜自由女神！(一)]({{site.baseurl}}/miles/transcript/2021/06/20210605-1089822)
+
+[郭文贵2021年6月5日盖特 20210605_4七哥代表14亿新中国联邦人感谢．愿拜自由女神！(二)]({{site.baseurl}}/miles/transcript/2021/06/20210605-1089826)
+
+[郭文贵2021年6月5日盖特 20210605_5七哥代表14亿新中国联邦人感谢．愿拜自由女神！(三)]({{site.baseurl}}/miles/transcript/2021/06/20210605-1089832)
+
+[郭文贵2021年6月5日直播 20210605_1 感恩自由女神！天佑新中国联邦！]({{site.baseurl}}/miles/transcript/2021/06/20210605-1091496)
+
+[郭文贵2021年6月5日盖特 20210605_2与SNOW 玩对食！]({{site.baseurl}}/miles/transcript/2021/06/20210605-1091507)
+
 [郭文贵2021年6月4日直播 20210604_1新中国联邦一周年庆典]({{site.baseurl}}/miles/transcript/2021/06/20210604-1091490)
 
 [郭文贵2021年6月4日直播 20210604_2文贵谈新中国联邦周年庆观后感，及国内的反响；三个重镑人物，军事大佬弗林将军，经济沼泽地摩根家族，政治新星枕头哥；更多新中国联邦的新人，有才能的战友将涌现出来]({{site.baseurl}}/miles/transcript/2021/06/20210604-1091504)
@@ -32,26 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年5月29日盖特 20210529_3尊敬的菜弄好应很多专业的要求发一个Snow 的视频！]({{site.baseurl}}/miles/transcript/2021/05/20210529-1091454)
 
 [郭文贵2021年5月29日盖特 20210529_47哥边开会边做着我们山东莘县的古城郭氏烧鸡．这是我小时候最想吃的最爱吃的，我老家古城的郭氏烧鸡！我会将共产党如同楚，这个机一样，慢慢地将它们煮熟煮透……而且要程序化的耐心的将]({{site.baseurl}}/miles/transcript/2021/05/20210529-1091456)
-
-[郭文贵2021年5月28日盖特 20210528_1尊敬的战友们好！为什么躺平币．在国内造成这么大的影响？在这里公开回复很多战友．要求加入关于．G系列的将获得新GTV股票奖励的一些细节！]({{site.baseurl}}/miles/transcript/2021/05/20210528-1091447)
-
-[郭文贵2021年5月27日直播 20210527_1中共把贸易全球化变成全球贸易中国化，强奸联合国组织，新中国联邦拯救了世界；关于武汉实验室在过去48小时已发生根本变化；6月4号新中国联邦一周年活动意义非凡]({{site.baseurl}}/miles/transcript/2021/05/20210527-1091431)
-
-[郭文贵2021年5月27日盖特 20210527_2尊敬的战友们好！先来120个热身……一会儿和战友们乱聊一切都已经开始了！]({{site.baseurl}}/miles/transcript/2021/05/20210527-1091433)
-
-[郭文贵2021年5月27日盖特 20210527_3尊敬的战友们好……开了一天会……有些好消息肖向你们报告一下……]({{site.baseurl}}/miles/transcript/2021/05/20210527-1091437)
-
-[郭文贵2021年5月26日盖特 20210526_1尊敬的战友们好，由于一系列的特殊会议安排．上午发不了盖特．向大家表示道歉！]({{site.baseurl}}/miles/transcript/2021/05/20210526-1091410)
-
-[郭文贵2021年5月26日盖特 20210526_2尊敬的战友好！7哥谈谈今天的开会！和关于共产党最近的疯狂⋯]({{site.baseurl}}/miles/transcript/2021/05/20210526-1091412)
-
-[郭文贵2021年5月26日盖特 20210526_3尊敬的战友们好……健身是爆料革命的一个伟大的，具有广泛意义的一个行动，不管7哥有多累，永远不会给自己借口，让自己有一次机会去偷懒，永不放弃，是需要每个人真实的行动和坚定的决心]({{site.baseurl}}/miles/transcript/2021/05/20210526-1091416)
-
-[郭文贵2021年5月25日视频 20210525_1喜联盟GNEWS64文宣大赛颁奖典礼]({{site.baseurl}}/miles/transcript/2021/05/20210525-1091402)
-
-[郭文贵2021年5月25日盖特 20210525_2尊敬的战友们好，由于今天的和时间问题．的特殊安排的听证会！早上没有发盖特，现在7哥马上给大家补上！谈谈这两天7哥的一些关于正在开发中躺币的一些概念！]({{site.baseurl}}/miles/transcript/2021/05/20210525-1091405)
-
-[郭文贵2021年5月25日盖特 20210525_3尊敬的战友们好，由于今天的和时间问题．的特殊安排的听证会！早上没有发盖特，现在7哥马上给大家补上！谈谈这两天7哥的一些关于正在开发中躺币的一些概念！]({{site.baseurl}}/miles/transcript/2021/05/20210525-1091406)
 
 
 ## 頁面 28/112 [**<**]({{site.baseurl}}/miles/transcript/page27) [1]({{site.baseurl}}/miles/transcript/index) ... [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) **28** [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page29)

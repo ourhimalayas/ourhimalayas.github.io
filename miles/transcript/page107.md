@@ -3,6 +3,26 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 107/112 [**<**]({{site.baseurl}}/miles/transcript/page106) [1]({{site.baseurl}}/miles/transcript/index) ... [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) **107** [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page108)
 
+[郭文贵2017年9月13日视频 20170913姚依林王岐山孟建柱孙力军傅政华的生殖器治国首篇！姚依林与姚明瑞．刘呈杰．刘新扬的乱伦！刘呈杰的法人爹是谁？]({{site.baseurl}}/miles/transcript/2017/09/20170913-1094498)
+
+[郭文贵2017年9月12日视频 20170912大家不要上了盗国贼们生殖器大战的当]({{site.baseurl}}/miles/transcript/2017/09/20170912-1094087)
+
+[郭文贵2017年9月11日视频 20170911全力以赴准备19大我们的影子会议]({{site.baseurl}}/miles/transcript/2017/09/20170911-1094086)
+
+[郭文贵2017年9月10日视频 20170910_2马云你还记得这个东西么?180次飞行记录，200万买的录像证明一切。]({{site.baseurl}}/miles/transcript/2017/09/20170910-1087859)
+
+[郭文贵2017年9月10日视频 20170910江绵恒．王岐山．孟建柱．傅政华．孙力军．马云！及我与刘彦平先生的对话]({{site.baseurl}}/miles/transcript/2017/09/20170910-1094497)
+
+[郭文贵2017年9月9日视频 20170909_2分享此时此刻 为今天的直播技术失误道歉]({{site.baseurl}}/miles/transcript/2017/09/20170909-1094074)
+
+[郭文贵2017年9月9日视频 20170909_3船上直播 他们把死人都给搬出来了！]({{site.baseurl}}/miles/transcript/2017/09/20170909-1094076)
+
+[郭文贵2017年9月9日视频 20170909_4补偿今天直播技术的失败 分享游艇内部]({{site.baseurl}}/miles/transcript/2017/09/20170909-1094079)
+
+[郭文贵2017年9月9日视频 20170909_5在船上]({{site.baseurl}}/miles/transcript/2017/09/20170909-1094084)
+
+[郭文贵2017年9月9日 20170909说说姚依林与马云，孟建柱，孙立军]({{site.baseurl}}/miles/transcript/2017/09/20170909-1094477)
+
 [郭文贵2017年9月7日视频 20170907是孙力军．孟建柱．傅政华．王岐山．的凶恶．促使文贵决定美国政治屁护！]({{site.baseurl}}/miles/transcript/2017/09/20170907-1094473)
 
 [郭文贵2017年9月6日视频 20170906王岐山．孟建柱．孙力军．傅政华．如何对待女人！]({{site.baseurl}}/miles/transcript/2017/09/20170906-1094375)
@@ -32,26 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年8月28日视频 20170828_2今天七夕情人节 我与太太今天在海滩上享受了一下午]({{site.baseurl}}/miles/transcript/2017/08/20170828-1094061)
 
 [郭文贵2017年8月28日 20170828文贵到底是不是国安特务，文贵与王艳平到底有没有乱伦]({{site.baseurl}}/miles/transcript/2017/08/20170828-1094436)
-
-[郭文贵2017年8月27日直播 20170827_1]({{site.baseurl}}/miles/transcript/2017/08/20170827-1093298)
-
-[郭文贵2017年8月27日视频 20170827_2黑客攻击郭文贵手机 军方的高科技]({{site.baseurl}}/miles/transcript/2017/08/20170827-1094056)
-
-[郭文贵2017年8月27日视频 20170827_3盗国贼们的疯狂与愚蠢 这样的黑客攻击方式是最好的证明文贵的爆料是真实]({{site.baseurl}}/miles/transcript/2017/08/20170827-1094059)
-
-[郭文贵2017年8月26日视频 20170826老兵通过新加坡发来视频 翻墙软件偷信息 美政府对海航的关注达到我们的目的]({{site.baseurl}}/miles/transcript/2017/08/20170826-1094053)
-
-[郭文贵2017年8月25日视频 20170825_270天的特别之旅]({{site.baseurl}}/miles/transcript/2017/08/20170825-1094052)
-
-[郭文贵2017年8月25日做客郭宝胜 20170825宗教与中国政治及社会关系]({{site.baseurl}}/miles/transcript/2017/08/20170825-1094829)
-
-[郭文贵2017年8月24日 20170824关于腾彪先生造谣文贵乱伦]({{site.baseurl}}/miles/transcript/2017/08/20170824-1094435)
-
-[郭文贵2017年8月23日视频 20170823]({{site.baseurl}}/miles/transcript/2017/08/20170823-1094040)
-
-[郭文贵2017年8月22日直播 20170822_2]({{site.baseurl}}/miles/transcript/2017/08/20170822-1093288)
-
-[郭文贵2017年8月22日第二次直播 20170822盗国贼组织上百特务来美，用‘蓝金黄’计划对付文贵及知名推友。很多人及家人会被威胁。]({{site.baseurl}}/miles/transcript/2017/08/20170822-1094823)
 
 
 ## 頁面 107/112 [**<**]({{site.baseurl}}/miles/transcript/page106) [1]({{site.baseurl}}/miles/transcript/index) ... [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) **107** [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page108)

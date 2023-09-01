@@ -3,6 +3,26 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 51/112 [**<**]({{site.baseurl}}/miles/transcript/page50) [1]({{site.baseurl}}/miles/transcript/index) ... [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) **51** [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page52)
 
+[郭文贵2020年7月19日连线大卫上集 20200719_2]({{site.baseurl}}/miles/transcript/2020/07/20200719-1092497)
+
+[郭文贵2020年7月19日连线大卫下集 20200719_3]({{site.baseurl}}/miles/transcript/2020/07/20200719-1092513)
+
+[郭文贵2020年7月18日视频 20200718_1同声传译⎢班农战斗室特别节目⎢回击：美国的全球灭共行动 嘉宾郭文贵先生谈虚假经济，超限战，信息战，科技战，和国内洪灾]({{site.baseurl}}/miles/transcript/2020/07/20200718-1089977)
+
+[郭文贵2020年7月17日视频 20200717_3将在半小时内开始乱聊直播]({{site.baseurl}}/miles/transcript/2020/07/20200717-1089967)
+
+[郭文贵2020年7月17日盖特 20200717谈谈最近几天的灭共形势！在这个视频中，我又将时间搞错了，把17号说成16号]({{site.baseurl}}/miles/transcript/2020/07/20200717-1092385)
+
+[郭文贵2020年7月17日直播 20200717_2关注司法部长巴尔演讲，依法灭共里程碑！必须特赦9千万党员！惩罚9千万党员是不公平的，不能祸连九族！]({{site.baseurl}}/miles/transcript/2020/07/20200717-1092435)
+
+[郭文贵2020年7月16日视频 20200716_1请大家一定去看．司法部长．巴斯的发布会]({{site.baseurl}}/miles/transcript/2020/07/20200716-1089962)
+
+[郭文贵2020年7月16日视频 20200716_2文贵收到了好多战友问询．如何帮助战友们在美国．脱共]({{site.baseurl}}/miles/transcript/2020/07/20200716-1089964)
+
+[郭文贵2020年7月15日视频 20200715_2川普总统的头发．从过去的金发为什么一夜变成了灰白发呢？]({{site.baseurl}}/miles/transcript/2020/07/20200715-1089958)
+
+[郭文贵2020年7月15日直播 20200715为什么卡尔巴斯．离开GTV董事会？接下来的新中国联邦将与各国合作有重大的行动]({{site.baseurl}}/miles/transcript/2020/07/20200715-1092379)
+
 [郭文贵2020年7月14日视频 20200714_3美国和欧洲国家正在制定详细的行动计划，在西方世界清除欺民贼]({{site.baseurl}}/miles/transcript/2020/07/20200714-1089949)
 
 [郭文贵2020年7月14日视频 20200714_4川普总统将在白宫的玫瑰园讲话……关于香港．与中共……C C P 又赢了吗？]({{site.baseurl}}/miles/transcript/2020/07/20200714-1089951)
@@ -32,26 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年7月11日视频 20200711_6我终于明白了为什么在三个小时前我船的旁边突然间出现了彩虹️天佑中华儿女️天佑️新中国联邦]({{site.baseurl}}/miles/transcript/2020/07/20200711-1089943)
 
 [郭文贵2020年7月10日视频 20200710_1文贵先生再次参加班农战斗室节目片段（1）]({{site.baseurl}}/miles/transcript/2020/07/20200710-1089907)
-
-[郭文贵2020年7月10日视频 20200710_2文贵先生再次参加班农战斗室节目片段（2）]({{site.baseurl}}/miles/transcript/2020/07/20200710-1089909)
-
-[郭文贵2020年7月10日视频 20200710_3文贵先生再次参加班农战斗室节目片段（3）]({{site.baseurl}}/miles/transcript/2020/07/20200710-1089910)
-
-[郭文贵2020年7月10日视频 20200710_4文贵先生再次参加班农战斗室节目片段（4）]({{site.baseurl}}/miles/transcript/2020/07/20200710-1089914)
-
-[郭文贵2020年7月10日视频 20200710_5文贵先生再次参加班农战斗室节目片段（5）]({{site.baseurl}}/miles/transcript/2020/07/20200710-1089916)
-
-[郭文贵2020年7月10日视频 20200710_6文贵先生再次参加班农战斗室节目片段（6）]({{site.baseurl}}/miles/transcript/2020/07/20200710-1089920)
-
-[郭文贵2020年7月10日视频 20200710_7文贵先生再次参加班农战斗室节目片段（7）]({{site.baseurl}}/miles/transcript/2020/07/20200710-1089923)
-
-[郭文贵2020年7月9日视频 20200709_1听说有关火鸡龚新闻……原来被BBG国会还有FBI调查涉嫌贪污造假，各种贿赂]({{site.baseurl}}/miles/transcript/2020/07/20200709-1089905)
-
-[郭文贵2020年7月9日视频 20200709_2等了一天了今天200的公告和今天福克斯的节目共匪很空疯狂但是他们必须亡]({{site.baseurl}}/miles/transcript/2020/07/20200709-1089906)
-
-[郭文贵2020年7月8日直播 20200708共产党又在美国的华尔街日报造谣文贵和班农先生！意图转移国内的重大问题打击，新中国联邦在美国和西方灭共的的大好形式]({{site.baseurl}}/miles/transcript/2020/07/20200708-1092318)
-
-[郭文贵2020年7月7日盖特视频 20200707战友们情人节快乐！GTV是一个传奇同时也是共产党的恐惧]({{site.baseurl}}/miles/transcript/2020/07/20200707-1092322)
 
 
 ## 頁面 51/112 [**<**]({{site.baseurl}}/miles/transcript/page50) [1]({{site.baseurl}}/miles/transcript/index) ... [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) **51** [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page52)

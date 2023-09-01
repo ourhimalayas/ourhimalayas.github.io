@@ -3,6 +3,26 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 43/112 [**<**]({{site.baseurl}}/miles/transcript/page42) [1]({{site.baseurl}}/miles/transcript/index) ... [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) **43** [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page44)
 
+[郭文贵2020年12月12日盖特 20201212_1文贵喝咖啡喝醉了……乱聊，并回答很多朋友在昨天直播后的一些有关沼泽地里的关切！]({{site.baseurl}}/miles/transcript/2020/12/20201212-1090067)
+
+[郭文贵2020年12月11日直播 20201211_1文贵直播谈真实的川普总统；正义的力量超乎我们的想象！]({{site.baseurl}}/miles/transcript/2020/12/20201211-1090042)
+
+[郭文贵2020年12月11日盖特 20201211_2有時間的話今晚直播 沒時間的話 我想明天早上來個大聊亂聊直播(90%概率)]({{site.baseurl}}/miles/transcript/2020/12/20201211-1090062)
+
+[郭文贵2020年12月11日盖特 20201211_3收到了很多战友的有关一旦灭共战争发生……战友们应该做什么……？这样的问题，我在这里简单地回答！]({{site.baseurl}}/miles/transcript/2020/12/20201211-1090065)
+
+[郭文贵2020年12月10日直播 20201210_1 文贵直播此时此刻有好几个战场正在同时进行着！]({{site.baseurl}}/miles/transcript/2020/12/20201210-1090035)
+
+[郭文贵2020年12月10日盖特 20201210_2尊敬的战友们好，请今天．都去看路德波切访谈……我们的灭共革命进入了一个新的阶段，希望大家过了24小时以后不要兴奋得都去亲自己的脸……一切都已经开始]({{site.baseurl}}/miles/transcript/2020/12/20201210-1090054)
+
+[郭文贵2020年12月10日盖特 20201210_3尊敬的战友们好……任何农场和战友对救助战友的承诺……和履行承诺非常之重要，一定要坚持唯真不破．真善对战友……要真情实意……并敢于承担]({{site.baseurl}}/miles/transcript/2020/12/20201210-1090055)
+
+[郭文贵2020年12月10日盖特 20201210_4衷心的感谢那些在共产党的体制内……默默无闻的战友们……感谢你们提供的在美国被渗透的法官和律师事务所的腐败信息……对文贵在美国案子用蓝金黄手段办黑案的事实，这是非常重要的]({{site.baseurl}}/miles/transcript/2020/12/20201210-1090058)
+
+[郭文贵2020年12月10日盖特 20201210_5所有的战友们都要全力以赴去支持。在苹果商店在过去几年支持，我们爆料革命．坚持美国法律原则的这位姓范的朋友。]({{site.baseurl}}/miles/transcript/2020/12/20201210-1090061)
+
+[郭文贵2020年12月9日盖特 20201209_1蓋特：睡不著覺啦...胡說八道亂聊一下，翟東升所說的左欺右騙虾話，中國共產黨以假治國以黑治國以騙治國...狂妄自大...一個典型的代表人物...有時間的時候，能在這個星期六好好聊聊]({{site.baseurl}}/miles/transcript/2020/12/20201209-1090049)
+
 [郭文贵2020年12月9日盖特 20201209_2文貴衷心的感謝全球的懲賊滅共行動中......辛苦的戰友們......]({{site.baseurl}}/miles/transcript/2020/12/20201209-1090051)
 
 [郭文贵2020年12月8日盖特 20201208_3心地感谢日本富士会的007及所有的战友们的认真……和辛苦……制作的新中国联邦的旗帜和徽章的系列]({{site.baseurl}}/miles/transcript/2020/12/20201208-1090089)
@@ -32,26 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年11月30日直播 20201130_1新中国联邦人一定要团结有集体观念，我们靠情报和实力唤醒世界]({{site.baseurl}}/miles/transcript/2020/11/20201130-1093366)
 
 [郭文贵2020年11月30日盖特 20201130_2尊敬的戰友們好，你們健身了嗎？你們傳播CCP病毒，香港危機真相了嗎？一切都已經開始！]({{site.baseurl}}/miles/transcript/2020/11/20201130-1093372)
-
-[郭文贵2020年11月29日盖特 20201129_1尊敬的戰友們好，你們健身了嗎？你們傳播CCP病毒……香港危機真相了嗎？一切都已經開始！]({{site.baseurl}}/miles/transcript/2020/11/20201129-1093160)
-
-[郭文贵2020年11月28日直播 20201128_1习下定决心攻打台湾，香港经济正处在最后崩盘的挣扎中，美国大选越滑稽我们越有机会！]({{site.baseurl}}/miles/transcript/2020/11/20201128-1093331)
-
-[郭文贵2020年11月27日直播 20201127_1大选从滑到稽，川普总统百分之一万当选，战友们要团结、要行动！]({{site.baseurl}}/miles/transcript/2020/11/20201127-1093312)
-
-[郭文贵2020年11月27日盖特 20201127_22020年11月27號尊敬的戰友們好，你們健身了嗎？你們傳播CCP病毒，香港危機真相了嗎？一切都已經開始！]({{site.baseurl}}/miles/transcript/2020/11/20201127-1093316)
-
-[郭文贵2020年11月26日直播 20201126_1感恩节直播：我们应该怎样过感恩节？我们为什么是干灭中共的唯一力量？为什么说川普总统绝对会赢！认钱为爹的时代将一去不返！]({{site.baseurl}}/miles/transcript/2020/11/20201126-1093310)
-
-[郭文贵2020年11月24日直播 20201124_1]({{site.baseurl}}/miles/transcript/2020/11/20201124-1093296)
-
-[郭文贵2020年11月23日盖特 20201123_1剛剛睡了6個小時 既能吃也能睡]({{site.baseurl}}/miles/transcript/2020/11/20201123-1093222)
-
-[郭文贵2020年11月22日直播 20201122_1]({{site.baseurl}}/miles/transcript/2020/11/20201122-1093203)
-
-[郭文贵2020年11月22日盖特 20201122_2尊敬的战友们好，你们健身了吗？你们传统播C C B病毒——香港危机真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2020/11/20201122-1093206)
-
-[郭文贵2020年11月22日直播 20201122_3夜晚部分]({{site.baseurl}}/miles/transcript/2020/11/20201122-1093219)
 
 
 ## 頁面 43/112 [**<**]({{site.baseurl}}/miles/transcript/page42) [1]({{site.baseurl}}/miles/transcript/index) ... [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) **43** [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page44)

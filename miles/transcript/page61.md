@@ -3,6 +3,26 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 61/112 [**<**]({{site.baseurl}}/miles/transcript/page60) [1]({{site.baseurl}}/miles/transcript/index) ... [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) **61** [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page62)
 
+[郭文贵2020年2月5日视频 20200205_1我们法治基金已经准备好了一亿个口罩！请问中共我们该如何送到我们血缘的同胞手里？寄诸囗罩．善至血缘！]({{site.baseurl}}/miles/transcript/2020/02/20200205-1089764)
+
+[郭文贵2020年2月3日直播 20200203_2谈共产党官方一直掩盖武汉真相第二部分]({{site.baseurl}}/miles/transcript/2020/02/20200203-1088889)
+
+[郭文贵2020年2月3日直播 20200203_1谈共产党官方一直掩盖武汉真相第一部分]({{site.baseurl}}/miles/transcript/2020/02/20200203-1088892)
+
+[郭文贵2020年2月3日直播 20200203_3谈共产党官方一直掩盖武汉真相第三部分]({{site.baseurl}}/miles/transcript/2020/02/20200203-1091704)
+
+[郭文贵2020年2月1日第一次直播 20200201_1无能共产党救灾不利，又拒绝国际救援，百姓何去何从，一起找书记]({{site.baseurl}}/miles/transcript/2020/02/20200201-1091807)
+
+[郭文贵2020年2月1日第二次直播 20200201_2在马阿拉哥总统套房第二次直播西方社会将对中共在西方的沉默力量采取最严厉的打击措施]({{site.baseurl}}/miles/transcript/2020/02/20200201-1091830)
+
+[郭文贵2020年2月1日第三次直播 20200201_3第三次直播分享参加川普总统晚宴有感]({{site.baseurl}}/miles/transcript/2020/02/20200201-1091839)
+
+[郭文贵2020年1月31日 20200131导致疫情扩大的真正原因是共]({{site.baseurl}}/miles/transcript/2020/01/20200131-1091780)
+
+[郭文贵2020年1月30日视频 20200130_2文貴在教堂為中國人祈福]({{site.baseurl}}/miles/transcript/2020/01/20200130-1089759)
+
+[郭文贵2020年1月30日视频 20200130_3沿着三年前习川会的小路走一走！【有1000个理由要搞好中美关系没有一个理由给搞坏中美关系。】]({{site.baseurl}}/miles/transcript/2020/01/20200130-1089762)
+
 [郭文贵2020年1月30日 20200130谈中南坑政治局常委有人会死]({{site.baseurl}}/miles/transcript/2020/01/20200130-1091760)
 
 [郭文贵2020年1月29日 20200129谈CCP统治下的孤国孤市孤镇孤]({{site.baseurl}}/miles/transcript/2020/01/20200129-1091747)
@@ -32,26 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年1月19日 20200119惊天的新闻．中美协议是卖香港的交易。这就是中共所谓的外溢效应！]({{site.baseurl}}/miles/transcript/2020/01/20200119-1092312)
 
 [郭文贵2020年1月18日 20200118刘鹤招待会取消预示着什么]({{site.baseurl}}/miles/transcript/2020/01/20200118-1092293)
-
-[郭文贵2020年1月17日谈中美贸易战内幕 20200117贸易协议为何一定是滑稽的结]({{site.baseurl}}/miles/transcript/2020/01/20200117-1091616)
-
-[郭文贵2020年1月15日第一次直播 20200115_1谈美国白宫建筑意义]({{site.baseurl}}/miles/transcript/2020/01/20200115-1091598)
-
-[郭文贵2020年1月15日第二次直播 20200115_2谈中共在白宫签署2020庚子协议]({{site.baseurl}}/miles/transcript/2020/01/20200115-1091608)
-
-[郭文贵2020年1月14日 20200114谈伊朗霍梅尼现象绝对不能在]({{site.baseurl}}/miles/transcript/2020/01/20200114-1091849)
-
-[郭文贵2020年1月13日  20200113伊朗巴列维王国和霍梅尼神棍]({{site.baseurl}}/miles/transcript/2020/01/20200113-1092265)
-
-[郭文贵2020年1月11日 20200111台湾大选为什么会赢 为什么说]({{site.baseurl}}/miles/transcript/2020/01/20200111-1091833)
-
-[郭文贵2020年1月10日视频 20200110_2最受郭文貴信賴尊敬的西服師傅 從不欺騙從不坑人]({{site.baseurl}}/miles/transcript/2020/01/20200110-1089755)
-
-[郭文贵2020年1月10日 20200110台湾选举的重要性 关心换汇的]({{site.baseurl}}/miles/transcript/2020/01/20200110-1091797)
-
-[郭文贵2020年1月9日视频 20200109_1看房子啦！]({{site.baseurl}}/miles/transcript/2020/01/20200109-1089753)
-
-[郭文贵2020年1月8日 20200108跟战友们分享在小飞机上吃鸡]({{site.baseurl}}/miles/transcript/2020/01/20200108-1091785)
 
 
 ## 頁面 61/112 [**<**]({{site.baseurl}}/miles/transcript/page60) [1]({{site.baseurl}}/miles/transcript/index) ... [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) **61** [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page62)

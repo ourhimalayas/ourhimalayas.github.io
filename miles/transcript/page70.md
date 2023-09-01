@@ -3,6 +3,26 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 70/112 [**<**]({{site.baseurl}}/miles/transcript/page69) [1]({{site.baseurl}}/miles/transcript/index) ... [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) **70** [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page71)
 
+[2019年10月4日文贵大直播全文字版：谈香港动用紧急法，出台禁止蒙面条例]({{site.baseurl}}/miles/transcript/2019/10/20191004-1098243)
+
+[郭文贵2019年10月3日视频 20191003_1香港将实施宵禁令 变相戒严 大抓捕]({{site.baseurl}}/miles/transcript/2019/10/20191003-1089547)
+
+[郭文贵2019年10月2日视频 20191002_1美国CAI通过最高技术 扫描‘十一’军演无人机 发现都是假的]({{site.baseurl}}/miles/transcript/2019/10/20191002-1089541)
+
+[郭文贵2019年10月1日 20191001_2郭文贵先生与班农先生连线各地战友，传播香港抗议现场、解读国际重大事件，揭露中共十一国庆真相！]({{site.baseurl}}/miles/transcript/2019/10/20191001-1087998)
+
+[郭文贵2019年10月1日 20191001_3]({{site.baseurl}}/miles/transcript/2019/10/20191001-1088560)
+
+[郭文贵2019年10月1日 20191001_1郭文贵先生与班农先生连线各地战友，传播香港抗议现场、解读国际重大事件，揭露中共十一国庆真相！]({{site.baseurl}}/miles/transcript/2019/10/20191001-1093789)
+
+[2019年10月1日 郭文贵先生开篇演讲 全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191001-1098238)
+
+[2019年10月1日文贵大直播全文字版：郭先生与班农先生连线各地战友，传播香港抗议现场、解读国际重大事件，揭露中共十一国庆真相！下集]({{site.baseurl}}/miles/transcript/2019/10/20191001-1098242)
+
+[2019年10月1日郭文贵先生与班农先生连线各地战友，传播香港抗议现场、解读国际重大事件，揭露中共十一国庆真相！（上）全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191001-1098246)
+
+[郭文贵2019年9月30日视频 20190930_3大阅兵直播]({{site.baseurl}}/miles/transcript/2019/09/20190930-1088563)
+
 [郭文贵2019年9月30日视频 20190930_4大阅兵直播]({{site.baseurl}}/miles/transcript/2019/09/20190930-1088565)
 
 [郭文贵2019年9月30日视频 20190930_1北京阅兵 郭媒体进入战备状态 天安門廣場的國慶晚宴音樂晚會將有事發生]({{site.baseurl}}/miles/transcript/2019/09/20190930-1089530)
@@ -32,26 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年9月24日视频 20190924_3直播吃红烧肉，阅兵后美女按需分配]({{site.baseurl}}/miles/transcript/2019/09/20190924-1088578)
 
 [郭文贵2019年9月24日第二次直播 20190924_2红烧肉真香，ccp给人民吃瘟猪肉，还把阅兵后的帅哥美女按领导级別分配，美女当小三，帅哥当领导夫人保镖.]({{site.baseurl}}/miles/transcript/2019/09/20190924-1093675)
-
-[郭文贵2019年9月24日第一次直播 20190924_1郭文贵先生和江财神路德三人谈政治经济爱情以及外星人！妄图弹劾总统是好事！]({{site.baseurl}}/miles/transcript/2019/09/20190924-1093697)
-
-[2019年9月24日文贵大直播全文字版：红烧肉真香，ccp给人民吃瘟猪肉，还把阅兵后的帅哥美女按领导级別分配，美女当小三，帅哥当领导夫人保镖.]({{site.baseurl}}/miles/transcript/2019/09/20190924-1098239)
-
-[郭文贵2019年9月23日视频 20190923_1(無侵權版, 原版已被CCTV裡的雞舉報刪除)中共全面实施“驭民五术”，国庆军演民不聊生。应对中共“三大战役”，美国只会打口炮么？美国武力介入香港问题的可能性有多大？]({{site.baseurl}}/miles/transcript/2019/09/20190923-1089523)
-
-[2019年9月23日 郭文贵先生与班农先生直播 全文字版 中共全面实施“驭民五术”，国庆军演民不聊生；应对中共“三大战役”，美国只会打口炮么？]({{site.baseurl}}/miles/transcript/2019/09/20190923-1098234)
-
-[郭文贵2019年9月22日直播 20190922CCP突发三大战役挑战全球，妄图共产天下，垂死挣扎！]({{site.baseurl}}/miles/transcript/2019/09/20190922-1093654)
-
-[2019年9月22日文贵大直播全文字版：CCP突发三大战役挑战全球，妄图共产天下，垂死挣扎！]({{site.baseurl}}/miles/transcript/2019/09/20190922-1098232)
-
-[郭文贵2019年9月20日视频 20190920感谢战友们的担心，文贵为什么这两天没直播。香港最艰难时期是十月后，请香港战友加倍小心！]({{site.baseurl}}/miles/transcript/2019/09/20190920-1093661)
-
-[2019年9月20日郭先生报平安感谢战友们的担心全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190920-1098225)
-
-[郭文贵2019年9月17日视频 20190917马云儒学也得肛门癌，还有大佬会出事，体制内战友要安全的支持爆料革命，香港人要时刻提防CCP灭绝人性的行动]({{site.baseurl}}/miles/transcript/2019/09/20190917-1093639)
-
-[2019年9月17日文贵报平安全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190917-1098227)
 
 
 ## 頁面 70/112 [**<**]({{site.baseurl}}/miles/transcript/page69) [1]({{site.baseurl}}/miles/transcript/index) ... [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) **70** [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page71)

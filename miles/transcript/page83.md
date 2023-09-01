@@ -3,6 +3,26 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 83/112 [**<**]({{site.baseurl}}/miles/transcript/page82) [1]({{site.baseurl}}/miles/transcript/index) ... [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) **83** [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page84)
 
+[郭文贵2019年4月24日 20190424文贵向战友们报告昨天的三个神秘会议的内容及对张建先生突然病逝的祈祷！]({{site.baseurl}}/miles/transcript/2019/04/20190424-1092894)
+
+[郭文贵2019年4月23日视频 20190423_1親愛的戰友 今天有三撥牛人來紐約開會 耗子們也正向著鼠夾狂奔]({{site.baseurl}}/miles/transcript/2019/04/20190423-1089151)
+
+[郭文贵2019年4月22日视频 20190422_2半小时后，纽约时间上午1000北京时间晚上1000．文贵直播报平安．谈谈对伊朗石油的制裁意味着什么？和盗国贼有什么关系]({{site.baseurl}}/miles/transcript/2019/04/20190422-1089149)
+
+[郭文贵2019年4月22日 20190422伊朗的石油制栽意味着共产党推行独栽盗国制度．将受到法治．民主社会制度的全面反击！]({{site.baseurl}}/miles/transcript/2019/04/20190422-1092886)
+
+[郭文贵2019年4月21日 20190421文贵为什么要揭穿．李嘉诚．马云．郭台铭．江志诚！]({{site.baseurl}}/miles/transcript/2019/04/20190421-1092870)
+
+[郭文贵2019年4月20日视频 20190420班农先生与文贵谈郭台铭选台湾总统 : Steve Bannon and Miles Guo, a dialogue on Terry Gou’s presidential bid]({{site.baseurl}}/miles/transcript/2019/04/20190420-1092861)
+
+[郭文贵2019年4月19日视频 20190419明早將與班農一起直播, 班農說的話文貴不負責, 因為他可能違反郭七條]({{site.baseurl}}/miles/transcript/2019/04/20190419-1089147)
+
+[郭文贵2019年4月18日视频 20190418_2正在准备20号上午9点的直播！]({{site.baseurl}}/miles/transcript/2019/04/20190418-1089144)
+
+[郭文贵2019年4月18日视频 20190418_1一个难忘的日子……2017年与VOA龚小夏女士．东方先生……在我家的釆访！断播二周年．文贵回顾这两年来爆料的一些人和事……一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/04/20190418-1092834)
+
+[郭文贵2019年4月17日视频 20190417_1在喜馬拉雅大使館試衛星WIFI]({{site.baseurl}}/miles/transcript/2019/04/20190417-1089114)
+
 [郭文贵2019年4月17日视频 20190417_2戰友第一次參觀喜馬拉雅大使館(上)]({{site.baseurl}}/miles/transcript/2019/04/20190417-1089130)
 
 [郭文贵2019年4月17日视频 20190417_3戰友第一次參觀喜馬拉雅大使館(下)]({{site.baseurl}}/miles/transcript/2019/04/20190417-1089142)
@@ -32,26 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年4月9日视频 20190409谈谈陈小平先生和何频先生．明镜．和龚小夏女士上次直播时没有说清楚的几个事！]({{site.baseurl}}/miles/transcript/2019/04/20190409-1092767)
 
 [郭文贵2019年4月7日视频 20190407美．欧．日．等将对中资国营．香港自贸协定．中共及香港官员的一系列的立法制栽．或调查．或列入黑名单．行动．将是中共灭亡的第一步！]({{site.baseurl}}/miles/transcript/2019/04/20190407-1092765)
-
-[郭文贵2019年4月6日视频 20190406_2应战友们的要求．展示一下喜马拉雅大使馆直播间！这是战友们在美国纽约的家的的9分之一！]({{site.baseurl}}/miles/transcript/2019/04/20190406-1089089)
-
-[郭文贵2019年4月6日视频 20190406班农先生与郭文贵先生谈“当委会”、中美贸易协议与法治基金]({{site.baseurl}}/miles/transcript/2019/04/20190406-1092746)
-
-[郭文贵2019年4月3日视频 20190403_1万分感谢科罗拉洲的战友们……你们的勇敢与智慧……让文贵感动至极……一切都要看结果！]({{site.baseurl}}/miles/transcript/2019/04/20190403-1089174)
-
-[郭文贵2019年4月2日视频 20190402_2万分感谢潜伏的战友们的重大贡献]({{site.baseurl}}/miles/transcript/2019/04/20190402-1089087)
-
-[郭文贵2019年4月2日视频 20190402尊敬的战友们好！你们健身了吗！你们往身上泼水了吗！文贵向战友们报告在加洲开会的感受．和睡在帐篷的原因与地点！一切都是刚刚开始！【挺郭小妹】]({{site.baseurl}}/miles/transcript/2019/04/20190402-1092712)
-
-[郭文贵2019年4月1日视频 20190401_1郭文贵先生美国加州报平安：帐内论灭共，血誓定决心！]({{site.baseurl}}/miles/transcript/2019/04/20190401-1089172)
-
-[郭文贵2019年3月31日视频 20190331_1尊敬的战友们好！你们健身了吗！你们往身上泼水了吗！文贵在加州圣巴巴拉向大家报平安！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/03/20190331-1089169)
-
-[郭文贵2019年3月30日视频 20190330_1文贵在加州向战友们报平安！有的事情爆得太早 把事情都毀了 而且毀得很嚴重]({{site.baseurl}}/miles/transcript/2019/03/20190330-1089166)
-
-[郭文贵2019年3月29日浴火重生 20190329超人归来]({{site.baseurl}}/miles/transcript/2019/03/20190329-1092708)
-
-[郭文贵2019年3月7日视频 20190307_1文贵报平安视频。因为母亲住院，近期文贵会很少发视频和回答战友们的私信。谢谢大家的理解。]({{site.baseurl}}/miles/transcript/2019/03/20190307-1089163)
 
 
 ## 頁面 83/112 [**<**]({{site.baseurl}}/miles/transcript/page82) [1]({{site.baseurl}}/miles/transcript/index) ... [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) **83** [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page84)

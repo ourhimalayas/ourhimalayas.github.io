@@ -3,6 +3,26 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 45/112 [**<**]({{site.baseurl}}/miles/transcript/page44) [1]({{site.baseurl}}/miles/transcript/index) ... [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) **45** [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page46)
 
+[郭文贵2020年11月15日直播 20201115_4连线唐平，威廉王]({{site.baseurl}}/miles/transcript/2020/11/20201115-1093212)
+
+[郭文贵2020年11月14日直播 20201114_1]({{site.baseurl}}/miles/transcript/2020/11/20201114-1093157)
+
+[郭文贵2020年11月14日连线香草山 20201114_2纽约香草山农场DC挺川大游行]({{site.baseurl}}/miles/transcript/2020/11/20201114-1093166)
+
+[郭文贵2020年11月13日视频 20201113_1美國經濟、歐洲經濟、亞洲經濟一定下滑]({{site.baseurl}}/miles/transcript/2020/11/20201113-1090029)
+
+[郭文贵2020年11月11日直播 20201111_1]({{site.baseurl}}/miles/transcript/2020/11/20201111-1093145)
+
+[郭文贵2020年11月11日直播 20201111_3网页版试直播 - 第二部分]({{site.baseurl}}/miles/transcript/2020/11/20201111-1093148)
+
+[郭文贵2020年11月11日直播 20201111_2网页版试直播 - 第一部分]({{site.baseurl}}/miles/transcript/2020/11/20201111-1093156)
+
+[郭文贵2020年11月10日视频 20201110_3剛剛有個牛人急著想見我 現在我們新中國聯邦說甚麼人家都信了]({{site.baseurl}}/miles/transcript/2020/11/20201110-1090022)
+
+[郭文贵2020年11月10日视频 20201110_4以後加入農場的條件會越來越苛]({{site.baseurl}}/miles/transcript/2020/11/20201110-1090024)
+
+[郭文贵2020年11月10日视频 20201110_5有人過段時間要在這做個節目 現在先佈置佈置]({{site.baseurl}}/miles/transcript/2020/11/20201110-1090025)
+
 [郭文贵2020年11月10日盖特 20201110_1尊敬的战友们好，你们健身了吗？你们传播CCP病毒！香港危机真相了，一切都已经开始！]({{site.baseurl}}/miles/transcript/2020/11/20201110-1093139)
 
 [郭文贵2020年11月10日盖特 20201110_2很多战友发信息……问文贵，现在辉瑞公司药的防冠疫苗，是不是可靠？可信？可用？文贵在这里给大家一个回复！]({{site.baseurl}}/miles/transcript/2020/11/20201110-1093151)
@@ -32,26 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年10月13日直播 20201013文贵关于Gclub和GFashion上线前有关问题的声明直播]({{site.baseurl}}/miles/transcript/2020/10/20201013-1093154)
 
 [郭文贵2020年10月12日盖特 20201012_1爆料革命这碗洒……????????????敬天．敬地．敬战友！]({{site.baseurl}}/miles/transcript/2020/10/20201012-1093124)
-
-[郭文贵2020年10月12日盖特 20201012_2尊敬的战友们好，全球自发的惩贼．要真相．维护华人形象的现象．已经得到了很多正义的有识之士！和法律人士！的绝对的支持……我们]({{site.baseurl}}/miles/transcript/2020/10/20201012-1093129)
-
-[郭文贵2020年10月9日盖特 20201009尊敬的战友们好……任何事情，只要依法做事，没有任何人可以伤害我们——我们要绝对的相信美国的司法系统！在美国的法律面前绝对人人]({{site.baseurl}}/miles/transcript/2020/10/20201009-1093105)
-
-[郭文贵2020年10月8日盖特 20201008尊敬的战友们好……全球的战友的一致行动……和坚定地灭掉共产党和惩罚贼行动，正在得到全世界有良知的人认可和支持……维护海外的华人]({{site.baseurl}}/miles/transcript/2020/10/20201008-1093101)
-
-[郭文贵2020年10月7日盖特 20201007尊敬的战友们好……猜猜这是谁送给我的花？我太喜欢 了……]({{site.baseurl}}/miles/transcript/2020/10/20201007-1092956)
-
-[郭文贵2020年10月7日直播 20201007_2德州惩贼行动现场，黑警抓战友，傅希秋一定法庭见；文贵公布病毒检测结果，亲身验证羟氯喹是有效的]({{site.baseurl}}/miles/transcript/2020/10/20201007-1092974)
-
-[郭文贵2020年10月5日盖特 20201005_2为了揭发在美国和西方共产党的建立的间谍系统……和沉默的力量，让西方知到共产党的潜伏的真相。在德州和加拿大．纽约的战友们……]({{site.baseurl}}/miles/transcript/2020/10/20201005-1092955)
-
-[郭文贵2020年10月5日直播 20201005全球惩贼行动，为正义牺牲，要坚持到底；为被洗脑的同胞感到悲愤，CCP病毒毒害人心；美国准备好了行动]({{site.baseurl}}/miles/transcript/2020/10/20201005-1093064)
-
-[郭文贵2020年10月3日做客战斗室 20201003E419 文字整理]({{site.baseurl}}/miles/transcript/2020/10/20201003-1093018)
-
-[郭文贵2020年10月2日盖特 20201002文贵在此衷心地祝福川普总统夫妇和天下所有的的人们……都能安全的度过C C P中共的潘多拉之战]({{site.baseurl}}/miles/transcript/2020/10/20201002-1093022)
-
-[郭文贵2020年10月1日gtv连线香草山 20201001_2]({{site.baseurl}}/miles/transcript/2020/10/20201001-1089040)
 
 
 ## 頁面 45/112 [**<**]({{site.baseurl}}/miles/transcript/page44) [1]({{site.baseurl}}/miles/transcript/index) ... [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) **45** [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page46)

@@ -3,6 +3,26 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 108/112 [**<**]({{site.baseurl}}/miles/transcript/page107) [1]({{site.baseurl}}/miles/transcript/index) ... [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) **108** [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page109)
 
+[郭文贵2017年8月27日直播 20170827_1]({{site.baseurl}}/miles/transcript/2017/08/20170827-1093298)
+
+[郭文贵2017年8月27日视频 20170827_2黑客攻击郭文贵手机 军方的高科技]({{site.baseurl}}/miles/transcript/2017/08/20170827-1094056)
+
+[郭文贵2017年8月27日视频 20170827_3盗国贼们的疯狂与愚蠢 这样的黑客攻击方式是最好的证明文贵的爆料是真实]({{site.baseurl}}/miles/transcript/2017/08/20170827-1094059)
+
+[郭文贵2017年8月26日视频 20170826老兵通过新加坡发来视频 翻墙软件偷信息 美政府对海航的关注达到我们的目的]({{site.baseurl}}/miles/transcript/2017/08/20170826-1094053)
+
+[郭文贵2017年8月25日视频 20170825_270天的特别之旅]({{site.baseurl}}/miles/transcript/2017/08/20170825-1094052)
+
+[郭文贵2017年8月25日做客郭宝胜 20170825宗教与中国政治及社会关系]({{site.baseurl}}/miles/transcript/2017/08/20170825-1094829)
+
+[郭文贵2017年8月24日 20170824关于腾彪先生造谣文贵乱伦]({{site.baseurl}}/miles/transcript/2017/08/20170824-1094435)
+
+[郭文贵2017年8月23日视频 20170823]({{site.baseurl}}/miles/transcript/2017/08/20170823-1094040)
+
+[郭文贵2017年8月22日直播 20170822_2]({{site.baseurl}}/miles/transcript/2017/08/20170822-1093288)
+
+[郭文贵2017年8月22日第二次直播 20170822盗国贼组织上百特务来美，用‘蓝金黄’计划对付文贵及知名推友。很多人及家人会被威胁。]({{site.baseurl}}/miles/transcript/2017/08/20170822-1094823)
+
 [郭文贵2017年8月21日视频 20170821盗国贼害怕了，用假女助理推特、假音频攻击文贵。’’今后10天不爆料，估计是在等国内的回应，否则孟建柱政法系就是下一波被爆料的对象]({{site.baseurl}}/miles/transcript/2017/08/20170821-1094811)
 
 [郭文贵2017年8月20日直播 20170820_1推特四段小视频合集]({{site.baseurl}}/miles/transcript/2017/08/20170820-1093286)
@@ -32,26 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年8月9日第一次直播 20170809_1试试网络：一个台湾老朋友一个国内老领导与我通过电话后的感受]({{site.baseurl}}/miles/transcript/2017/08/20170809-1094424)
 
 [郭文贵2017年8月7日直播 20170807_2马英九是...]({{site.baseurl}}/miles/transcript/2017/08/20170807-1094022)
-
-[郭文贵2017年8月7日直播 20170807_1报平安直播---台湾香港的危与机．王岐山为什么要用三条杀规威胁范冰冰！]({{site.baseurl}}/miles/transcript/2017/08/20170807-1094405)
-
-[郭文贵2017年8月6日直播 20170806党内已怨声载道，北戴河会议群魔乱咬.]({{site.baseurl}}/miles/transcript/2017/08/20170806-1094023)
-
-[郭文贵2017年8月5日视频 20170805_2]({{site.baseurl}}/miles/transcript/2017/08/20170805-1094027)
-
-[郭文贵2017年8月5日视频 20170805_1文贵试试网：回答香港商界朋友的问题．与王岐山怎么威胁范冰冰闭嘴的！]({{site.baseurl}}/miles/transcript/2017/08/20170805-1094361)
-
-[郭文贵2017年8月4日 20170804关于香港警察调查郭文贵以自己的1600亿诈骗自己的360亿的案件 搞笑 搞笑]({{site.baseurl}}/miles/transcript/2017/08/20170804-1094355)
-
-[郭文贵2017年8月3日 20170803关于网上虚假录音和香港警察搜查文贵香港办公室]({{site.baseurl}}/miles/transcript/2017/08/20170803-1094335)
-
-[郭文贵2017年8月2日第三次直播 20170802_3报平安小视频及王岐山内部讲话谈强拆，中共恶政太可怕！最应该被强拆的是盗国集团啊]({{site.baseurl}}/miles/transcript/2017/08/20170802-1094030)
-
-[郭文贵2017年8月2日第二次直播 20170802_2试试网络：拜托推友别给我发黄色视频．下一集的爆料的大概的预报！(2)]({{site.baseurl}}/miles/transcript/2017/08/20170802-1094500)
-
-[郭文贵2017年8月2日第一次直播 20170802_1试试网络：拜托推友别给我发黄色视频．下一集的爆料的大概的预报！(1)]({{site.baseurl}}/miles/transcript/2017/08/20170802-1094682)
-
-[郭文贵2017年8月1日视频 20170801露点报平安,海上钓鱼,请君入瓮,后发制人]({{site.baseurl}}/miles/transcript/2017/08/20170801-1094032)
 
 
 ## 頁面 108/112 [**<**]({{site.baseurl}}/miles/transcript/page107) [1]({{site.baseurl}}/miles/transcript/index) ... [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) **108** [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page109)

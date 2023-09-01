@@ -3,6 +3,26 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 96/112 [**<**]({{site.baseurl}}/miles/transcript/page95) [1]({{site.baseurl}}/miles/transcript/index) ... [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) **96** [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page97)
 
+[郭文贵2018年7月22日视频第二部分 20180722_2关于中南海保镖爆料文贵的看法！证明了中南坑，以及他们的军队不堪一击！整个国家就是被一帮骗子绑架了的残酷事实！]({{site.baseurl}}/miles/transcript/2018/07/20180722-1092909)
+
+[郭文贵2018年7月22日视频第一部分 20180722_1王建被杀背后的其他细节！及为什么李红宽输掉了官司！]({{site.baseurl}}/miles/transcript/2018/07/20180722-1092980)
+
+[郭文贵2018年7月21日直播 20180721_1老领导又来电话了 王建夫人请保存好手机上的证据]({{site.baseurl}}/miles/transcript/2018/07/20180721-1088561)
+
+[郭文贵2018年7月21日直播 20180721_2王健的妻子,和王伟处境都很危险,吴征去法国见谁了]({{site.baseurl}}/miles/transcript/2018/07/20180721-1088571)
+
+[郭文贵2018年7月20日直播 20180720_1文贵携SN0W向所有的战友们问好，一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/07/20180720-1088547)
+
+[郭文贵2018年7月18日lns直播视频 20180718昨天直播在国内炸了锅，中大使馆威胁国际刑警不要插手，在采取外交行动，普托旺斯的居民都想和文贵合]({{site.baseurl}}/miles/transcript/2018/07/20180718-1092965)
+
+[郭文贵2018年7月17日路德访谈 20180717_4高清版 王健在法国普罗旺斯是怎么被王歧山杀死的！]({{site.baseurl}}/miles/transcript/2018/07/20180717-1088883)
+
+[郭文贵2018年7月17日路德访谈（一）20180717_1郭文贵先生全球直播（第一部分）]({{site.baseurl}}/miles/transcript/2018/07/20180717-1092927)
+
+[郭文贵2018年7月17日路德访谈（二）20180717_2郭文贵先生全球直播（第二部分）]({{site.baseurl}}/miles/transcript/2018/07/20180717-1092947)
+
+[郭文贵2018年7月17日路德访谈（三）20180717_3郭文贵先生全球直播（第三部分）]({{site.baseurl}}/miles/transcript/2018/07/20180717-1092957)
+
 [郭文贵2018年7月10日视频 20180710王岐山设计王健可能用诈死．被杀事件使海航重组．将盗国财富合法化！王岐山已经开始出大招了！]({{site.baseurl}}/miles/transcript/2018/07/20180710-1092917)
 
 [郭文贵2018年7月9日视频 20180709王健拍照死．孟的张明鹏院长被抓．709案件国际高度关注！代表着什么？]({{site.baseurl}}/miles/transcript/2018/07/20180709-1092902)
@@ -32,26 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年6月27日视频 20180627]({{site.baseurl}}/miles/transcript/2018/06/20180627-1094345)
 
 [郭文贵2018年6月25日 20180625房峰辉为什么问蒂斯这个？一个美国战亡士兵价值值中扺国一个连退休士命的命钱！]({{site.baseurl}}/miles/transcript/2018/06/20180625-1094330)
-
-[郭文贵2018年6月23日视频 20180623镇江老兵维权幕后有高人，郭宝胜与王進忠]({{site.baseurl}}/miles/transcript/2018/06/20180623-1087716)
-
-[郭文贵2018年6月21日视频 20180621世界大局正在向反盗国贼的趋势发展]({{site.baseurl}}/miles/transcript/2018/06/20180621-1087711)
-
-[郭文贵2018年6月17日 20180617父亲节谈与政法委老领导的通话！请草根警察不要伤害遭受不公平的草根司机！]({{site.baseurl}}/miles/transcript/2018/06/20180617-1094327)
-
-[郭文贵2018年6月16日直播 20180616_1万分感激网络侠客联盟．正义黑客小哥．大侠保罗先生的拨剑相助．给大家一个真相]({{site.baseurl}}/miles/transcript/2018/06/20180616-1088426)
-
-[郭文贵2018年6月15日直播 20180615_1谈只有中国正道主义可以救中国．只有与西方和平共处才能让中国长治久安！]({{site.baseurl}}/miles/transcript/2018/06/20180615-1088422)
-
-[郭文贵2018年6月13日直播 20180613_1郭战装与什么是习主席的政治轮轴效应！]({{site.baseurl}}/miles/transcript/2018/06/20180613-1088406)
-
-[郭文贵2018年6月11日直播 20180611_1陈峰脑血管病急救．感谢黑客先生．大陆官场热离婚．商场热移民美国！习主席进入官场轮轴灾难区！]({{site.baseurl}}/miles/transcript/2018/06/20180611-1088385)
-
-[郭文贵2018年6月10日直播 20180610_2文贵爆料第一階段启蒙期结束．正在准备第二階段．定点爆破！]({{site.baseurl}}/miles/transcript/2018/06/20180610-1088377)
-
-[郭文贵2018年6月10日 20180610玉岐山孟建柱命不久了！马航真相一定会公布！(一)]({{site.baseurl}}/miles/transcript/2018/06/20180610-1094313)
-
-[郭文贵2018年6月5日直播 20180605_1拉斯维加斯的会议出钱者．A级通缉犯成水炎的过去与现在！]({{site.baseurl}}/miles/transcript/2018/06/20180605-1088350)
 
 
 ## 頁面 96/112 [**<**]({{site.baseurl}}/miles/transcript/page95) [1]({{site.baseurl}}/miles/transcript/index) ... [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) **96** [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page97)

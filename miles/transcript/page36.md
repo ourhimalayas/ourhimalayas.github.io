@@ -3,6 +3,26 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 36/112 [**<**]({{site.baseurl}}/miles/transcript/page35) [1]({{site.baseurl}}/miles/transcript/index) ... [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) **36** [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page37)
 
+[郭文贵2021年3月5日盖特 20210305_5尊敬的战友们好，我们会马上直播！]({{site.baseurl}}/miles/transcript/2021/03/20210305-1089834)
+
+[郭文贵2021年3月5日盖特 20210305_1回答无数个战友．问七哥的一个问题，现在可不可以迅速地加入……做空港币．挣大钱]({{site.baseurl}}/miles/transcript/2021/03/20210305-1090834)
+
+[郭文贵2021年3月5日盖特 20210305_2我最爱的Gfahion竟然是洗后大大缩水．变成了童装????????????……太疯狂了]({{site.baseurl}}/miles/transcript/2021/03/20210305-1090836)
+
+[郭文贵2021年3月5日盖特 20210305_3很多战友发信息问我董建华栽倒在.两会现场……是因为他打了共产党的疫苗吗？为什么在这个关键的时刻变成了董栽倒。￼意味着什么？我在这里做简单的回答！]({{site.baseurl}}/miles/transcript/2021/03/20210305-1090839)
+
+[郭文贵2021年3月5日直播 20210305_4历史上的今天，中共与希特勒公然毁约的惊人相似，时间如此吻合，中共在两会公然废除一国两制，选举法，港币变废纸，威胁世界]({{site.baseurl}}/miles/transcript/2021/03/20210305-1090843)
+
+[郭文贵2021年3月4日盖特 20210304_1七哥和战友分享关于和GTV投资了椅子战友的沟通，被千次感动高潮后的感受]({{site.baseurl}}/miles/transcript/2021/03/20210304-1090824)
+
+[郭文贵2021年3月4日盖特 20210304_2尊敬的战友们好！G俱乐部的会员卡．从今天起．任何人都可以买多张卡的新政策开始实施]({{site.baseurl}}/miles/transcript/2021/03/20210304-1090826)
+
+[郭文贵2021年3月4日盖特 20210304_3下个会议之前，文贵和战友乱聊几句]({{site.baseurl}}/miles/transcript/2021/03/20210304-1090827)
+
+[郭文贵2021年3月3日直播 20210303_1中共与拜登政府给中兴的“回头汤”，中美沼泽地从中得利；Ｇ系列再次遇难成祥，让战友们真正成为江山的主人，最大的受益者，这就是爆料革命]({{site.baseurl}}/miles/transcript/2021/03/20210303-1090821)
+
+[郭文贵2021年3月3日盖特 20210303_2开会期间摘下口罩乱聊发视频……￼以毒灭共……以钱灭共，真是上天赐给我们的最伟大的机会和法宝……共产党，你完了]({{site.baseurl}}/miles/transcript/2021/03/20210303-1090822)
+
 [郭文贵2021年3月2日直播 20210302_1以毒灭共，势不可挡；GTV椅子战友请与各农场联系，新的GTV将更好的发挥灭共平台的作用；文贵为战友们而战！]({{site.baseurl}}/miles/transcript/2021/03/20210302-1090809)
 
 [郭文贵2021年3月2日盖特 20210302_2尊敬的战友们好，你们感受到以毒灭共．以钱灭共的巨大的力量了￼吗？你们感受到过去的24小时这个世界联合灭共的力量开始集结了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/03/20210302-1090814)
@@ -32,26 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年2月24日直播 20210224_1美国沼泽地只能与新中国联邦合作；中共20大保江山，指定习的接班人；虚拟货币获得美国支付牌照的重大意义]({{site.baseurl}}/miles/transcript/2021/02/20210224-1090751)
 
 [郭文贵2021年2月24日盖特 20210224_2国内的很多战友发的信息不能一一回信息——请大家原谅、以毒灭共．以钱灭共！正在全世界全面火热????开始……无人可以阻挡新中国联邦拯救中国人和世界人民的胜利✌️✌️✌️✌️✌️……]({{site.baseurl}}/miles/transcript/2021/02/20210224-1090753)
-
-[郭文贵2021年2月23日盖特 20210223_1回答很多战友．关于江泽民家族．大本营移居新加坡的真正的用心……和对爆料革命的影响…]({{site.baseurl}}/miles/transcript/2021/02/20210223-1090745)
-
-[郭文贵2021年2月23日盖特 20210223_2很多战友给我发来的有关信息没发一回复在这里自己衷心地抱歉，很多战友让我回答刚刚习近平的讲话……中国共产党的江山．属于人民的……是什么意思？]({{site.baseurl}}/miles/transcript/2021/02/20210223-1090748)
-
-[郭文贵2021年2月22日盖特 20210222_1尊敬的战友们好，你们健身了吗？你们传播C C P病毒．香港危机真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/02/20210222-1090739)
-
-[郭文贵2021年2月22日盖特 20210222_2第二次发盖特．在欧洲的．我们的战友们……已经和欧洲的军事部门开展了全面的合作，以毒灭共……进入新的时刻……]({{site.baseurl}}/miles/transcript/2021/02/20210222-1090740)
-
-[郭文贵2021年2月21日盖特 20210221_1尊敬的这么好．很多战友给我发的信息．无法一一回复．今天无法按照你们要求直播，因为今天太忙了……真的没有时间了……万分的抱歉……亲爱的兄弟姐妹们！]({{site.baseurl}}/miles/transcript/2021/02/20210221-1090732)
-
-[郭文贵2021年2月21日盖特 20210221_2很多战友发信息问七哥的腿疼痛好了……是用什么办法治好的……七哥录制一个视频．展示一下！大家在视频中，你们看到我的腿不是直的没有问题，腿，但只要你坚持住加强腿部的这个肌肉……]({{site.baseurl}}/miles/transcript/2021/02/20210221-1090733)
-
-[郭文贵2021年2月21日盖特 20210221_3乖乖呀…]({{site.baseurl}}/miles/transcript/2021/02/20210221-1090735)
-
-[郭文贵2021年2月20日直播 20210220_1文贵对原凤凰农场和VOG受骗战友的处理方案！战友的利益．高于一切！]({{site.baseurl}}/miles/transcript/2021/02/20210220-1090729)
-
-[郭文贵2021年2月19日直播 20210219_1]({{site.baseurl}}/miles/transcript/2021/02/20210219-1090724)
-
-[郭文贵2021年2月19日直播 20210219_2]({{site.baseurl}}/miles/transcript/2021/02/20210219-1090728)
 
 
 ## 頁面 36/112 [**<**]({{site.baseurl}}/miles/transcript/page35) [1]({{site.baseurl}}/miles/transcript/index) ... [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) **36** [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page37)

@@ -3,6 +3,26 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 60/112 [**<**]({{site.baseurl}}/miles/transcript/page59) [1]({{site.baseurl}}/miles/transcript/index) ... [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) **60** [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page61)
 
+[郭文贵2020年3月5日视频 20200305_1与战友们分享文贵一天战役后韵晚餐……一切已经开始]({{site.baseurl}}/miles/transcript/2020/03/20200305-1089765)
+
+[郭文贵2020年3月4日全世界反击CCP 20200304等着看吧，全世界反击CCP！一切已经开始！]({{site.baseurl}}/miles/transcript/2020/03/20200304-1091891)
+
+[郭文贵2020年3月3日车上直播 20200303谈17件大事正在发生中]({{site.baseurl}}/miles/transcript/2020/03/20200303-1091879)
+
+[郭文贵2020年2月29日 20200229共产党正在开始集体自焚，常委至少3人要死，即将修改郭七条]({{site.baseurl}}/miles/transcript/2020/02/20200229-1091872)
+
+[郭文贵2020年2月28日视频 20200228_1郭文贵先生加入班农先生战斗室EP…28中英字幕完整版]({{site.baseurl}}/miles/transcript/2020/02/20200228-1089774)
+
+[郭文贵2020年2月27日 20200227王岐山今天站着出来握手，29号看中南坑究竟谁染上了]({{site.baseurl}}/miles/transcript/2020/02/20200227-1091847)
+
+[郭文贵2020年2月24日视频 20200224祝福我们能够早日实现喜马拉雅新中国,2020霹雳年”中国共产党必灭！一首MV送给大家????????????“上海滩”]({{site.baseurl}}/miles/transcript/2020/02/20200224-1089021)
+
+[郭文贵2020年2月22日视频 20200222_2文贵再次呼吁法治基金法制社会所有的爆料革命的真战友们可以向我们申请口罩，一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2020/02/20200222-1089767)
+
+[郭文贵2020年2月22日 20200222谈CCP要与世界玉石俱焚，法治基金发口罩准备解药救人]({{site.baseurl}}/miles/transcript/2020/02/20200222-1091844)
+
+[郭文贵2020年2月21日直播 20200221_3]({{site.baseurl}}/miles/transcript/2020/02/20200221-1088901)
+
 [郭文贵2020年2月21日第二次直播 20200221_2北京人民医院感染众多！疫情大爆发还没真正开始]({{site.baseurl}}/miles/transcript/2020/02/20200221-1091826)
 
 [郭文贵2020年2月21日第一次直播 20200221_1参加班农战斗室访谈]({{site.baseurl}}/miles/transcript/2020/02/20200221-1091858)
@@ -32,26 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年2月6日视频 20200206_2文贵接受班农先生War Room 访问]({{site.baseurl}}/miles/transcript/2020/02/20200206-1088896)
 
 [郭文贵2020年2月6日视频 20200206接受班农先生战斗室访谈 谈武]({{site.baseurl}}/miles/transcript/2020/02/20200206-1091713)
-
-[郭文贵2020年2月5日视频 20200205_1我们法治基金已经准备好了一亿个口罩！请问中共我们该如何送到我们血缘的同胞手里？寄诸囗罩．善至血缘！]({{site.baseurl}}/miles/transcript/2020/02/20200205-1089764)
-
-[郭文贵2020年2月3日直播 20200203_2谈共产党官方一直掩盖武汉真相第二部分]({{site.baseurl}}/miles/transcript/2020/02/20200203-1088889)
-
-[郭文贵2020年2月3日直播 20200203_1谈共产党官方一直掩盖武汉真相第一部分]({{site.baseurl}}/miles/transcript/2020/02/20200203-1088892)
-
-[郭文贵2020年2月3日直播 20200203_3谈共产党官方一直掩盖武汉真相第三部分]({{site.baseurl}}/miles/transcript/2020/02/20200203-1091704)
-
-[郭文贵2020年2月1日第一次直播 20200201_1无能共产党救灾不利，又拒绝国际救援，百姓何去何从，一起找书记]({{site.baseurl}}/miles/transcript/2020/02/20200201-1091807)
-
-[郭文贵2020年2月1日第二次直播 20200201_2在马阿拉哥总统套房第二次直播西方社会将对中共在西方的沉默力量采取最严厉的打击措施]({{site.baseurl}}/miles/transcript/2020/02/20200201-1091830)
-
-[郭文贵2020年2月1日第三次直播 20200201_3第三次直播分享参加川普总统晚宴有感]({{site.baseurl}}/miles/transcript/2020/02/20200201-1091839)
-
-[郭文贵2020年1月31日 20200131导致疫情扩大的真正原因是共]({{site.baseurl}}/miles/transcript/2020/01/20200131-1091780)
-
-[郭文贵2020年1月30日视频 20200130_2文貴在教堂為中國人祈福]({{site.baseurl}}/miles/transcript/2020/01/20200130-1089759)
-
-[郭文贵2020年1月30日视频 20200130_3沿着三年前习川会的小路走一走！【有1000个理由要搞好中美关系没有一个理由给搞坏中美关系。】]({{site.baseurl}}/miles/transcript/2020/01/20200130-1089762)
 
 
 ## 頁面 60/112 [**<**]({{site.baseurl}}/miles/transcript/page59) [1]({{site.baseurl}}/miles/transcript/index) ... [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) **60** [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page61)

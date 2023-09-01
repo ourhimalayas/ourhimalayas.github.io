@@ -3,6 +3,26 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 85/112 [**<**]({{site.baseurl}}/miles/transcript/page84) [1]({{site.baseurl}}/miles/transcript/index) ... [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) **85** [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page86)
 
+[郭文贵2019年2月21日视频 20190221尊敬的战友们好，你们健身了吗？再次谈法治基金捐款到底捐给了谁！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/02/20190221-1092858)
+
+[郭文贵2019年2月20日视频 20190220_1文贵接受郭宝胜律师庭外问询视频1]({{site.baseurl}}/miles/transcript/2019/02/20190220-1089132)
+
+[郭文贵2019年2月20日视频 20190220_2文贵接受郭宝胜律师庭外问询视频2]({{site.baseurl}}/miles/transcript/2019/02/20190220-1089145)
+
+[郭文贵2019年2月19日 20190219郭宝胜的护照袁健斌的绿卡]({{site.baseurl}}/miles/transcript/2019/02/20190219-1092852)
+
+[郭文贵2019年2月17日 20190217文贵再谈法治基金的目的和中美之间即将发生的大事。]({{site.baseurl}}/miles/transcript/2019/02/20190217-1092807)
+
+[郭文贵2019年2月16日直播 20190216文贵和班农先生关于法治基金和法治公会基金的解读]({{site.baseurl}}/miles/transcript/2019/02/20190216-1092778)
+
+[郭文贵2019年2月7日视频 20190207_2感谢所有关心snow 的战友们！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/02/20190207-1089108)
+
+[郭文贵2019年2月7日视频 20190207_3Snow 在咬王妓山．孟建柱．孙力军的蛋蛋！]({{site.baseurl}}/miles/transcript/2019/02/20190207-1089110)
+
+[郭文贵2019年2月7日 20190207文贵、班农、凯琳 回答战友们对春晚爆料的问题]({{site.baseurl}}/miles/transcript/2019/02/20190207-1092740)
+
+[郭文贵2019年2月6日 20190206文贵、班农、凯琳 回答战友们对春晚爆料的问题]({{site.baseurl}}/miles/transcript/2019/02/20190206-1092699)
+
 [郭文贵2019年2月5日视频 20190205_1文贵先生、SARA、路德给大家拜年直播]({{site.baseurl}}/miles/transcript/2019/02/20190205-1089104)
 
 [郭文贵2019年2月4日视频 20190204_3赶饺子????皮！感恩美国感恩战友！感恩上天！]({{site.baseurl}}/miles/transcript/2019/02/20190204-1089086)
@@ -32,26 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年1月28日视频 20190128_1身了吗？你们往身上浇水了吗？一切都是刚刚开始。]({{site.baseurl}}/miles/transcript/2019/01/20190128-1089049)
 
 [郭文贵2019年1月27日视频 20190127王岐山在达沃斯的讲话已经开始了世界的反习运动！]({{site.baseurl}}/miles/transcript/2019/01/20190127-1092365)
-
-[郭文贵2019年1月25日视频 20190125罗杰斯通感恩郭先生接受道歉]({{site.baseurl}}/miles/transcript/2019/01/20190125-1092356)
-
-[郭文贵2019年1月24日视频 20190124委内瑞拉的民主反独裁的运动对中国人民的意义与影响重大]({{site.baseurl}}/miles/transcript/2019/01/20190124-1092339)
-
-[郭文贵2019年1月23日视频 20190123华盛顿上空弥漫这共同的目标：灭共]({{site.baseurl}}/miles/transcript/2019/01/20190123-1092324)
-
-[郭文贵2019年1月22日视频 20190122_1文贵在战斗途中！正在完成战友希望我完成的任务中！一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/01/20190122-1089046)
-
-[郭文贵2019年1月21日视频 20190121共产党号召学习王阳明的心学是对圣人的巨大侮辱]({{site.baseurl}}/miles/transcript/2019/01/20190121-1092314)
-
-[郭文贵2019年1月20日视频 20190120_2二分钟短直播，点名战友]({{site.baseurl}}/miles/transcript/2019/01/20190120-1088628)
-
-[郭文贵2019年1月20日视频 20190120王岐山，孟建柱．是如何执行南普陀计划！美国人是如何看待……对待！中国新的发誓我这一系列的奇怪的事情！]({{site.baseurl}}/miles/transcript/2019/01/20190120-1092296)
-
-[郭文贵2019年1月19日视频 20190119文贵报平安视频，中共以假治国、以黑治国到了终结的时候，政事小哥事件在国内影响巨大，这是一个让美国人都恐惧的标志性事件。]({{site.baseurl}}/miles/transcript/2019/01/20190119-1092269)
-
-[郭文贵2019年1月18日第二次直播 20190118_2关于政事小哥！因为受共产党对家人的迫害威胁，不得不离开过爆料革命！这更加坚定了摧毁流氓CCp的决心！以实际行动为战友报仇！一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/01/20190118-1092248)
-
-[郭文贵2019年1月18日第一次直播 20190118_1告诉大家赚几千亿美元的秘诀]({{site.baseurl}}/miles/transcript/2019/01/20190118-1092260)
 
 
 ## 頁面 85/112 [**<**]({{site.baseurl}}/miles/transcript/page84) [1]({{site.baseurl}}/miles/transcript/index) ... [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) **85** [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page86)

@@ -3,6 +3,26 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 95/112 [**<**]({{site.baseurl}}/miles/transcript/page94) [1]({{site.baseurl}}/miles/transcript/index) ... [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) **95** [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page96)
 
+[郭文贵2018年8月13日第二次直播 20180813_2西方国家正在形成正义联盟共同反击中共的纳谇主义扩张！]({{site.baseurl}}/miles/transcript/2018/08/20180813-1092998)
+
+[郭文贵2018年8月13日第一次直播 20180813_1大连政法委书记于德泉．检察长吴喆！在几个小时前在京哈高速上．将盘古公司副总经理贾鑫及妻子两个孩子绑架至大连！]({{site.baseurl}}/miles/transcript/2018/08/20180813-1093003)
+
+[郭文贵2018年8月12日视频 20180812_2在Riek Owes取今年秋季服装（合成版）]({{site.baseurl}}/miles/transcript/2018/08/20180812-1087749)
+
+[郭文贵2018年8月12日 20180812王建被杀刑事案件正在进行中！新闻发布会，在两三周内举行，感谢战友昨天在曼哈顿的热情支持！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/08/20180812-1094232)
+
+[郭文贵2018年8月11日直播 20180811_1在与川普总统同一家定制西装店直播]({{site.baseurl}}/miles/transcript/2018/08/20180811-1088658)
+
+[郭文贵2018年8月10日直播 20180810_1尊敬的战友们你们健身了吗！今天我将与刑事律师团开会．关于王健被杀的案件！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/08/20180810-1088655)
+
+[郭文贵2018年8月9日直播 20180809_2]({{site.baseurl}}/miles/transcript/2018/08/20180809-1088651)
+
+[郭文贵2018年8月9日视频 20180809海航集团纽约大楼被白宫查封只是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/08/20180809-1092989)
+
+[郭文贵2018年8月8日直播 20180808_1想念战友]({{site.baseurl}}/miles/transcript/2018/08/20180808-1088618)
+
+[郭文贵2018年8月8日直播 20180808_2与国内来的女朋友海边兜风️️️]({{site.baseurl}}/miles/transcript/2018/08/20180808-1088621)
+
 [郭文贵2018年8月8日直播 20180808_3感恩珍惜推特这个平台]({{site.baseurl}}/miles/transcript/2018/08/20180808-1088626)
 
 [郭文贵2018年8月8日直播 20180808_4盗国贼为了掩盖杀王建的罪恶接下来将有以下的行动]({{site.baseurl}}/miles/transcript/2018/08/20180808-1088630)
@@ -32,26 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年7月30日视频 20180730拍纽约雨景，从阳台上看到邓文迪的家]({{site.baseurl}}/miles/transcript/2018/07/20180730-1087731)
 
 [郭文贵2018年7月28日直播 20180728_1应战友们的要求看snow！我录一段视频给尊敬的战友们！请允许我代表sonw向大家表示衷心感谢！]({{site.baseurl}}/miles/transcript/2018/07/20180728-1088575)
-
-[郭文贵2018年7月22日视频第二部分 20180722_2关于中南海保镖爆料文贵的看法！证明了中南坑，以及他们的军队不堪一击！整个国家就是被一帮骗子绑架了的残酷事实！]({{site.baseurl}}/miles/transcript/2018/07/20180722-1092909)
-
-[郭文贵2018年7月22日视频第一部分 20180722_1王建被杀背后的其他细节！及为什么李红宽输掉了官司！]({{site.baseurl}}/miles/transcript/2018/07/20180722-1092980)
-
-[郭文贵2018年7月21日直播 20180721_1老领导又来电话了 王建夫人请保存好手机上的证据]({{site.baseurl}}/miles/transcript/2018/07/20180721-1088561)
-
-[郭文贵2018年7月21日直播 20180721_2王健的妻子,和王伟处境都很危险,吴征去法国见谁了]({{site.baseurl}}/miles/transcript/2018/07/20180721-1088571)
-
-[郭文贵2018年7月20日直播 20180720_1文贵携SN0W向所有的战友们问好，一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/07/20180720-1088547)
-
-[郭文贵2018年7月18日lns直播视频 20180718昨天直播在国内炸了锅，中大使馆威胁国际刑警不要插手，在采取外交行动，普托旺斯的居民都想和文贵合]({{site.baseurl}}/miles/transcript/2018/07/20180718-1092965)
-
-[郭文贵2018年7月17日路德访谈 20180717_4高清版 王健在法国普罗旺斯是怎么被王歧山杀死的！]({{site.baseurl}}/miles/transcript/2018/07/20180717-1088883)
-
-[郭文贵2018年7月17日路德访谈（一）20180717_1郭文贵先生全球直播（第一部分）]({{site.baseurl}}/miles/transcript/2018/07/20180717-1092927)
-
-[郭文贵2018年7月17日路德访谈（二）20180717_2郭文贵先生全球直播（第二部分）]({{site.baseurl}}/miles/transcript/2018/07/20180717-1092947)
-
-[郭文贵2018年7月17日路德访谈（三）20180717_3郭文贵先生全球直播（第三部分）]({{site.baseurl}}/miles/transcript/2018/07/20180717-1092957)
 
 
 ## 頁面 95/112 [**<**]({{site.baseurl}}/miles/transcript/page94) [1]({{site.baseurl}}/miles/transcript/index) ... [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) **95** [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page96)

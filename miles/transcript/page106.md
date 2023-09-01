@@ -3,6 +3,26 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 106/112 [**<**]({{site.baseurl}}/miles/transcript/page105) [1]({{site.baseurl}}/miles/transcript/index) ... [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) **106** [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [112]({{site.baseurl}}/miles/transcript/page112) ... [**>**]({{site.baseurl}}/miles/transcript/page107)
 
+[郭文贵2017年10月10日视频 20171010博讯造谣胡锦涛温家宝被抓，美国检查官调查吴征经济政治诈骗资料]({{site.baseurl}}/miles/transcript/2017/10/20171010-1098255)
+
+[郭文贵2017年10月8日 20171008吴征杨澜将引爆中美巨大政治丑闻]({{site.baseurl}}/miles/transcript/2017/10/20171008-1094619)
+
+[郭文贵2017年10月7日视频 20171007Snow上镜了]({{site.baseurl}}/miles/transcript/2017/10/20171007-1094128)
+
+[郭文贵2017年10月5日 20171005 郭文贵10月5日全球新聞發布會第02次华盛顿记者会剪輯後英語版官方版]({{site.baseurl}}/miles/transcript/2017/10/20171005-1094614)
+
+[郭文贵2017年10月4日视频 20171004_2在华盛顿报平安]({{site.baseurl}}/miles/transcript/2017/10/20171004-1094123)
+
+[郭文贵2017年10月4日 20171004在哈德森演讲延期事件后直播,谁将哈德逊蓝金黄的？]({{site.baseurl}}/miles/transcript/2017/10/20171004-1094606)
+
+[郭文贵2017年10月2日视频 20171002为拉斯维加斯悲剧受害者祈福]({{site.baseurl}}/miles/transcript/2017/10/20171002-1094120)
+
+[郭文贵2017年10月1日视频 20171001明天请挺郭人士上船]({{site.baseurl}}/miles/transcript/2017/10/20171001-1094118)
+
+[郭文贵2017年9月30日视频 20170930中国驻美大使馆给哈德逊打电话阻止郭的演讲]({{site.baseurl}}/miles/transcript/2017/09/20170930-1094116)
+
+[郭文贵2017年9月29日视频 20170929北京老领导说信息梗阻 吴征杨澜来纽约了]({{site.baseurl}}/miles/transcript/2017/09/20170929-1094113)
+
 [郭文贵2017年9月28日视频 20170928国内封网，放出曲龙，游虎给虎看！]({{site.baseurl}}/miles/transcript/2017/09/20170928-1094112)
 
 [郭文贵2017年9月27日视频 20170927不要开会，不要搞募捐，要行动！]({{site.baseurl}}/miles/transcript/2017/09/20170927-1094109)
@@ -32,26 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年9月14日视频 20170914将在48小时内爆政法王的情人之一]({{site.baseurl}}/miles/transcript/2017/09/20170914-1094091)
 
 [郭文贵2017年9月13日视频 20170913_2一小时后爆盗国贼们的生殖器治国首篇]({{site.baseurl}}/miles/transcript/2017/09/20170913-1094089)
-
-[郭文贵2017年9月13日视频 20170913姚依林王岐山孟建柱孙力军傅政华的生殖器治国首篇！姚依林与姚明瑞．刘呈杰．刘新扬的乱伦！刘呈杰的法人爹是谁？]({{site.baseurl}}/miles/transcript/2017/09/20170913-1094498)
-
-[郭文贵2017年9月12日视频 20170912大家不要上了盗国贼们生殖器大战的当]({{site.baseurl}}/miles/transcript/2017/09/20170912-1094087)
-
-[郭文贵2017年9月11日视频 20170911全力以赴准备19大我们的影子会议]({{site.baseurl}}/miles/transcript/2017/09/20170911-1094086)
-
-[郭文贵2017年9月10日视频 20170910_2马云你还记得这个东西么?180次飞行记录，200万买的录像证明一切。]({{site.baseurl}}/miles/transcript/2017/09/20170910-1087859)
-
-[郭文贵2017年9月10日视频 20170910江绵恒．王岐山．孟建柱．傅政华．孙力军．马云！及我与刘彦平先生的对话]({{site.baseurl}}/miles/transcript/2017/09/20170910-1094497)
-
-[郭文贵2017年9月9日视频 20170909_2分享此时此刻 为今天的直播技术失误道歉]({{site.baseurl}}/miles/transcript/2017/09/20170909-1094074)
-
-[郭文贵2017年9月9日视频 20170909_3船上直播 他们把死人都给搬出来了！]({{site.baseurl}}/miles/transcript/2017/09/20170909-1094076)
-
-[郭文贵2017年9月9日视频 20170909_4补偿今天直播技术的失败 分享游艇内部]({{site.baseurl}}/miles/transcript/2017/09/20170909-1094079)
-
-[郭文贵2017年9月9日视频 20170909_5在船上]({{site.baseurl}}/miles/transcript/2017/09/20170909-1094084)
-
-[郭文贵2017年9月9日 20170909说说姚依林与马云，孟建柱，孙立军]({{site.baseurl}}/miles/transcript/2017/09/20170909-1094477)
 
 
 ## 頁面 106/112 [**<**]({{site.baseurl}}/miles/transcript/page105) [1]({{site.baseurl}}/miles/transcript/index) ... [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) **106** [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [112]({{site.baseurl}}/miles/transcript/page112) ... [**>**]({{site.baseurl}}/miles/transcript/page107)

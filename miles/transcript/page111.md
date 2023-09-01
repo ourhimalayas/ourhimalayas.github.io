@@ -3,6 +3,26 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 111/112 [**<**]({{site.baseurl}}/miles/transcript/page110) [1]({{site.baseurl}}/miles/transcript/index) ... [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) **111** [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page112)
 
+[郭文贵2017年5月25日 20170525回应胡舒立报道 托尼 布萊尔]({{site.baseurl}}/miles/transcript/2017/05/20170525-1094338)
+
+[郭文贵2017年5月24日 20170524呼吁推友不要冲动]({{site.baseurl}}/miles/transcript/2017/05/20170524-1094328)
+
+[郭文贵2017年5月23日视频 20170523]({{site.baseurl}}/miles/transcript/2017/05/20170523-1094314)
+
+[郭文贵2017年5月22日直播 20170522_2手机直播回应潘石屹视频]({{site.baseurl}}/miles/transcript/2017/05/20170522-1094276)
+
+[郭文贵2017年5月22日直播 20170522_1回覆潘石屹]({{site.baseurl}}/miles/transcript/2017/05/20170522-1094311)
+
+[郭文贵2017年5月21日第二次直播 20170521_2]({{site.baseurl}}/miles/transcript/2017/05/20170521-1094290)
+
+[郭文贵2017年5月21日第三次直播 20170521_3]({{site.baseurl}}/miles/transcript/2017/05/20170521-1094306)
+
+[郭文贵2017年5月21日第一次直播 20170521_1]({{site.baseurl}}/miles/transcript/2017/05/20170521-1094508)
+
+[郭文贵2017年5月20日第一次直播 20170520在香港是否存在执法黑屋]({{site.baseurl}}/miles/transcript/2017/05/20170520-1094273)
+
+[郭文贵2017年5月19日 20170519感恩推友关心 呼吁推友冷静]({{site.baseurl}}/miles/transcript/2017/05/20170519-1094271)
+
 [郭文贵2017年5月18日第一次直播 20170518_1郭文贵的紧急联络人]({{site.baseurl}}/miles/transcript/2017/05/20170518-1094256)
 
 [郭文贵2017年5月18日第二次直播 20170518_2意外状况下的沟通方式]({{site.baseurl}}/miles/transcript/2017/05/20170518-1094437)
@@ -32,26 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年5月7日 20170507_2向大家报平安的小视频 2]({{site.baseurl}}/miles/transcript/2017/05/20170507-1094293)
 
 [郭文贵2017年5月6日视频 20170506]({{site.baseurl}}/miles/transcript/2017/05/20170506-1094286)
-
-[郭文贵2017年5月5日视频 20170505]({{site.baseurl}}/miles/transcript/2017/05/20170505-1094275)
-
-[郭文贵2017年5月4日视频 20170504_1]({{site.baseurl}}/miles/transcript/2017/05/20170504-1094261)
-
-[郭文贵2017年5月4日视频 20170504_2秦伟平专访郭文贵（弹幕版）]({{site.baseurl}}/miles/transcript/2017/05/20170504-1094281)
-
-[郭文贵2017年5月3日第二次直播 20170503_2小狗狗生日礼物]({{site.baseurl}}/miles/transcript/2017/05/20170503-1094236)
-
-[郭文贵2017年5月3日视频 20170503_1]({{site.baseurl}}/miles/transcript/2017/05/20170503-1094245)
-
-[郭文贵2017年5月2日与刘彦平的通话 20170502这是文贵首次挂出，我与刘彦平先生在2017年5月1日至2日斗沟通．有关来美国的过程！这些视频将成为西方看中国．看文贵的最好的事实样版！]({{site.baseurl}}/miles/transcript/2017/05/20170502-1092766)
-
-[郭文贵2017年5月2日视频 20170502_2推友過15.2萬]({{site.baseurl}}/miles/transcript/2017/05/20170502-1094044)
-
-[郭文贵2017年5月1日与刘彦平的通话一 20170501_1]({{site.baseurl}}/miles/transcript/2017/05/20170501-1094451)
-
-[郭文贵2017年5月1日与刘彦平的通话二 20170501_2想了解南普陀会议吗？想了解江家将到底有什么样的影响力吗？想了解真正令计划犯等如何在中南海．人民大会堂．主席专机上搞女人吗？想知道薄熙来他们怎么杀人吗？想知道文贵前几天爆料的]({{site.baseurl}}/miles/transcript/2017/05/20170501-1094456)
-
-[郭文贵2017年5月1日与刘彦平的通话三 20170501_3郭文贵与安全部纪委书记刘彦平的通话三]({{site.baseurl}}/miles/transcript/2017/05/20170501-1094541)
 
 
 ## 頁面 111/112 [**<**]({{site.baseurl}}/miles/transcript/page110) [1]({{site.baseurl}}/miles/transcript/index) ... [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) **111** [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page112)

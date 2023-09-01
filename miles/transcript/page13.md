@@ -3,6 +3,26 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 13/112 [**<**]({{site.baseurl}}/miles/transcript/page12) [1]({{site.baseurl}}/miles/transcript/index) ... [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) **13** [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page14)
 
+[郭文贵2022年1月1日直播 20220101_1文贵大直播 元旦特别节目 正道至善 除恶建邦]({{site.baseurl}}/miles/transcript/2022/01/20220101-1094270)
+
+[郭文贵2021年12月31日直播 20211231_1《我是音雄》第二季总决赛暨跨年颁奖典礼]({{site.baseurl}}/miles/transcript/2021/12/20211231-1094004)
+
+[郭文贵2021年12月31日盖特 20211231_2尊敬的战友们好又蒸馍馍……卷子啦，吃饭饭啦……]({{site.baseurl}}/miles/transcript/2021/12/20211231-1094272)
+
+[郭文贵2021年12月30日盖特直播 20211230_1共产党的内部斗争已经成为共产党政治生活的主题。]({{site.baseurl}}/miles/transcript/2021/12/20211230-1093995)
+
+[郭文贵2021年12月30日盖特 20211230_2应战友的要求马上发一下snow的视频，有战友梦见SNOW 了]({{site.baseurl}}/miles/transcript/2021/12/20211230-1093997)
+
+[郭文贵2021年12月30日盖特 20211230_3非常幸福的，继续为战友们签七哥的海报，这种感觉太好了……]({{site.baseurl}}/miles/transcript/2021/12/20211230-1094000)
+
+[郭文贵2021年12月29日直播 20211229_1北京冬奥会中美较量；国内经济惨状；虚拟货币市场变化；美国新法案中共噩梦]({{site.baseurl}}/miles/transcript/2021/12/20211229-1093993)
+
+[郭文贵2021年12月28日盖特 20211228_2尊敬的戰友們好⋯⋯共产党的洗脑和即将到来的经济大崩潰⋯⋯將害死太多无辜的同胞⋯⋯这是让我们非常非常的心痛很无力的地方，我们将竭尽全力拯救更多的同胞⋯⋯一切都已经开始。]({{site.baseurl}}/miles/transcript/2021/12/20211228-1093909)
+
+[郭文贵2021年12月28日盖特 20211228_3吃饭饭喽……荷叶蒸老鸡]({{site.baseurl}}/miles/transcript/2021/12/20211228-1093911)
+
+[郭文贵2021年12月28日视频 20211228_1彻底揭露HBO Vice险恶的攻击——HBO Vice 采访郭文贵先生全过程无剪辑录像]({{site.baseurl}}/miles/transcript/2021/12/20211228-1094710)
+
 [郭文贵2021年12月27日盖特 20211227_1尊敬的战友们好！共产党内部的政治斗争和经济的即将崩溃，已经成了美国和欧洲利用的工具． 他们越来越相信消灭共产党的最好方式……正在发生中，没有人能改变共产党正在加速走向灭亡……]({{site.baseurl}}/miles/transcript/2021/12/20211227-1093899)
 
 [郭文贵2021年12月27日盖特 20211227_2吃馍馍喽…]({{site.baseurl}}/miles/transcript/2021/12/20211227-1093901)
@@ -32,26 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年12月23日盖特 20211223_1尊敬的战友们好！共产党内部清理官二代·富二代．的时代已经全面开始。北京的冬奥会面临着全球的挑战……即将成为灾难性的笑话……昨天播放the HBO的流氓采访……引起的世界各大媒体的重视]({{site.baseurl}}/miles/transcript/2021/12/20211223-1093881)
 
 [郭文贵2021年12月22日直播 20211222_1iTunes全球打榜记录- Hcoin To The Moon；中美之间会取消关税，Vice的报导在冬奥会之前帮助中共做的一场政治宣传，中国老百姓将付出巨大代价；莘县古城鸳鸯饼和河南胡辣汤；疫苗灾难的最新数据；彭]({{site.baseurl}}/miles/transcript/2021/12/20211222-1094211)
-
-[郭文贵2021年12月22日视频 20211222_2关于郭文贵先生接受HBO Vice采访的背后真相]({{site.baseurl}}/miles/transcript/2021/12/20211222-1094294)
-
-[郭文贵2021年12月20日盖特 20211220_1尊敬的战友们好，你们健身了吗？传播C C P的病毒和疫苗解药的真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/12/20211220-1093871)
-
-[郭文贵2021年12月20日盖特 20211220_2尊敬的战友们好．冬奥会的政治游戏唯一的受伤害的就10亿中国人民……所有的中国人将为这个完全没有任何价值的政治国际上的愚蠢的秀……付出几千亿美元的代价可悲，可怜．可恨至极……这是]({{site.baseurl}}/miles/transcript/2021/12/20211220-1093878)
-
-[郭文贵2021年12月19日直播 20211219_1超发货币导致的通胀、通缩对世界经济与格局的影响；中共房地产持续暴雷破产；病毒疫苗虚假经济；强办奥运后果严重；欧美惩罚中共难逃；疫苗灾难大事将至]({{site.baseurl}}/miles/transcript/2021/12/20211219-1093990)
-
-[郭文贵2021年12月19日直播 20211219_2超发货币导致的通胀、通缩对世界经济与格局的影响；中共房地产持续暴雷破产；病毒疫苗虚假经济；强办奥运后果严重；欧美惩罚中共难逃；疫苗灾难大事将至]({{site.baseurl}}/miles/transcript/2021/12/20211219-1094073)
-
-[郭文贵2021年12月18日盖特 20211218_1尊敬的战友们好，你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/12/20211218-1093864)
-
-[郭文贵2021年12月18日盖特 20211218_2共产党的经济的全面的即将崩溃……和到处抢劫财富的导致的社会动乱……和大量的抓朴公检法．金融部门官员！现在又要求在半年内让中国的医院和医疗企业部门上交1．5万亿支持所谓的国家战略]({{site.baseurl}}/miles/transcript/2021/12/20211218-1093867)
-
-[郭文贵2021年12月17日直播 20211217_1国内经济危机与冬奥会；方正证券接管郑州裕达；彭副主席上位意图何在；各数字货币下滑与喜币]({{site.baseurl}}/miles/transcript/2021/12/20211217-1093933)
-
-[郭文贵2021年12月16日盖特 20211216_1非常非常的抱歉，亲爱的战友们……刚才视频没有发出去，我再发一遍！]({{site.baseurl}}/miles/transcript/2021/12/20211216-1093859)
-
-[郭文贵2021年12月15日直播 20211215_1Billboard和iTunes全球打榜记录- Hcoin To The Moon；欧美制裁 奥运人权经济；疫苗灾难 危害验证抗议 ；国内经济 地产负债脱钩；终共行动 中共是否报复]({{site.baseurl}}/miles/transcript/2021/12/20211215-1093817)
 
 
 ## 頁面 13/112 [**<**]({{site.baseurl}}/miles/transcript/page12) [1]({{site.baseurl}}/miles/transcript/index) ... [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) **13** [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page14)

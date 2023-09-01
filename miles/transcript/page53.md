@@ -3,6 +3,26 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 53/112 [**<**]({{site.baseurl}}/miles/transcript/page52) [1]({{site.baseurl}}/miles/transcript/index) ... [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) **53** [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page54)
 
+[郭文贵2020年6月24日视频 20200624_1文贵与战友们分享今天媳妇做的大锅菜]({{site.baseurl}}/miles/transcript/2020/06/20200624-1089886)
+
+[郭文贵2020年6月21日视频 20200621_1祝天下所有的父亲父亲节快乐文贵在父亲节与战友分享为所有的身边的工作人员和家人蒸玉米面馒头和山东大卷子和花卷素菜包子的时刻]({{site.baseurl}}/miles/transcript/2020/06/20200621-1089878)
+
+[郭文贵2020年6月21日视频 20200621_2文贵在父亲节做第二道菜小鸡炖蘑菇蘑菇积极响应地摊经济第1段]({{site.baseurl}}/miles/transcript/2020/06/20200621-1089881)
+
+[郭文贵2020年6月21日视频 20200621_3文贵在父亲节做第二道菜小鸡炖蘑菇蘑菇积极响应地摊经济第2段]({{site.baseurl}}/miles/transcript/2020/06/20200621-1089885)
+
+[郭文贵2020年6月20日视频 20200620_3班农战斗室特别节目： 嘉宾郭文贵先生讲继续解读中共对全球的信息超限战 June 20，War Room Special: ‬Guest Mr Miles Guo will continue decider the CCP’s unrestricted information war against the whole world]({{site.baseurl}}/miles/transcript/2020/06/20200620-1089034)
+
+[郭文贵2020年6月20日视频 20200620_2]({{site.baseurl}}/miles/transcript/2020/06/20200620-1089876)
+
+[郭文贵2020年6月20日直播 20200620共产党必亡的几个绝对条件，香港处在极度危险之中，新中国联邦未来的重要作用和规划。]({{site.baseurl}}/miles/transcript/2020/06/20200620-1092119)
+
+[郭文贵2020年6月18日视频 20200618_3谢谢很多战友发来问询夏威夷会议的各种信息]({{site.baseurl}}/miles/transcript/2020/06/20200618-1089853)
+
+[郭文贵2020年6月18日视频 20200618_2郭文貴參加班农战斗室特别节目：中共在美国的信息超限战中文版]({{site.baseurl}}/miles/transcript/2020/06/20200618-1089870)
+
+[郭文贵2020年6月18日直播 20200618全世界都在关注，新中国联邦世界正在改变]({{site.baseurl}}/miles/transcript/2020/06/20200618-1092224)
+
 [郭文贵2020年6月17日视频 20200617_2有在旧金山湾区的战友们 请战友帮忙在斯坦福大学附近购买或租赁2万尺到4万尺的写字楼]({{site.baseurl}}/miles/transcript/2020/06/20200617-1089843)
 
 [郭文贵2020年6月17日视频 20200617_3衷心地感谢硅谷的战友们在过去的24小时．提供的有关在硅谷寻找的房产信息，由于巨量的信息．导致了当地的房地产中介市场的混乱，我们现在指定由一个我们的战友小羊女士]({{site.baseurl}}/miles/transcript/2020/06/20200617-1089848)
@@ -32,26 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年6月10日 20200610关于G币GTV投资者被澳大利亚等银行非法强迫退款的各种事宜]({{site.baseurl}}/miles/transcript/2020/06/20200610-1092566)
 
 [郭文贵2020年6月9日视频 20200609_3新中国联邦庆典-Lady May 胜利归航全记录]({{site.baseurl}}/miles/transcript/2020/06/20200609-1089033)
-
-[郭文贵2020年6月9日 20200609_2新中国联邦的护照什么时候可以获得？及新中国联邦接下来的几个重要工作重点？]({{site.baseurl}}/miles/transcript/2020/06/20200609-1092363)
-
-[郭文贵2020年6月9日 20200609_1关于G币的退款．诉讼．赔偿．一些问题．及如何拥有投资GTV老股的机会！的一些回答。]({{site.baseurl}}/miles/transcript/2020/06/20200609-1092536)
-
-[郭文贵2020年6月8日连线木兰乱聊 20200608GTV恢复连线等功能；新中国联邦成立在中国国内和台湾的影响；中共持续造谣抹黑郝海东夫妇]({{site.baseurl}}/miles/transcript/2020/06/20200608-1092508)
-
-[郭文贵2020年6月6日 20200606新中国联邦对世界和中国人民的三大影响和正道主义的新中国的未来设想。]({{site.baseurl}}/miles/transcript/2020/06/20200606-1092470)
-
-[郭文贵2020年6月4日gtv视频 20200604_5郭文贵和班农先生在听郝海东朗读新中国联邦宣言]({{site.baseurl}}/miles/transcript/2020/06/20200604-1089025)
-
-[郭文贵2020年6月4日gtv视频 20200604_6全球灭共的时代已经开始 中国人民并不孤单 世界正道主义与你们站在一起]({{site.baseurl}}/miles/transcript/2020/06/20200604-1089026)
-
-[郭文贵2020年6月4日gtv视频 20200604_7讲述国旗上面的七七四十九宇宙之星， 心中之星，太阳之心]({{site.baseurl}}/miles/transcript/2020/06/20200604-1089027)
-
-[郭文贵2020年6月4日gtv视频 20200604_8新中国联邦成立庆典航拍全记录]({{site.baseurl}}/miles/transcript/2020/06/20200604-1089031)
-
-[郭文贵2020年6月4日视频 20200604_4新中國聯邦成立後大雨傾盆]({{site.baseurl}}/miles/transcript/2020/06/20200604-1089871)
-
-[郭文贵2020年6月4日 20200604_3新中国联邦宣言的历史意义]({{site.baseurl}}/miles/transcript/2020/06/20200604-1092446)
 
 
 ## 頁面 53/112 [**<**]({{site.baseurl}}/miles/transcript/page52) [1]({{site.baseurl}}/miles/transcript/index) ... [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) **53** [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page54)

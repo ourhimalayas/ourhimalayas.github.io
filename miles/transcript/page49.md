@@ -3,6 +3,26 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 49/112 [**<**]({{site.baseurl}}/miles/transcript/page48) [1]({{site.baseurl}}/miles/transcript/index) ... [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) **49** [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page50)
 
+[郭文贵2020年8月19日视频 20200819_3三马要出大事了吗？]({{site.baseurl}}/miles/transcript/2020/08/20200819-1090020)
+
+[郭文贵2020年8月19日盖特 20200819_1尊敬的战友们好，你们健身了吗？你们传播C C P病毒香港危机真相了吗？一切都已经开始]({{site.baseurl}}/miles/transcript/2020/08/20200819-1092726)
+
+[郭文贵2020年8月19日盖特 20200819_2英雄科学家 正在干啥子呢?]({{site.baseurl}}/miles/transcript/2020/08/20200819-1092728)
+
+[郭文贵2020年8月17日视频 20200817_3与战友们分享今天的午餐]({{site.baseurl}}/miles/transcript/2020/08/20200817-1090016)
+
+[郭文贵2020年8月17日盖特 20200817_1尊敬的战友们好，你们健身了吗？传播C C P病毒．香港危机真相了吗？今天我们是一个快乐的一周的开始，当你好久不吃面食的时候，突然]({{site.baseurl}}/miles/transcript/2020/08/20200817-1092720)
+
+[郭文贵2020年8月17日盖特 20200817_2文贵向加拿大战友们发出的秘密视频]({{site.baseurl}}/miles/transcript/2020/08/20200817-1092723)
+
+[郭文贵2020年8月16日直播 20200816與新西蘭站連線直播]({{site.baseurl}}/miles/transcript/2020/08/20200816-1092647)
+
+[郭文贵2020年8月15日直播 20200815玛莎Masha连线七哥谈Gclub和Gfashion]({{site.baseurl}}/miles/transcript/2020/08/20200815-1092634)
+
+[郭文贵2020年8月15日盖特 20200815_215日：文贵莲花刀法．与班农先生分吃，我太太在我家菜园里种的哈密瓜！]({{site.baseurl}}/miles/transcript/2020/08/20200815-1092718)
+
+[郭文贵2020年8月14日盖特 202008148月14号刚刚的直播．被黑断播了…文贵几个小时内．不再继续直播，今天GTV升级后再回复直播，大概在今天下午的时间吧…衷心的感谢日本战友]({{site.baseurl}}/miles/transcript/2020/08/20200814-1092614)
+
 [郭文贵2020年8月13日盖特 202008138月13号尊敬的战友们好，你们健身了吗？你们传播C C P病毒…香港危机真相了吗？文贵在这里向战友报告正在进行时…发生几个事情]({{site.baseurl}}/miles/transcript/2020/08/20200813-1092611)
 
 [郭文贵2020年8月12日直播 20200812_3中共香港抓捕黎智英惹众怒，港人的团结击破中共白色恐怖！]({{site.baseurl}}/miles/transcript/2020/08/20200812-1088904)
@@ -32,26 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年8月4日直播 20200804_3GTV的价值用金钱无法衡量，历史的机遇无法计算，这都是因为战友的信任和支持]({{site.baseurl}}/miles/transcript/2020/08/20200804-1092464)
 
 [郭文贵2020年8月4日直播 20200804_4共产党的内斗将是一场人类前所未有的政治大劫难]({{site.baseurl}}/miles/transcript/2020/08/20200804-1092485)
-
-[郭文贵2020年8月4日直播 20200804_5文贵与班农聊GTV和中共黑客]({{site.baseurl}}/miles/transcript/2020/08/20200804-1092492)
-
-[郭文贵2020年8月4日直播 20200804_6香港黑警的所作所为永不可饶恕，但对99.9%的党员大赦，因为爆料革命的绝对中坚力量还是在中共和国内战友]({{site.baseurl}}/miles/transcript/2020/08/20200804-1092498)
-
-[郭文贵2020年8月4日直播 20200804_7香港黑警的所作所为永不可饶恕，但对99.9%的党员大赦，因为爆料革命的绝对中坚力量还是在中共和国内战友]({{site.baseurl}}/miles/transcript/2020/08/20200804-1092504)
-
-[郭文贵2020年8月3日视频 20200803_2文贵在这里感谢所有的战友们对文贵昨天的＂脱聊]({{site.baseurl}}/miles/transcript/2020/08/20200803-1090011)
-
-[郭文贵2020年8月3日盖特 20200803衷心的感谢国内的所谓门〈金融突发事件处理小组〉对战友们的保护……一切都已经开始！]({{site.baseurl}}/miles/transcript/2020/08/20200803-1092438)
-
-[郭文贵2020年8月2日直播 20200802展示G—fashion时装以及共产党对GTV和战友的攻击]({{site.baseurl}}/miles/transcript/2020/08/20200802-1092505)
-
-[郭文贵2020年8月1日视频 20200801_2戰鬥室312期【中英字幕】病毒是中共制造的廉价“核武器”；只有中美脱钩才能阻止中共腐蚀全球；新中国联邦会给全世界健康的中国市场与和平的未来！ 1]({{site.baseurl}}/miles/transcript/2020/08/20200801-1090010)
-
-[郭文贵2020年8月1日盖特 20200801尊敬的战友们好，你们健身了吗？你们传播C C P病毒香港危机真相了吗？文贵在下面的视频中将回答很多战友的一些问题]({{site.baseurl}}/miles/transcript/2020/08/20200801-1092489)
-
-[郭文贵2020年7月31日直播 20200731_2【中英字幕】文贵先生连线战斗室：美国只有放弃官僚和个人利益，通过证据找到真相，才能让美国更加安全！[Chinese-English subtitled] Mr. Miles Guo on War Room: Only if the US officials and individuals give up perso]({{site.baseurl}}/miles/transcript/2020/07/20200731-1089035)
-
-[郭文贵2020年7月31日视频 20200731_1]({{site.baseurl}}/miles/transcript/2020/07/20200731-1090005)
 
 
 ## 頁面 49/112 [**<**]({{site.baseurl}}/miles/transcript/page48) [1]({{site.baseurl}}/miles/transcript/index) ... [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) **49** [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page50)

@@ -3,6 +3,26 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 97/112 [**<**]({{site.baseurl}}/miles/transcript/page96) [1]({{site.baseurl}}/miles/transcript/index) ... [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) **97** [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page98)
 
+[郭文贵2018年6月23日视频 20180623镇江老兵维权幕后有高人，郭宝胜与王進忠]({{site.baseurl}}/miles/transcript/2018/06/20180623-1087716)
+
+[郭文贵2018年6月21日视频 20180621世界大局正在向反盗国贼的趋势发展]({{site.baseurl}}/miles/transcript/2018/06/20180621-1087711)
+
+[郭文贵2018年6月17日 20180617父亲节谈与政法委老领导的通话！请草根警察不要伤害遭受不公平的草根司机！]({{site.baseurl}}/miles/transcript/2018/06/20180617-1094327)
+
+[郭文贵2018年6月16日直播 20180616_1万分感激网络侠客联盟．正义黑客小哥．大侠保罗先生的拨剑相助．给大家一个真相]({{site.baseurl}}/miles/transcript/2018/06/20180616-1088426)
+
+[郭文贵2018年6月15日直播 20180615_1谈只有中国正道主义可以救中国．只有与西方和平共处才能让中国长治久安！]({{site.baseurl}}/miles/transcript/2018/06/20180615-1088422)
+
+[郭文贵2018年6月13日直播 20180613_1郭战装与什么是习主席的政治轮轴效应！]({{site.baseurl}}/miles/transcript/2018/06/20180613-1088406)
+
+[郭文贵2018年6月11日直播 20180611_1陈峰脑血管病急救．感谢黑客先生．大陆官场热离婚．商场热移民美国！习主席进入官场轮轴灾难区！]({{site.baseurl}}/miles/transcript/2018/06/20180611-1088385)
+
+[郭文贵2018年6月10日直播 20180610_2文贵爆料第一階段启蒙期结束．正在准备第二階段．定点爆破！]({{site.baseurl}}/miles/transcript/2018/06/20180610-1088377)
+
+[郭文贵2018年6月10日 20180610玉岐山孟建柱命不久了！马航真相一定会公布！(一)]({{site.baseurl}}/miles/transcript/2018/06/20180610-1094313)
+
+[郭文贵2018年6月5日直播 20180605_1拉斯维加斯的会议出钱者．A级通缉犯成水炎的过去与现在！]({{site.baseurl}}/miles/transcript/2018/06/20180605-1088350)
+
 [郭文贵2018年6月5日直播 20180605_2 看了万润南先生的视频后的感想！]({{site.baseurl}}/miles/transcript/2018/06/20180605-1088359)
 
 [郭文贵2018年6月4日直播 20180604_1红冰与习近平拍女人屁股．砖拍李克强全是吹象乂……！]({{site.baseurl}}/miles/transcript/2018/06/20180604-1088341)
@@ -32,26 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年5月13日直播 20180513_1文贵的人生导师之一昨晚上仙鹤而去！！！????????????]({{site.baseurl}}/miles/transcript/2018/05/20180513-1088318)
 
 [郭文贵2018年5月12日视频 20180512在路德访谈节目中与95后海军陆战队队员深入交流]({{site.baseurl}}/miles/transcript/2018/05/20180512-1087697)
-
-[郭文贵2018年5月11日直播 20180511_1马航事件很快会水落石出！]({{site.baseurl}}/miles/transcript/2018/05/20180511-1088313)
-
-[郭文贵2018年5月11日视频2 20180511_2这是文贵首次挂出，我与刘彦平先生在2017年5月1日至2日斗沟通．有关来美国的过程！这些视频将成为西方看中国．看文贵的最好的事实样版！]({{site.baseurl}}/miles/transcript/2018/05/20180511-1093523)
-
-[郭文贵2018年5月10日视频 20180510生日直播，盗国贼不亡，独狼行动不止]({{site.baseurl}}/miles/transcript/2018/05/20180510-1088887)
-
-[郭文贵2018年5月5日视频 20180505_4连线路德访谈：揭露陈氏兄弟、专员以及机密文件更多相关内幕]({{site.baseurl}}/miles/transcript/2018/05/20180505-1092896)
-
-[郭文贵2018年5月5日视频第二部分 20180505_2陈氏兄弟及盟相关机密文件内幕]({{site.baseurl}}/miles/transcript/2018/05/20180505-1094177)
-
-[郭文贵2018年5月5日视频第三部分 20180505_3陈氏兄弟及盟相关机密文件内幕]({{site.baseurl}}/miles/transcript/2018/05/20180505-1094187)
-
-[郭文贵2018年5月5日视频第一部分 20180505_1陈氏兄弟及盟相关机密文件内幕]({{site.baseurl}}/miles/transcript/2018/05/20180505-1094356)
-
-[郭文贵2018年5月3日视频 20180503推墙卫星准备就绪即将发射大家耐心等待]({{site.baseurl}}/miles/transcript/2018/05/20180503-1087693)
-
-[郭文贵2018年5月2日视频 20180502Instagram 直播 《战友同行》]({{site.baseurl}}/miles/transcript/2018/05/20180502-1092854)
-
-[郭文贵2018年5月1日直播 20180501_1我们中华名族遇到魔鬼了。]({{site.baseurl}}/miles/transcript/2018/05/20180501-1088274)
 
 
 ## 頁面 97/112 [**<**]({{site.baseurl}}/miles/transcript/page96) [1]({{site.baseurl}}/miles/transcript/index) ... [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) **97** [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page98)

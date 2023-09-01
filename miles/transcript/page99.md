@@ -3,6 +3,26 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 99/112 [**<**]({{site.baseurl}}/miles/transcript/page98) [1]({{site.baseurl}}/miles/transcript/index) ... [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) **99** [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page100)
 
+[郭文贵2018年4月21日视频 20180421文贵在此庄严地严肃地向中南坑里的某些：妖和怪们．致以衷心的道歉，文贵不会让你们失望的！]({{site.baseurl}}/miles/transcript/2018/04/20180421-1092872)
+
+[郭文贵2018年4月20日视频 20180420将爆中南坑里的老婆．女儿！的性丑闻！]({{site.baseurl}}/miles/transcript/2018/04/20180420-1092860)
+
+[郭文贵2018年4月19日第三次直播 20180419_3VOG断播一周年回顾之——路德提问]({{site.baseurl}}/miles/transcript/2018/04/20180419-1088143)
+
+[郭文贵2018年4月19日第四次直播 20180419_4-419VOA断播门一周年回顾 網友提問 & 評何頻的為人]({{site.baseurl}}/miles/transcript/2018/04/20180419-1088189)
+
+[郭文贵2018年4月19日第二次直播 20180419_2谈明镜]({{site.baseurl}}/miles/transcript/2018/04/20180419-1092817)
+
+[郭文贵2018年4月19日第一次直播 20180419_1419VOA断播门一周年回顾]({{site.baseurl}}/miles/transcript/2018/04/20180419-1092853)
+
+[郭文贵2018年4月16日视频 20180416_2我正在马阿拉哥庄园的对面的海上]({{site.baseurl}}/miles/transcript/2018/04/20180416-1087685)
+
+[郭文贵2018年4月16日在Livestrem 20180416谈墙内方老先生和开放海南夺命岛]({{site.baseurl}}/miles/transcript/2018/04/20180416-1092806)
+
+[郭文贵2018年4月14日视频 20180414谈美国及盟国导弹袭击叙利亚是中国的第二次战略机会还是盗国贼盗国的最大机会]({{site.baseurl}}/miles/transcript/2018/04/20180414-1092792)
+
+[郭文贵2018年4月13日直播 20180413_2跟战友分享下美景，不聊贸易战，南海军演，王岐山访美和杨洁篪]({{site.baseurl}}/miles/transcript/2018/04/20180413-1088038)
+
 [郭文贵2018年4月13日视频 20180413_1谈为什么要爆杨洁篪的料]({{site.baseurl}}/miles/transcript/2018/04/20180413-1092787)
 
 [郭文贵2018年4月12日直播 20180412_1在华盛顿的两天行程，夏夜良会不会在自己的家庭旅馆里按摄像头！]({{site.baseurl}}/miles/transcript/2018/04/20180412-1087951)
@@ -32,26 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年4月2日 20180402吴晓辉如果要是王岐山外甥女婿结果会如何？]({{site.baseurl}}/miles/transcript/2018/04/20180402-1094195)
 
 [郭文贵2018年3月31日做客郭友之声 20180331郭友访谈--郭先生与小蚂蚁亲密接触（戊戌年 3月31日）]({{site.baseurl}}/miles/transcript/2018/03/20180331-1092596)
-
-[郭文贵2018年3月30日视频 20180330谈香港股票市场、银行、律政司若全被香港警察控制会是什么样子]({{site.baseurl}}/miles/transcript/2018/03/20180330-1092528)
-
-[郭文贵2018年3月29日视频第三部分 20180329_3这车次纽约车展非常非常棒！今天晚上我与朋友一起看了布加迪．劳斯来斯．林宝坚尼……好多人对着我喝！一切都是刚刚开始！ Via：郭媒体]({{site.baseurl}}/miles/transcript/2018/03/20180329-1087673)
-
-[郭文贵2018年3月29日视频第一部分 20180329_1回答战友们香港警察查封各银行账号用的什么法律手续]({{site.baseurl}}/miles/transcript/2018/03/20180329-1092454)
-
-[郭文贵2018年3月29日视频第二部分 20180329_2谈为什么西方政府现在开始关注黑港警事件]({{site.baseurl}}/miles/transcript/2018/03/20180329-1092512)
-
-[郭文贵2018年3月28日第一次直播 20180328_1谈香港警察如何黑抓我们的员工和钱]({{site.baseurl}}/miles/transcript/2018/03/20180328-1092430)
-
-[郭文贵2018年3月28日第二次直播 20180328_2谈香港黑警察与金正恩访华]({{site.baseurl}}/miles/transcript/2018/03/20180328-1092514)
-
-[郭文贵2018年3月27日直播 20180327_1-海航3月29日要重新洗牌．王岐山要干什么大事]({{site.baseurl}}/miles/transcript/2018/03/20180327-1087898)
-
-[郭文贵2018年3月27日直播 20180327_2不允许任何劵商买卖方正股票为的啥？]({{site.baseurl}}/miles/transcript/2018/03/20180327-1087933)
-
-[郭文贵2018年3月26日第二次直播 20180326_2谈他们为什么让一个女人裸站几个小时]({{site.baseurl}}/miles/transcript/2018/03/20180326-1092482)
-
-[郭文贵2018年3月26日第一次直播 20180326_1不能将爆料变成娱乐]({{site.baseurl}}/miles/transcript/2018/03/20180326-1094199)
 
 
 ## 頁面 99/112 [**<**]({{site.baseurl}}/miles/transcript/page98) [1]({{site.baseurl}}/miles/transcript/index) ... [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) **99** [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page100)

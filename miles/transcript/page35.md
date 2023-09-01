@@ -3,6 +3,26 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 35/112 [**<**]({{site.baseurl}}/miles/transcript/page34) [1]({{site.baseurl}}/miles/transcript/index) ... [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) **35** [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page36)
 
+[郭文贵2021年3月16日盖特 20210316_2尊敬的战友们好．这是今天第二次发的盖特……谈谈，以毒灭共．和台湾香港面临的巨大的挑战！]({{site.baseurl}}/miles/transcript/2021/03/20210316-1090929)
+
+[郭文贵2021年3月16日盖特 20210316_3没钱的文贵只能吃点粗茶淡饭！]({{site.baseurl}}/miles/transcript/2021/03/20210316-1090930)
+
+[郭文贵2021年3月16日盖特 20210316_4文贵在此，拜托，所有的战友．在汇款的时候，务必要填全．填准确．所有的汇款信息，避免给自己．或他人．带来更多的不方便。这是我们共同成长的过程。我们要做好享受财富．驾驭财富，让]({{site.baseurl}}/miles/transcript/2021/03/20210316-1090934)
+
+[郭文贵2021年3月16日盖特 20210316_5发完上个盖特．去参加，另外一个律师会议的新的信息的报告，7哥正在以自己的身体和生命……来向美国和西方验证共产党在西方法院．律师事务所．检察官．政府监管机构的B．G．Y，的所有的真]({{site.baseurl}}/miles/transcript/2021/03/20210316-1090935)
+
+[郭文贵2021年3月15日盖特 20210315_1昨天是西方的母亲节????????????中国的龙抬头农历的二月初二，今天大家知道是什么日子吗？什么重要的日子吗？先给大家送上杯咖啡！]({{site.baseurl}}/miles/transcript/2021/03/20210315-1090911)
+
+[郭文贵2021年3月15日盖特 20210315_2尊敬的战友们好……文贵与大家回顾一下，1月5号至16号间中美之间险些发生真正的战争的背后的故事…]({{site.baseurl}}/miles/transcript/2021/03/20210315-1090916)
+
+[郭文贵2021年3月15日盖特 20210315_3今天第二个盖特．回答很多战友对家庭和父母的关系的一些问题，为什么文贵说！ 家 人 生 根 地， 国 权 命 本 天 父母和你之间的磁场的联系，就是你的风水．就是你的运气，就是你的健康，也是]({{site.baseurl}}/miles/transcript/2021/03/20210315-1090919)
+
+[郭文贵2021年3月15日盖特 20210315_4尊敬的战友们好，今天第三次发盖特，回答很多很多战友．问文贵如何与父母和家人．更好的相处的方式！]({{site.baseurl}}/miles/transcript/2021/03/20210315-1090922)
+
+[郭文贵2021年3月15日盖特 20210315_5新加坡已经是共产党的目标，永远逃脱不了被共产化的命运，只有共产党被消灭以后新家成了保持现在的繁荣和独立……潘石屹继被多次双规后，哭爹叫娘求饶．现在面临着家破人亡的境界，害郭]({{site.baseurl}}/miles/transcript/2021/03/20210315-1090924)
+
+[郭文贵2021年3月14日直播 20210314_1回忆慈母；谈新中国联邦人如何重建家庭文化；如何孝敬老人]({{site.baseurl}}/miles/transcript/2021/03/20210314-1090901)
+
 [郭文贵2021年3月14日盖特 20210314_2衷心地感谢。尊敬的战友们]({{site.baseurl}}/miles/transcript/2021/03/20210314-1090910)
 
 [郭文贵2021年3月13日盖特 20210313_1尊敬的在俄好．文贵在这里向大家报平安了文贵再谈谈两个白皮书的意义。第一部分！]({{site.baseurl}}/miles/transcript/2021/03/20210313-1090903)
@@ -32,26 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年3月7日盖特 20210307_1国际巨头 (鳄鱼????￼)投资基金．在对大陆的金融市场价值．风险全面调查后．决定将投入大陆的资金撤出，可能部分????????????投入到我们G系列！一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/03/20210307-1090848)
 
 [郭文贵2021年3月6日盖特 20210306_1尊敬的战友们好！文贵和大家聊聊。西方媒体的堕落的真正的本质……和对我们所有每个人的危害是什么？香港的董栽倒？和当年的邓痰￼倒．撒切尔夫人之间有什么样的关系？意味着什么？]({{site.baseurl}}/miles/transcript/2021/03/20210306-1090846)
-
-[郭文贵2021年3月5日盖特 20210305_5尊敬的战友们好，我们会马上直播！]({{site.baseurl}}/miles/transcript/2021/03/20210305-1089834)
-
-[郭文贵2021年3月5日盖特 20210305_1回答无数个战友．问七哥的一个问题，现在可不可以迅速地加入……做空港币．挣大钱]({{site.baseurl}}/miles/transcript/2021/03/20210305-1090834)
-
-[郭文贵2021年3月5日盖特 20210305_2我最爱的Gfahion竟然是洗后大大缩水．变成了童装????????????……太疯狂了]({{site.baseurl}}/miles/transcript/2021/03/20210305-1090836)
-
-[郭文贵2021年3月5日盖特 20210305_3很多战友发信息问我董建华栽倒在.两会现场……是因为他打了共产党的疫苗吗？为什么在这个关键的时刻变成了董栽倒。￼意味着什么？我在这里做简单的回答！]({{site.baseurl}}/miles/transcript/2021/03/20210305-1090839)
-
-[郭文贵2021年3月5日直播 20210305_4历史上的今天，中共与希特勒公然毁约的惊人相似，时间如此吻合，中共在两会公然废除一国两制，选举法，港币变废纸，威胁世界]({{site.baseurl}}/miles/transcript/2021/03/20210305-1090843)
-
-[郭文贵2021年3月4日盖特 20210304_1七哥和战友分享关于和GTV投资了椅子战友的沟通，被千次感动高潮后的感受]({{site.baseurl}}/miles/transcript/2021/03/20210304-1090824)
-
-[郭文贵2021年3月4日盖特 20210304_2尊敬的战友们好！G俱乐部的会员卡．从今天起．任何人都可以买多张卡的新政策开始实施]({{site.baseurl}}/miles/transcript/2021/03/20210304-1090826)
-
-[郭文贵2021年3月4日盖特 20210304_3下个会议之前，文贵和战友乱聊几句]({{site.baseurl}}/miles/transcript/2021/03/20210304-1090827)
-
-[郭文贵2021年3月3日直播 20210303_1中共与拜登政府给中兴的“回头汤”，中美沼泽地从中得利；Ｇ系列再次遇难成祥，让战友们真正成为江山的主人，最大的受益者，这就是爆料革命]({{site.baseurl}}/miles/transcript/2021/03/20210303-1090821)
-
-[郭文贵2021年3月3日盖特 20210303_2开会期间摘下口罩乱聊发视频……￼以毒灭共……以钱灭共，真是上天赐给我们的最伟大的机会和法宝……共产党，你完了]({{site.baseurl}}/miles/transcript/2021/03/20210303-1090822)
 
 
 ## 頁面 35/112 [**<**]({{site.baseurl}}/miles/transcript/page34) [1]({{site.baseurl}}/miles/transcript/index) ... [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) **35** [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page36)

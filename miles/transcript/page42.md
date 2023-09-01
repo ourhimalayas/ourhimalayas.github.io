@@ -3,6 +3,26 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 42/112 [**<**]({{site.baseurl}}/miles/transcript/page41) [1]({{site.baseurl}}/miles/transcript/index) ... [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) **42** [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page43)
 
+[郭文贵2020年12月25日音频聊天 20201225_2郭先生喜马拉雅大使馆discord群答疑录音]({{site.baseurl}}/miles/transcript/2020/12/20201225-1090289)
+
+[郭文贵2020年12月24日盖特 20201224_4郝海東夫婦中大獎了 買了八個中了三個20201224之4]({{site.baseurl}}/miles/transcript/2020/12/20201224-1089734)
+
+[郭文贵2020年12月24日盖特 20201224_1平安夜快乐……你们感受到最不平安夜的感觉了吗？]({{site.baseurl}}/miles/transcript/2020/12/20201224-1090139)
+
+[郭文贵2020年12月24日盖特 20201224_2平安夜????文贵向战友们再次的祝福，明天．25号上午9:00至10:00……文贵圣诞直播！]({{site.baseurl}}/miles/transcript/2020/12/20201224-1090140)
+
+[郭文贵2020年12月24日盖特 20201224_3文贵在平安夜……收到了G翻身的礼物，这是我一生中收到最大的……????????????最隆重的礼物，G翻身就是这样对待发起人，首席设计顾问……实在是太成功了以后战友们对G翻身的所有物品型号可要]({{site.baseurl}}/miles/transcript/2020/12/20201224-1090142)
+
+[郭文贵2020年12月23日盖特 20201223_3七哥在喜马拉雅大使馆群健身视频]({{site.baseurl}}/miles/transcript/2020/12/20201223-1089730)
+
+[郭文贵2020年12月23日盖特 20201223_1尊敬的战友们好……你们健身了吗？你们传播C C P病毒……香港危机真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2020/12/20201223-1090135)
+
+[郭文贵2020年12月23日盖特 20201223_2我们成功地在天佑之下……和无数个真诚的伟大的战友的团结合作中……击败了灭爆小组的一个惊天的阴谋……给我们的爆料革命，新中国联邦又带了一次巨大的升华！，上天护佑着我们！???????]({{site.baseurl}}/miles/transcript/2020/12/20201223-1090137)
+
+[郭文贵2020年12月22日盖特 20201222_1尊敬的战友们好．灭共……新中国联邦，维护中国人的尊严．和安全利益，这几条原则……必须要清楚和绝对的坚持与否……决定了我们每个人的未来！]({{site.baseurl}}/miles/transcript/2020/12/20201222-1090123)
+
+[郭文贵2020年12月22日盖特 20201222_2尊敬的战友们，????????????文贵在这里回答很多战友……在过去几个小时．发信息咨询文贵一些问题……一切都已经开始！]({{site.baseurl}}/miles/transcript/2020/12/20201222-1090127)
+
 [郭文贵2020年12月21日盖特 20201221_1尊敬的战友们好……文贵又做梦了……]({{site.baseurl}}/miles/transcript/2020/12/20201221-1090109)
 
 [郭文贵2020年12月21日盖特 20201221_2过冬至吃饺子喽……]({{site.baseurl}}/miles/transcript/2020/12/20201221-1090120)
@@ -32,26 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年12月13日盖特 20201213_1GTV的投资者用自己的智慧和金钱证明了自己到底是聪明人……还是大笨蛋……好日子只是刚刚开始！]({{site.baseurl}}/miles/transcript/2020/12/20201213-1090069)
 
 [郭文贵2020年12月13日盖特 20201213_2明天14号后天15号就像几周以前，我说过的一样，这是关键的日子，你们会很开心，会很兴奋的]({{site.baseurl}}/miles/transcript/2020/12/20201213-1090072)
-
-[郭文贵2020年12月12日盖特 20201212_1文贵喝咖啡喝醉了……乱聊，并回答很多朋友在昨天直播后的一些有关沼泽地里的关切！]({{site.baseurl}}/miles/transcript/2020/12/20201212-1090067)
-
-[郭文贵2020年12月11日直播 20201211_1文贵直播谈真实的川普总统；正义的力量超乎我们的想象！]({{site.baseurl}}/miles/transcript/2020/12/20201211-1090042)
-
-[郭文贵2020年12月11日盖特 20201211_2有時間的話今晚直播 沒時間的話 我想明天早上來個大聊亂聊直播(90%概率)]({{site.baseurl}}/miles/transcript/2020/12/20201211-1090062)
-
-[郭文贵2020年12月11日盖特 20201211_3收到了很多战友的有关一旦灭共战争发生……战友们应该做什么……？这样的问题，我在这里简单地回答！]({{site.baseurl}}/miles/transcript/2020/12/20201211-1090065)
-
-[郭文贵2020年12月10日直播 20201210_1 文贵直播此时此刻有好几个战场正在同时进行着！]({{site.baseurl}}/miles/transcript/2020/12/20201210-1090035)
-
-[郭文贵2020年12月10日盖特 20201210_2尊敬的战友们好，请今天．都去看路德波切访谈……我们的灭共革命进入了一个新的阶段，希望大家过了24小时以后不要兴奋得都去亲自己的脸……一切都已经开始]({{site.baseurl}}/miles/transcript/2020/12/20201210-1090054)
-
-[郭文贵2020年12月10日盖特 20201210_3尊敬的战友们好……任何农场和战友对救助战友的承诺……和履行承诺非常之重要，一定要坚持唯真不破．真善对战友……要真情实意……并敢于承担]({{site.baseurl}}/miles/transcript/2020/12/20201210-1090055)
-
-[郭文贵2020年12月10日盖特 20201210_4衷心的感谢那些在共产党的体制内……默默无闻的战友们……感谢你们提供的在美国被渗透的法官和律师事务所的腐败信息……对文贵在美国案子用蓝金黄手段办黑案的事实，这是非常重要的]({{site.baseurl}}/miles/transcript/2020/12/20201210-1090058)
-
-[郭文贵2020年12月10日盖特 20201210_5所有的战友们都要全力以赴去支持。在苹果商店在过去几年支持，我们爆料革命．坚持美国法律原则的这位姓范的朋友。]({{site.baseurl}}/miles/transcript/2020/12/20201210-1090061)
-
-[郭文贵2020年12月9日盖特 20201209_1蓋特：睡不著覺啦...胡說八道亂聊一下，翟東升所說的左欺右騙虾話，中國共產黨以假治國以黑治國以騙治國...狂妄自大...一個典型的代表人物...有時間的時候，能在這個星期六好好聊聊]({{site.baseurl}}/miles/transcript/2020/12/20201209-1090049)
 
 
 ## 頁面 42/112 [**<**]({{site.baseurl}}/miles/transcript/page41) [1]({{site.baseurl}}/miles/transcript/index) ... [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) **42** [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page43)

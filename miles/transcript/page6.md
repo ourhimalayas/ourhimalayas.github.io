@@ -3,6 +3,26 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 6/112 [**<**]({{site.baseurl}}/miles/transcript/page5) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) **6** [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page7)
 
+[2022年6月10日《文貴大直播》全文字版]({{site.baseurl}}/miles/transcript/2022/06/20220610-1573640)
+
+[2022年6月8日 《文贵大直播》全文字版]({{site.baseurl}}/miles/transcript/2022/06/20220608-1573628)
+
+[2022年6月6日 郭文贵先生吃播 全文字版]({{site.baseurl}}/miles/transcript/2022/06/20220606-1573624)
+
+[2022年6月5日 郭文贵先生与“曝二代”直播 全文字版]({{site.baseurl}}/miles/transcript/2022/06/20220605-1573615)
+
+[2022年6月4日《新中国联邦两周年庆典》全文字版（一）]({{site.baseurl}}/miles/transcript/2022/06/20220604-1569567)
+
+[2022年6月4日 《新中国联邦两周年庆典》全文字版（二）]({{site.baseurl}}/miles/transcript/2022/06/20220604-1573590)
+
+[2022年6月4日《新中国联邦两周年庆典》全文字版（三）]({{site.baseurl}}/miles/transcript/2022/06/20220604-1573601)
+
+[2022年6月3日《郭先生战友见面会直播》全文字版]({{site.baseurl}}/miles/transcript/2022/06/20220603-1552460)
+
+[郭文贵2022年5月13日直播 20220513_1最新疫苗灾难信息防护；数字货币价格变动比较；喜币流通应用突出优势；区块链的政治领域应用]({{site.baseurl}}/miles/transcript/2022/05/20220513-1091627)
+
+[郭文贵2022年5月13日直播 20220513_2七哥与战友们连线吃播]({{site.baseurl}}/miles/transcript/2022/05/20220513-1091656)
+
 [郭文贵2022年5月13日盖特 20220513_3尊敬的战友们好……共产党的在国内乱折腾，在全世界瞎折腾．狂折腾．和在世界上制造的不和谐，他们最终会走向共产党自掘的坟墓，全世界人民会因为他们的疯狂．更加的团结．觉醒，最后一]({{site.baseurl}}/miles/transcript/2022/05/20220513-1091746)
 
 [郭文贵2022年5月12日盖特 20220512_1尊敬的战友们好……共产党的经济和世界的股票市场即将崩溃，大家切勿因小失大．因投机而失去一切、务必小心！]({{site.baseurl}}/miles/transcript/2022/05/20220512-1091743)
@@ -32,26 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2022年5月1日直播 20220501_1俄乌战争台海局势；中共经济爆雷现状；疫苗灾难危及人类；世界经济面临崩塌]({{site.baseurl}}/miles/transcript/2022/05/20220501-1091523)
 
 [郭文贵2022年4月30日盖特 20220430_2尊敬的战友们好……世界的经济已经走向崩塌，崩溃已经开始！]({{site.baseurl}}/miles/transcript/2022/04/20220430-1091723)
-
-[郭文贵2022年4月29日直播 20220429_1认可分布式记账喜币大机遇；从纳粹大屠杀看中共大屠杀；法国大选结果分析欧洲未来]({{site.baseurl}}/miles/transcript/2022/04/20220429-1091452)
-
-[郭文贵2022年4月29日盖特 20220429_2尊敬的战友们好……今天的纽约．阳光明媚．美丽极了，今天取消了开庭．七哥与战友们分享这美好的时光！]({{site.baseurl}}/miles/transcript/2022/04/20220429-1091719)
-
-[郭文贵2022年4月28日直播 20220428_1七哥乱聊直播]({{site.baseurl}}/miles/transcript/2022/04/20220428-1091391)
-
-[郭文贵2022年4月27日盖特 20220427_1尊敬的战友们好．七哥在开庭的路上．和战友们聊聊，我们将揭开深藏在美国的、中国共产党间谍们……在美国违法犯罪的金融政治渗透的集团。卸下P A X的邪恶的假面具！让西方的国家法律系统重]({{site.baseurl}}/miles/transcript/2022/04/20220427-1091711)
-
-[郭文贵2022年4月27日盖特 20220427_2尊敬的战友们好……开完庭了开完庭了，谢谢战友们的关心，感恩上天护佑我们的一切，大家一起为美好的今天感谢万佛万神吧，一切都已经开始！]({{site.baseurl}}/miles/transcript/2022/04/20220427-1091714)
-
-[郭文贵2022年4月26日盖特 20220426_1尊敬的战友们好……很多战友发来的信息七哥都收到了，万万分感谢．不能及时回复的，万分抱歉，一切都已经开始！]({{site.baseurl}}/miles/transcript/2022/04/20220426-1091707)
-
-[郭文贵2022年4月25日盖特 20220425_1尊敬的战友们好·应战友们的要求……录一段SNOW的视频给大家????SNOW 刚刚洗完澡????太可爱了……]({{site.baseurl}}/miles/transcript/2022/04/20220425-1091703)
-
-[郭文贵2022年4月24日直播 20220424_1俄乌战争前因后果；沪京等隔离与台湾；佩洛西访台成定局；国内目前经济情况]({{site.baseurl}}/miles/transcript/2022/04/20220424-1091378)
-
-[郭文贵2022年4月23日直播 20220423_1七哥乱聊]({{site.baseurl}}/miles/transcript/2022/04/20220423-1091294)
-
-[郭文贵2022年4月22日盖特 20220422_1尊敬的战友们好．对中国共产党的经济和金融市场，包括香港．有任何幻想的人．那绝对是噩梦，你将失去一切！醒来吧，被欺骗了百年的同胞们！]({{site.baseurl}}/miles/transcript/2022/04/20220422-1091700)
 
 
 ## 頁面 6/112 [**<**]({{site.baseurl}}/miles/transcript/page5) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) **6** [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page7)
