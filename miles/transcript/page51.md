@@ -1,7 +1,23 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 51/112 [**<**]({{site.baseurl}}/miles/transcript/page50) [1]({{site.baseurl}}/miles/transcript/index) ... [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) **51** [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page52)
+## 頁面 51/113 [**<**]({{site.baseurl}}/miles/transcript/page50) [1]({{site.baseurl}}/miles/transcript/index) ... [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) **51** [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page52)
+
+[郭文贵2020年7月25日视频 20200725_3【中英字幕版】7 月25日 班农战斗室特别节目：嘉宾郭文贵先生谈蓬佩奥演讲的重大意义，中共国洪灾真相，休斯敦战友们抗议游行 【Subtitiled】July 25, War Room Special: Guest speaker Mr Miles Guo will talk ab]({{site.baseurl}}/miles/transcript/2020/07/20200725-1089999)
+
+[郭文贵2020年7月25日直播 20200725文贵如何理庞皮奥的演讲和对新中国联邦的重大意义，以及如何处理班农先生与新中国联邦和文贵的个人关系]({{site.baseurl}}/miles/transcript/2020/07/20200725-1092360)
+
+[郭文贵2020年7月24日盖特 20200724文贵在这里简单地谈谈昨天国务卿的演讲]({{site.baseurl}}/miles/transcript/2020/07/20200724-1092403)
+
+[郭文贵2020年7月23日视频 20200723在任何情况下，当你对你要实现的目标，有任何犹豫或者偷懒的时候……你就会失去你的成功]({{site.baseurl}}/miles/transcript/2020/07/20200723-1089985)
+
+[郭文贵2020年7月22日视频 20200722_2旧金山ccp的领事馆又出事啦]({{site.baseurl}}/miles/transcript/2020/07/20200722-1089984)
+
+[郭文贵2020年7月22日直播 20200722拜请所有的海外华人一定要团结一致，做好准备迎接全世界灭共对华人安全和生活的影响！]({{site.baseurl}}/miles/transcript/2020/07/20200722-1092335)
+
+[郭文贵2020年7月20日视频 20200720_1大家想一想为什么郭先生和班农在船上待了这么久，就是为了做对中共的军事部署]({{site.baseurl}}/miles/transcript/2020/07/20200720-1089981)
+
+[郭文贵2020年7月19日直播 20200719_1不要受“缺爹党”的影响；灭共和解决CCP病毒都到了关键时刻；大力传播今天福克斯采访班农的节目]({{site.baseurl}}/miles/transcript/2020/07/20200719-1092484)
 
 [郭文贵2020年7月19日连线大卫上集 20200719_2]({{site.baseurl}}/miles/transcript/2020/07/20200719-1092497)
 
@@ -37,21 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2020年7月12日视频 20200712_3今天直播完以后，我继续健身，灭共的路上一定要强心健体永不放弃]({{site.baseurl}}/miles/transcript/2020/07/20200712-1089947)
 
-[郭文贵2020年7月12日直播 20200712美国领导的灭共盟军将在欧洲，及北约以及亚洲和南海东海香港领域．经济．领导人制栽等．全面开始灭共！]({{site.baseurl}}/miles/transcript/2020/07/20200712-1092359)
 
-[郭文贵2020年7月11日视频 20200711_1跟着郝海东先生和叶钊颖女士！学习健身1]({{site.baseurl}}/miles/transcript/2020/07/20200711-1089926)
-
-[郭文贵2020年7月11日视频 20200711_2跟着郝海东先生和叶钊颖女士！学习健身2]({{site.baseurl}}/miles/transcript/2020/07/20200711-1089928)
-
-[郭文贵2020年7月11日视频 20200711_3跟着郝海东先生和叶钊颖女士！学习健身3]({{site.baseurl}}/miles/transcript/2020/07/20200711-1089931)
-
-[郭文贵2020年7月11日视频 20200711_4同声传译班农战斗室特别节目：郭文贵先生和4位爆料革命战友参加讨论香港国安法]({{site.baseurl}}/miles/transcript/2020/07/20200711-1089939)
-
-[郭文贵2020年7月11日视频 20200711_5大日子大日子啊天大的日子啊兄弟姐妹们准备好酒吧]({{site.baseurl}}/miles/transcript/2020/07/20200711-1089941)
-
-[郭文贵2020年7月11日视频 20200711_6我终于明白了为什么在三个小时前我船的旁边突然间出现了彩虹️天佑中华儿女️天佑️新中国联邦]({{site.baseurl}}/miles/transcript/2020/07/20200711-1089943)
-
-[郭文贵2020年7月10日视频 20200710_1文贵先生再次参加班农战斗室节目片段（1）]({{site.baseurl}}/miles/transcript/2020/07/20200710-1089907)
-
-
-## 頁面 51/112 [**<**]({{site.baseurl}}/miles/transcript/page50) [1]({{site.baseurl}}/miles/transcript/index) ... [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) **51** [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page52)
+## 頁面 51/113 [**<**]({{site.baseurl}}/miles/transcript/page50) [1]({{site.baseurl}}/miles/transcript/index) ... [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) **51** [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page52)

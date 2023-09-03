@@ -1,7 +1,23 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 53/112 [**<**]({{site.baseurl}}/miles/transcript/page52) [1]({{site.baseurl}}/miles/transcript/index) ... [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) **53** [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page54)
+## 頁面 53/113 [**<**]({{site.baseurl}}/miles/transcript/page52) [1]({{site.baseurl}}/miles/transcript/index) ... [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) **53** [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page54)
+
+[郭文贵2020年6月30日视频 20200630_1]({{site.baseurl}}/miles/transcript/2020/06/20200630-1089891)
+
+[郭文贵2020年6月30日视频 20200630_2]({{site.baseurl}}/miles/transcript/2020/06/20200630-1089893)
+
+[郭文贵2020年6月28日视频 20200628_2]({{site.baseurl}}/miles/transcript/2020/06/20200628-1089887)
+
+[郭文贵2020年6月28日视频 20200628_3]({{site.baseurl}}/miles/transcript/2020/06/20200628-1089888)
+
+[郭文贵2020年6月28日视频 20200628_4]({{site.baseurl}}/miles/transcript/2020/06/20200628-1089890)
+
+[郭文贵2020年6月28日直播 20200628香港问责法案最后一分钟被大打折扣；成功营救郝海东之子：GTV投资进展；中共对付新中国联邦的烂招]({{site.baseurl}}/miles/transcript/2020/06/20200628-1092167)
+
+[郭文贵2020年6月25日直播 20200625_1杨洁篪来美国都说了什么？共产党最快三个月彻底灭亡！]({{site.baseurl}}/miles/transcript/2020/06/20200625-1092129)
+
+[郭文贵2020年6月25日直播 20200625_2夏威夷会面杨洁篪再次的威胁，美国和将华人都列为犯罪分子的背后故事]({{site.baseurl}}/miles/transcript/2020/06/20200625-1092221)
 
 [郭文贵2020年6月24日视频 20200624_1文贵与战友们分享今天媳妇做的大锅菜]({{site.baseurl}}/miles/transcript/2020/06/20200624-1089886)
 
@@ -37,21 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2020年6月15日视频 20200615_7今天不直播]({{site.baseurl}}/miles/transcript/2020/06/20200615-1089839)
 
-[郭文贵2020年6月15日视频 20200615_3请应聘新中国联邦职务的战友们务必详细的提供你的个人信息和个人需求]({{site.baseurl}}/miles/transcript/2020/06/20200615-1089875)
 
-[郭文贵2020年6月15日视频 20200615_4文贵衷心地向战友们就昨天错误的发出新中国联邦部长及副总理招聘广告衷心地向你们道歉️文贵将在视频中骑狗惩罚自己]({{site.baseurl}}/miles/transcript/2020/06/20200615-1089898)
-
-[郭文贵2020年6月15日视频 20200615_5很多人打电话问我关于VOA炒掉VOACEO阿曼达和很多人要采访我对此事的看法我没有兴趣接受任何人的采访我只在这里谈谈我个人的粗浅的看法]({{site.baseurl}}/miles/transcript/2020/06/20200615-1089900)
-
-[郭文贵2020年6月15日第一次直播 20200615_1關於戰友們投資GTV被非法退款、非法被剝奪投資利益、这将是一场法律行动的维权]({{site.baseurl}}/miles/transcript/2020/06/20200615-1094168)
-
-[郭文贵2020年6月15日第二次直播 20200615_2文贵跟战友们聊聊VOA阿曼达离职，杨洁篪密会蓬佩奥与三峡大坝]({{site.baseurl}}/miles/transcript/2020/06/20200615-1094190)
-
-[郭文贵2020年6月13日连线江财神 20200613畅谈喜马拉雅农场和新中国联邦未来]({{site.baseurl}}/miles/transcript/2020/06/20200613-1094251)
-
-[郭文贵2020年6月10日 20200610关于G币GTV投资者被澳大利亚等银行非法强迫退款的各种事宜]({{site.baseurl}}/miles/transcript/2020/06/20200610-1092566)
-
-[郭文贵2020年6月9日视频 20200609_3新中国联邦庆典-Lady May 胜利归航全记录]({{site.baseurl}}/miles/transcript/2020/06/20200609-1089033)
-
-
-## 頁面 53/112 [**<**]({{site.baseurl}}/miles/transcript/page52) [1]({{site.baseurl}}/miles/transcript/index) ... [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) **53** [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page54)
+## 頁面 53/113 [**<**]({{site.baseurl}}/miles/transcript/page52) [1]({{site.baseurl}}/miles/transcript/index) ... [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) **53** [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page54)

@@ -1,7 +1,23 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 92/112 [**<**]({{site.baseurl}}/miles/transcript/page91) [1]({{site.baseurl}}/miles/transcript/index) ... [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) **92** [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page93)
+## 頁面 92/113 [**<**]({{site.baseurl}}/miles/transcript/page91) [1]({{site.baseurl}}/miles/transcript/index) ... [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) **92** [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page93)
+
+[郭文贵2018年10月6日视频 20181006_5]({{site.baseurl}}/miles/transcript/2018/10/20181006-1088846)
+
+[郭文贵2018年10月6日 20181006文贵与班农接受著名对冲基金经理采访,讲述中共政治黑幕和孟宏伟失踪事件]({{site.baseurl}}/miles/transcript/2018/10/20181006-1093289)
+
+[郭文贵2018年10月5日视频 20181005_1]({{site.baseurl}}/miles/transcript/2018/10/20181005-1088833)
+
+[郭文贵2018年10月5日视频 20181005_2文贵一小时以后在郭媒体直播请大家围观三个男人的]({{site.baseurl}}/miles/transcript/2018/10/20181005-1088834)
+
+[郭文贵2018年10月4日第一次直播 20181004_1报平安直播 希望成功快点到来]({{site.baseurl}}/miles/transcript/2018/10/20181004-1093170)
+
+[郭文贵2018年10月4日第二次直播 20181004_2未来一两周每天都会有新闻]({{site.baseurl}}/miles/transcript/2018/10/20181004-1093235)
+
+[郭文贵2018年10月3日视频 20181003_1]({{site.baseurl}}/miles/transcript/2018/10/20181003-1088818)
+
+[郭文贵2018年10月3日视频 20181003_2]({{site.baseurl}}/miles/transcript/2018/10/20181003-1088821)
 
 [郭文贵2018年10月3日视频 20181003_3]({{site.baseurl}}/miles/transcript/2018/10/20181003-1088827)
 
@@ -37,21 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2018年9月22日视频 20180922香港．台湾．上海．股市．汇市……可能发生天翻地覆的变化！]({{site.baseurl}}/miles/transcript/2018/09/20180922-1093149)
 
-[郭文贵2018年9月21日视频 20180921_1文贵请战友们帮忙]({{site.baseurl}}/miles/transcript/2018/09/20180921-1088792)
 
-[郭文贵2018年9月21日视频 20180921_2文贵为忙碌了一周的同事切莲花西瓜……大家开心极了……从未见过！]({{site.baseurl}}/miles/transcript/2018/09/20180921-1088795)
-
-[郭文贵2018年9月20日视频 20180920_2工作了17个小时. Snow还不睡觉!要等着我狗情胜人味, 比那些伪类强多了!]({{site.baseurl}}/miles/transcript/2018/09/20180920-1088791)
-
-[郭文贵2018年9月20日视频 20180920马云开始被“狩猎”时间 王岐山穿睡衣大谈中美贸易战, FBI约谈博讯西诺]({{site.baseurl}}/miles/transcript/2018/09/20180920-1093123)
-
-[郭文贵2018年9月19日视频 20180919_1]({{site.baseurl}}/miles/transcript/2018/09/20180919-1088789)
-
-[郭文贵2018年9月18日视频 20180918_1]({{site.baseurl}}/miles/transcript/2018/09/20180918-1088780)
-
-[郭文贵2018年9月18日视频 20180918_2選購西裝布料]({{site.baseurl}}/miles/transcript/2018/09/20180918-1088784)
-
-[郭文贵2018年9月17日视频 20180917_2]({{site.baseurl}}/miles/transcript/2018/09/20180917-1088772)
-
-
-## 頁面 92/112 [**<**]({{site.baseurl}}/miles/transcript/page91) [1]({{site.baseurl}}/miles/transcript/index) ... [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) **92** [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page93)
+## 頁面 92/113 [**<**]({{site.baseurl}}/miles/transcript/page91) [1]({{site.baseurl}}/miles/transcript/index) ... [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) **92** [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page93)

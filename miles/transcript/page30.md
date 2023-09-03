@@ -1,7 +1,23 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 30/112 [**<**]({{site.baseurl}}/miles/transcript/page29) [1]({{site.baseurl}}/miles/transcript/index) ... [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) **30** [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page31)
+## 頁面 30/113 [**<**]({{site.baseurl}}/miles/transcript/page29) [1]({{site.baseurl}}/miles/transcript/index) ... [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) **30** [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page31)
+
+[郭文贵2021年5月20日盖特 20210520_2尊敬的战友们好！共产党刚刚制定了新一波．有杨娘娘．王公公．主持的攻击，新中国联邦．爆料革命的计划．文贵在这里向大家分享！]({{site.baseurl}}/miles/transcript/2021/05/20210520-1091342)
+
+[郭文贵2021年5月20日盖特 20210520_3没有什么七哥一年前敢保证欧中贸易协议一定会被干掉？为什么美国突然有这么多投资，中共的大佬们迅速在中共撤回和撤资？为什么共匪敢公开反犹太民族？]({{site.baseurl}}/miles/transcript/2021/05/20210520-1091346)
+
+[郭文贵2021年5月20日盖特 20210520_4感谢很多战友．对文贵昨天．试吃拉肚子的关心．和很多战友对虚拟货币．发生的这些灾难性事件·文贵的一些看法！]({{site.baseurl}}/miles/transcript/2021/05/20210520-1091350)
+
+[郭文贵2021年5月20日直播 20210520_1世贸中心试吃新中国联邦一周年的食物]({{site.baseurl}}/miles/transcript/2021/05/20210520-1091421)
+
+[郭文贵2021年5月19日直播 20210519_1谈西方媒体的傲慢，贪婪，暴力，绑架法律；远离中共操纵的“比震“；文贵发起“躺平”币计划]({{site.baseurl}}/miles/transcript/2021/05/20210519-1091397)
+
+[郭文贵2021年5月18日盖特 20210518_1尊敬的战友们好．今天的盖特提前来了啊……]({{site.baseurl}}/miles/transcript/2021/05/20210518-1091375)
+
+[郭文贵2021年5月18日盖特 20210518_2从早晨6:00到现在，基本上没有吃任何东西．开了一整天的会和采访，但是还是要锻炼．不要给自己任何理由放弃自己的目标……和背叛自己的承诺！]({{site.baseurl}}/miles/transcript/2021/05/20210518-1091377)
+
+[郭文贵2021年5月18日盖特 20210518_3第三次兄弟姐妹们，这个看上去容易的锻炼模式……非常非常的艰难，非常非常的危险．千万千万不要模仿．务必注意自己的身体安全第一！科学锻炼．才能达到，我们健身强心的目的！]({{site.baseurl}}/miles/transcript/2021/05/20210518-1091381)
 
 [郭文贵2021年5月17日盖特 20210517_1回答很多国内战友问七哥．是否应该投资刚刚复出的过去的中国亿万富豪们的项目！七哥如何看待，现在比特币和加密货币的混乱！]({{site.baseurl}}/miles/transcript/2021/05/20210517-1091369)
 
@@ -37,21 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2021年5月11日盖特 20210511_15月11号尊敬的战友们好！SN0W向大家请安了……]({{site.baseurl}}/miles/transcript/2021/05/20210511-1091319)
 
-[郭文贵2021年5月11日盖特 20210511_2昨晚和国内统计部门的战友．通话极大的震撼了文贵……中华民族真的被共产党以．最快的速度．最愚蠢的方式，送进地狱！国将不国族将不族啊……我们只能以捶胸顿足．嚎啕大哭．来面对这残]({{site.baseurl}}/miles/transcript/2021/05/20210511-1091323)
 
-[郭文贵2021年5月10日直播 20210510_1感谢战友们的生日祝福；希望战友们珍惜现在，爱家人，爱朋友，爱战友]({{site.baseurl}}/miles/transcript/2021/05/20210510-1091311)
-
-[郭文贵2021年5月10日盖特 20210510_2由我们的灭共其他国的战友．送来了特别多的好消息，在此衷心地感谢秘密翻译组，英雄闫博士和博士军团在全球带来的影响为灭共做出的卓越的贡献！]({{site.baseurl}}/miles/transcript/2021/05/20210510-1091314)
-
-[郭文贵2021年5月10日盖特 20210510_3一个没有幽默感，不懂得幽默感吹毛求疵的人，可能不是一个真正的了解GTV……爆料革命者！]({{site.baseurl}}/miles/transcript/2021/05/20210510-1091317)
-
-[郭文贵2021年5月9日直播 20210509_1]({{site.baseurl}}/miles/transcript/2021/05/20210509-1091296)
-
-[郭文贵2021年5月9日盖特 20210509_2衷心地祝愿所有天下的母亲．母亲节快乐????????????????????????????????永远平安健康！]({{site.baseurl}}/miles/transcript/2021/05/20210509-1091299)
-
-[郭文贵2021年5月8日盖特 20210508_1七哥要给所有的战友们．每个人准备一个看不着摸不着，却每个人都想要的礼物……作为6月4号的，新中国联邦一周年礼物．大家猜猜是什么呢？]({{site.baseurl}}/miles/transcript/2021/05/20210508-1091287)
-
-[郭文贵2021年5月7日盖特 20210507_1中国共产党这个流氓政府．为什么要在全国封杀购买比特币．和加密货币？只要共产党不让干的事儿，都是世界上最伟大的事儿，只要共产党让干的事儿．一定是世界上最坏的事！]({{site.baseurl}}/miles/transcript/2021/05/20210507-1091276)
-
-
-## 頁面 30/112 [**<**]({{site.baseurl}}/miles/transcript/page29) [1]({{site.baseurl}}/miles/transcript/index) ... [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) **30** [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page31)
+## 頁面 30/113 [**<**]({{site.baseurl}}/miles/transcript/page29) [1]({{site.baseurl}}/miles/transcript/index) ... [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) **30** [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page31)

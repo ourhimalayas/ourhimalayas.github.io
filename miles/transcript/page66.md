@@ -1,7 +1,23 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 66/112 [**<**]({{site.baseurl}}/miles/transcript/page65) [1]({{site.baseurl}}/miles/transcript/index) ... [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) **66** [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page67)
+## 頁面 66/113 [**<**]({{site.baseurl}}/miles/transcript/page65) [1]({{site.baseurl}}/miles/transcript/index) ... [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) **66** [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page67)
+
+[郭文贵2019年11月17日 20191117对香港理工大学即将发生的人道危机提出的个人看法。]({{site.baseurl}}/miles/transcript/2019/11/20191117-1094165)
+
+[2019年11月16日文贵大直播全文字版：报平安直播]({{site.baseurl}}/miles/transcript/2019/11/20191116-1086585)
+
+[郭文贵2019年11月16日 20191116习近平讲话对香港有本质影响；建议香港的孩子们撤离]({{site.baseurl}}/miles/transcript/2019/11/20191116-1093971)
+
+[2019年11月15日郭文贵直播建议香港前线勇武义士战术性转进 在香港沦陷区进入潜伏状态 蛰伏保留实力 全文字版\n]({{site.baseurl}}/miles/transcript/2019/11/20191115-1085770)
+
+[郭文贵2019年11月15日视频 20191115建议香港前线勇武义士战术性转进 在香港沦陷区进入潜伏状态 蛰伏保留实力 文贵去华盛顿办大事；香港法案一定会过]({{site.baseurl}}/miles/transcript/2019/11/20191115-1093968)
+
+[郭文贵2019年11月14日视频 20191114_3在勞斯萊斯上直播 戰友們關心香港的心情我能理解]({{site.baseurl}}/miles/transcript/2019/11/20191114-1089649)
+
+[郭文贵2019年11月14日第二次直播 20191114_2香港一定赢！三分钟香港抗议实况]({{site.baseurl}}/miles/transcript/2019/11/20191114-1093952)
+
+[郭文贵2019年11月14日第一次直播 20191114_1]({{site.baseurl}}/miles/transcript/2019/11/20191114-1093958)
 
 [2019年11月12日文贵大直播全文字版：关于香港最新局势紧急直播]({{site.baseurl}}/miles/transcript/2019/11/20191112-1078972)
 
@@ -37,21 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [2019年11月4日 郭文贵先生直播--四中全会是给香港的巨大礼物，CCP区块链挑战美国核心地位 全文字版]({{site.baseurl}}/miles/transcript/2019/11/20191104-1072004)
 
-[郭文贵2019年11月4日视频 20191104_2没有给SNOW 吃酸奶，他就生气了????……他太现实了]({{site.baseurl}}/miles/transcript/2019/11/20191104-1089637)
 
-[郭文贵2019年11月4日 20191104四中全会是给香港的巨大礼物，CCP区块链挑战美国核心地位]({{site.baseurl}}/miles/transcript/2019/11/20191104-1093852)
-
-[2019年11月3日文贵大直播全文字版：第一次直播 和第二次直播：要进山给大佬讲CCP的区块链]({{site.baseurl}}/miles/transcript/2019/11/20191103-1077257)
-
-[郭文贵2019年11月3日第一次直播 20191103_1在山上小憩时与战友们闲聊]({{site.baseurl}}/miles/transcript/2019/11/20191103-1093845)
-
-[郭文贵2019年11月3日第二次直播 20191103_2文贵要进山给大佬讲CCP的区块链]({{site.baseurl}}/miles/transcript/2019/11/20191103-1093930)
-
-[2019年11月2日文贵大直播全文字版：第一次直播：只有灭共才能让我们更加的安全和幸福，我们有共同的目标……我们有上天赋予的使命;第二次直播：谈共产党即将倒台的三大因素]({{site.baseurl}}/miles/transcript/2019/11/20191102-1070162)
-
-[郭文贵2019年11月2日第二次直播 20191102_2文贵讲成功，胜利和信仰：中国现在像灭亡前的大清朝 谈共产党即将倒台的三大因素]({{site.baseurl}}/miles/transcript/2019/11/20191102-1093913)
-
-[郭文贵2019年11月2日第一次直播 20191102_1在中央公园与战友分享美景]({{site.baseurl}}/miles/transcript/2019/11/20191102-1093919)
-
-
-## 頁面 66/112 [**<**]({{site.baseurl}}/miles/transcript/page65) [1]({{site.baseurl}}/miles/transcript/index) ... [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) **66** [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page67)
+## 頁面 66/113 [**<**]({{site.baseurl}}/miles/transcript/page65) [1]({{site.baseurl}}/miles/transcript/index) ... [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) **66** [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page67)

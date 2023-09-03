@@ -1,7 +1,23 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 67/112 [**<**]({{site.baseurl}}/miles/transcript/page66) [1]({{site.baseurl}}/miles/transcript/index) ... [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) **67** [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page68)
+## 頁面 67/113 [**<**]({{site.baseurl}}/miles/transcript/page66) [1]({{site.baseurl}}/miles/transcript/index) ... [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) **67** [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page68)
+
+[郭文贵2019年11月4日视频 20191104_2没有给SNOW 吃酸奶，他就生气了????……他太现实了]({{site.baseurl}}/miles/transcript/2019/11/20191104-1089637)
+
+[郭文贵2019年11月4日 20191104四中全会是给香港的巨大礼物，CCP区块链挑战美国核心地位]({{site.baseurl}}/miles/transcript/2019/11/20191104-1093852)
+
+[2019年11月3日文贵大直播全文字版：第一次直播 和第二次直播：要进山给大佬讲CCP的区块链]({{site.baseurl}}/miles/transcript/2019/11/20191103-1077257)
+
+[郭文贵2019年11月3日第一次直播 20191103_1在山上小憩时与战友们闲聊]({{site.baseurl}}/miles/transcript/2019/11/20191103-1093845)
+
+[郭文贵2019年11月3日第二次直播 20191103_2文贵要进山给大佬讲CCP的区块链]({{site.baseurl}}/miles/transcript/2019/11/20191103-1093930)
+
+[2019年11月2日文贵大直播全文字版：第一次直播：只有灭共才能让我们更加的安全和幸福，我们有共同的目标……我们有上天赋予的使命;第二次直播：谈共产党即将倒台的三大因素]({{site.baseurl}}/miles/transcript/2019/11/20191102-1070162)
+
+[郭文贵2019年11月2日第二次直播 20191102_2文贵讲成功，胜利和信仰：中国现在像灭亡前的大清朝 谈共产党即将倒台的三大因素]({{site.baseurl}}/miles/transcript/2019/11/20191102-1093913)
+
+[郭文贵2019年11月2日第一次直播 20191102_1在中央公园与战友分享美景]({{site.baseurl}}/miles/transcript/2019/11/20191102-1093919)
 
 [2019年10月30日 郭文贵先生在喜马拉雅大使馆谈区块链 特别节目上集 全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191030-1080376)
 
@@ -37,21 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [2019年10月26日文贵大直播全文版：十九大篡朝较量中错综复杂的关系 中南坑风暴一直在酝酿着]({{site.baseurl}}/miles/transcript/2019/10/20191026-1087429)
 
-[郭文贵2019年10月26日视频 20191026_2【Joe庄随手拍】郭文贵先生爆料：十九大篡朝较量中错综复杂的关系 中南坑风暴一直在酝酿着]({{site.baseurl}}/miles/transcript/2019/10/20191026-1089605)
 
-[郭文贵2019年10月26日 20191026文贵和战友谈北京局势和四中]({{site.baseurl}}/miles/transcript/2019/10/20191026-1093774)
-
-[2019年10月25日郭文贵先生第二次直播--谈中国同胞39名惨死偷渡英国途中，解读彭斯演讲，四中全会党内将人头滚滚 全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191025-1071962)
-
-[2019年10月25日文贵大直播全文字版：再谈直播彭斯副总统演讲的重大意义]({{site.baseurl}}/miles/transcript/2019/10/20191025-1087428)
-
-[郭文贵2019年10月25日第二次直播 20191025_2直播谈中国同胞39名惨死偷渡英国途中，文贵先生解读彭斯演讲，四中全会党内将人头滚滚]({{site.baseurl}}/miles/transcript/2019/10/20191025-1093761)
-
-[郭文贵2019年10月25日第一次直播 20191025_1跟路德再谈直播彭斯副总统演讲的重大意义]({{site.baseurl}}/miles/transcript/2019/10/20191025-1093770)
-
-[2019年10月24日文贵大直播全文字版：谈彭斯副总统演讲]({{site.baseurl}}/miles/transcript/2019/10/20191024-1087427)
-
-[郭文贵2019年10月24日 20191024谈彭斯副总统演讲]({{site.baseurl}}/miles/transcript/2019/10/20191024-1093743)
-
-
-## 頁面 67/112 [**<**]({{site.baseurl}}/miles/transcript/page66) [1]({{site.baseurl}}/miles/transcript/index) ... [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) **67** [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page68)
+## 頁面 67/113 [**<**]({{site.baseurl}}/miles/transcript/page66) [1]({{site.baseurl}}/miles/transcript/index) ... [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) **67** [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page68)

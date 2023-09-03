@@ -1,7 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 5/112 [**<**]({{site.baseurl}}/miles/transcript/page4) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) **5** [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page6)
+## 頁面 5/113 [**<**]({{site.baseurl}}/miles/transcript/page4) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) **5** [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page6)
 
 [郭文贵2022年9月14日盖特 20220914_1尊敬的战友们好小视频来了……]({{site.baseurl}}/miles/transcript/2022/09/20220914-1092332)
 
@@ -14,6 +14,22 @@ title: 郭文貴先生的視頻文字
 [郭文贵2022年9月11日直播 20220911_1七哥与战友们聊聊共产党会如何崩溃]({{site.baseurl}}/miles/transcript/2022/09/20220911-1091864)
 
 [郭文贵2022年9月10日直播 20220910_1回響 ∙ 水调歌头 2022年中秋特别节目]({{site.baseurl}}/miles/transcript/2022/09/20220910-1091817)
+
+[2022年8月1日 郭文贵先生谈8月1日法庭听证会和我们将面对的挑战 全文字版]({{site.baseurl}}/miles/transcript/2022/08/20220801-1637328)
+
+[2022年7月31日《文贵大直播》全文字版]({{site.baseurl}}/miles/transcript/2022/07/20220731-1637321)
+
+[2022年7月29日文贵先生《吃播》全文字版]({{site.baseurl}}/miles/transcript/2022/07/20220729-1637314)
+
+[2022年7月27日《文贵大直播》关于佩洛西访台等全文字版]({{site.baseurl}}/miles/transcript/2022/07/20220727-1637307)
+
+[2022年7月24日  郭文贵先生直播 全文字版]({{site.baseurl}}/miles/transcript/2022/07/20220724-1637296)
+
+[2022年7月22日郭文贵先生乱聊直播 全文字版]({{site.baseurl}}/miles/transcript/2022/07/20220722-1637288)
+
+[2022年7月21日 郭文贵先生乱聊直播 全文字版]({{site.baseurl}}/miles/transcript/2022/07/20220721-1637278)
+
+[2022年7月20日《文贵大直播》全文字版]({{site.baseurl}}/miles/transcript/2022/07/20220720-1637270)
 
 [2022年7月19日郭文贵先生乱聊直播 全文字版]({{site.baseurl}}/miles/transcript/2022/07/20220719-1628726)
 
@@ -37,21 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [2022年6月28日《文贵大直播》全文字版]({{site.baseurl}}/miles/transcript/2022/06/20220628-1573683)
 
-[2022年6月27日  郭文贵先生和战友互动聊天直播 全文字版]({{site.baseurl}}/miles/transcript/2022/06/20220627-1573679)
 
-[2022年6月24日《文贵大直播》全文字版]({{site.baseurl}}/miles/transcript/2022/06/20220624-1573674)
-
-[2022年6月22日文贵出山大直播全文字版（一）]({{site.baseurl}}/miles/transcript/2022/06/20220622-1573665)
-
-[2022年6月22日《文贵大直播》全文字版（二）]({{site.baseurl}}/miles/transcript/2022/06/20220622-1573670)
-
-[2022年6月19日《文贵大直播：潜水艇逃出墙内特别专场》全文字版]({{site.baseurl}}/miles/transcript/2022/06/20220619-1573657)
-
-[2022年6月17日《文贵大直播》全文字版]({{site.baseurl}}/miles/transcript/2022/06/20220617-1573651)
-
-[2022年6月15日《郭文贵先生大直播》——MOS《回响》专场全文字版]({{site.baseurl}}/miles/transcript/2022/06/20220615-1573648)
-
-[2022年6月12日《文贵大直播》全文字版]({{site.baseurl}}/miles/transcript/2022/06/20220612-1573644)
-
-
-## 頁面 5/112 [**<**]({{site.baseurl}}/miles/transcript/page4) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) **5** [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page6)
+## 頁面 5/113 [**<**]({{site.baseurl}}/miles/transcript/page4) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) **5** [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page6)

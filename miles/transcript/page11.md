@@ -1,7 +1,23 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 11/112 [**<**]({{site.baseurl}}/miles/transcript/page10) [1]({{site.baseurl}}/miles/transcript/index) ... [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) **11** [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page12)
+## 頁面 11/113 [**<**]({{site.baseurl}}/miles/transcript/page10) [1]({{site.baseurl}}/miles/transcript/index) ... [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) **11** [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page12)
+
+[郭文贵2022年2月9日直播 20220209_1UBS正式立案 打响沼泽地的第一仗；习普政治困局；中美俄三角斗；药厂政策调整；药厂政府互掐；何为全球货币；七哥个人生活]({{site.baseurl}}/miles/transcript/2022/02/20220209-1090495)
+
+[郭文贵2022年2月8日盖特 20220208_1尊敬的战友们好，你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？今天可能将是我文贵人生的前半生和后半生的分水岭的一天．今天我将有个很大的决定，明天直播时再向大家汇报，一切都已]({{site.baseurl}}/miles/transcript/2022/02/20220208-1090659)
+
+[郭文贵2022年2月8日盖特 20220208_2尊敬的战友们好！今天早上发出盖特以后，很多战友关心是我要公布什么事？七哥要公布是很小很小的个人事儿，只是和我个人有关……和其他没有关系，请大家不要多想，谢谢！]({{site.baseurl}}/miles/transcript/2022/02/20220208-1090662)
+
+[郭文贵2022年2月7日盖特 20220207_1尊敬的战友们好你们健身了吗？几天来，中国绑架妇女的事件……强烈的震撼了我……让我感到自责．后悔．为是那个地方的人．感到极为的可耻，我们必须消灭共产党，拯救同胞拯救人类．行动]({{site.baseurl}}/miles/transcript/2022/02/20220207-1090658)
+
+[郭文贵2022年2月6日直播 20220206_1开幕式后普京愤然离去；中俄战略合作虎头蛇尾；贩卖人口中国妇女地位；反疫苗运动及美国经济]({{site.baseurl}}/miles/transcript/2022/02/20220206-1090392)
+
+[郭文贵2022年2月6日盖特 20220206_2尊敬的战友们好！关于如何使用GTV帮助加拿大卡车反疫苗运动的几点声明！]({{site.baseurl}}/miles/transcript/2022/02/20220206-1090654)
+
+[郭文贵2022年2月5日盖特 20220205_1尊敬的战友们好！所谓的冬奥会开幕式后，所有的参加的外国来宾和现场的战友们的反馈，就是这．三句话……]({{site.baseurl}}/miles/transcript/2022/02/20220205-1090314)
+
+[郭文贵2022年2月4日直播 20220204_1]({{site.baseurl}}/miles/transcript/2022/02/20220204-1090255)
 
 [郭文贵2022年2月4日直播 20220204_2冬奥会媒体中心与世界冲突；灭共的雪轰轰烈烈漫山遍野；美国世界经济状况摇摇欲坠；HPay数字货币市场谁主沉浮]({{site.baseurl}}/miles/transcript/2022/02/20220204-1090306)
 
@@ -37,21 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2022年1月25日盖特 20220125_3大功告成……馍馍出锅……]({{site.baseurl}}/miles/transcript/2022/01/20220125-1089791)
 
-[郭文贵2022年1月25日直播 20220125_1紧急直播：甜蜜蜜运动重大公告Breaking Live：Important Announcement-Tianmimi(Sweet as Honey)Movement]({{site.baseurl}}/miles/transcript/2022/01/20220125-1089924)
 
-[郭文贵2022年1月24日盖特 20220124_2尊敬的战友们好……你们健身了吗？在今天大直播后，在整个中共国甜蜜蜜这首歌，已经完全找不到了，爆料革命和新中国联邦到底有多大的力量？从共产党将盘古龙头变成龟头……又将甜蜜蜜这]({{site.baseurl}}/miles/transcript/2022/01/20220124-1089784)
-
-[郭文贵2022年1月24日直播 20220124_1最近几天全球疫苗政策变化和疫苗灾难信息；这两天北京发生了什么-冬奥会最新进展；最新世界经济金融故股市的重大变化]({{site.baseurl}}/miles/transcript/2022/01/20220124-1089872)
-
-[郭文贵2022年1月23日盖特 20220123_1尊敬和战友们好，你们健身了吗？传播CC P病毒．疫苗解药的真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2022/01/20220123-1089782)
-
-[郭文贵2022年1月22日直播 20220122_1文贵吃播：展示最新款GFashion时尚帽子]({{site.baseurl}}/miles/transcript/2022/01/20220122-1089747)
-
-[郭文贵2022年1月22日盖特 20220122_2尊敬的战友们好，你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？一切已经开始【相关美股区块链概念股也纷纷走低。Coinbase ( COIN.O ) 一度跌 11.42%，Riot Blockchain ( RIOT.O ) 一度跌 8.4%，嘉楠科技]({{site.baseurl}}/miles/transcript/2022/01/20220122-1089773)
-
-[郭文贵2022年1月22日盖特 20220122_3尊敬的战友们好……收到了很多战友发来的各种信息……喜欢今天直播时带的帽子！七哥为了补偿战友们要等2天甚至3天后的直播．七哥决定现在脱录一段，让战友们开心开心！]({{site.baseurl}}/miles/transcript/2022/01/20220122-1089777)
-
-[郭文贵2022年1月21日直播 20220121_1全球疫苗政策与政治；冬奥会政治国际影响；邓小平南巡 江 曾 王 孟 ；喜币投资与喜币未来；中共大撒币与蓝金黄；盗国贼盗取人民财富]({{site.baseurl}}/miles/transcript/2022/01/20220121-1089622)
-
-
-## 頁面 11/112 [**<**]({{site.baseurl}}/miles/transcript/page10) [1]({{site.baseurl}}/miles/transcript/index) ... [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) **11** [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page12)
+## 頁面 11/113 [**<**]({{site.baseurl}}/miles/transcript/page10) [1]({{site.baseurl}}/miles/transcript/index) ... [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) **11** [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page12)

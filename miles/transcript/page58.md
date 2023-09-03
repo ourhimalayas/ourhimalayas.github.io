@@ -1,7 +1,23 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 58/112 [**<**]({{site.baseurl}}/miles/transcript/page57) [1]({{site.baseurl}}/miles/transcript/index) ... [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) **58** [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page59)
+## 頁面 58/113 [**<**]({{site.baseurl}}/miles/transcript/page57) [1]({{site.baseurl}}/miles/transcript/index) ... [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) **58** [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page59)
+
+[郭文贵2020年4月5日GTV炖羊肉 20200405_1郭先生直播做饭 炖羊肉【完整版】]({{site.baseurl}}/miles/transcript/2020/04/20200405-1089793)
+
+[郭文贵2020年4月5日GTV视频 20200405_2和路德直播]({{site.baseurl}}/miles/transcript/2020/04/20200405-1092077)
+
+[郭文贵2020年4月5日GTV视频 20200405_3与路德，橄榄枝在GTV]({{site.baseurl}}/miles/transcript/2020/04/20200405-1092084)
+
+[郭文贵2020年4月4日GTV视频 20200404_3 如何看待不同层次战友对爆料革命不同的理解，以及共产党春风荡漾全世界的大外宣革命。]({{site.baseurl}}/miles/transcript/2020/04/20200404-1088924)
+
+[郭文贵2020年4月4日GTV视频 20200404_4与sara连线第一次]({{site.baseurl}}/miles/transcript/2020/04/20200404-1088937)
+
+[郭文贵2020年4月4日GTV视频 20200404_5与sara连线第二次]({{site.baseurl}}/miles/transcript/2020/04/20200404-1088954)
+
+[郭文贵2020年4月4日视频 20200404_2文贵烦请战友们提供这些关乎香港命运的资料，美国决策层急需！]({{site.baseurl}}/miles/transcript/2020/04/20200404-1089781)
+
+[郭文贵2020年4月4日 20200404谈CCP病毒让人类陷入巨大灾难，明年5月份前不可能解决，CCP必灭只是时间问题！]({{site.baseurl}}/miles/transcript/2020/04/20200404-1092042)
 
 [郭文贵2020年4月3日GTV视频 20200403_4]({{site.baseurl}}/miles/transcript/2020/04/20200403-1088921)
 
@@ -37,21 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2020年3月27日视频 20200327_4]({{site.baseurl}}/miles/transcript/2020/03/20200327-1089820)
 
-[郭文贵2020年3月27日视频 20200327_5笨笨从来没犯过错，就是跑得慢。]({{site.baseurl}}/miles/transcript/2020/03/20200327-1089821)
 
-[郭文贵2020年3月27日 20200327_1关于庄列宏，辱骂战友和天津大姐，辱骂小皮匠文贵的看法 一切美好再也回不到今天了]({{site.baseurl}}/miles/transcript/2020/03/20200327-1091905)
-
-[郭文贵2020年3月26日视频 20200326_1]({{site.baseurl}}/miles/transcript/2020/03/20200326-1089809)
-
-[郭文贵2020年3月26日视频 20200326_2]({{site.baseurl}}/miles/transcript/2020/03/20200326-1089812)
-
-[郭文贵2020年3月25日 20200325警示9千万党员不要成为皇帝死前的陪葬，不要成为CCP灭亡前的第一个牺牲品！CCP会把中国的经济带回1989年以前！此时的世界面对的只有生和死！]({{site.baseurl}}/miles/transcript/2020/03/20200325-1091899)
-
-[郭文贵2020年3月23日警示好好活着 20200323好好活着，一年后再想着上班赚钱]({{site.baseurl}}/miles/transcript/2020/03/20200323-1091875)
-
-[郭文贵2020年3月22日视频 20200322_1關於舉報Inty]({{site.baseurl}}/miles/transcript/2020/03/20200322-1089792)
-
-[郭文贵2020年3月22日视频 20200322_2關於舉報Inty]({{site.baseurl}}/miles/transcript/2020/03/20200322-1089794)
-
-
-## 頁面 58/112 [**<**]({{site.baseurl}}/miles/transcript/page57) [1]({{site.baseurl}}/miles/transcript/index) ... [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) **58** [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page59)
+## 頁面 58/113 [**<**]({{site.baseurl}}/miles/transcript/page57) [1]({{site.baseurl}}/miles/transcript/index) ... [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) **58** [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page59)

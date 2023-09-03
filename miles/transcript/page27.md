@@ -1,7 +1,23 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 27/112 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page28)
+## 頁面 27/113 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page28)
+
+[郭文贵2021年6月28日盖特 20210628_2尊敬的战友们好，在香港和北京发生的大爆炸，死了很多人，为什么共产党要掩盖这些真相呢？]({{site.baseurl}}/miles/transcript/2021/06/20210628-1091637)
+
+[郭文贵2021年6月28日盖特 20210628_3七哥和約翰哥哥討論蓋特功能改善]({{site.baseurl}}/miles/transcript/2021/06/20210628-1091708)
+
+[郭文贵2021年6月27日直播 20210627_1文贵对国内战友的经济警告：国内金融机构即将崩塌，战友们要做好准备，但不要屯粮！共产党所谓的“百年大庆”，是百年作恶，百年屈辱，共产党彻底完了！]({{site.baseurl}}/miles/transcript/2021/06/20210627-1091611)
+
+[郭文贵2021年6月27日盖特 20210627_2鸳鸯饼鸳鸯饼来喽……]({{site.baseurl}}/miles/transcript/2021/06/20210627-1091634)
+
+[郭文贵2021年6月26日盖特 20210626_1大连和香港所谓被侦破的……破坏共匪百年冥寿……案件是怎么一回事？]({{site.baseurl}}/miles/transcript/2021/06/20210626-1091630)
+
+[郭文贵2021年6月26日盖特 20210626_2尊敬的兄弟姐妹们好，我常用的那个手机号又被黑了，请战友们互相通告，尽快加上我的新的联系方式！]({{site.baseurl}}/miles/transcript/2021/06/20210626-1091633)
+
+[郭文贵2021年6月25日直播 20210625_1国际形势已发生重大变化；西方对华人看法的改变；西方在南海有统一行动；一旦病毒来源确定，将对中南坑直接斩首！]({{site.baseurl}}/miles/transcript/2021/06/20210625-1091580)
+
+[郭文贵2021年6月24日盖特 20210624_1尊敬的战友们好……共产党的内部斗争，加速了侵略台湾的可能！新中国联邦……绝对不能成为自私投机贪婪人的发财平台！]({{site.baseurl}}/miles/transcript/2021/06/20210624-1091592)
 
 [郭文贵2021年6月24日盖特 20210624_2第二段：关于很多想加入GTV工作的战友们的一些问题的回复！]({{site.baseurl}}/miles/transcript/2021/06/20210624-1091596)
 
@@ -37,21 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2021年6月14日直播 20210614_1马云投资吴征的秘密；韩正力保吴征的原因；新盖特Logo的涵义；7.17看文贵大招]({{site.baseurl}}/miles/transcript/2021/06/20210614-1091516)
 
-[郭文贵2021年6月14日直播 20210614_2多方连线直播测试]({{site.baseurl}}/miles/transcript/2021/06/20210614-1091534)
 
-[郭文贵2021年6月14日盖特 20210614_3]({{site.baseurl}}/miles/transcript/2021/06/20210614-1091543)
-
-[郭文贵2021年6月13日直播 20210613_1董宏受专案组虐待，交代了王岐山，吴征，孙力军，孟建柱对文贵专案组的任务，花费上亿美元；只有爆料革命每天都在改变着中南坑；明年影响人类命运的4个选举，3大的政治变化；战友们一定要]({{site.baseurl}}/miles/transcript/2021/06/20210613-1091567)
-
-[郭文贵2021年6月12日盖特 20210612_2尊敬的战友们好．美国司法部全面介入调查，2020年美国总统大选！和美国司法部公诉孟建柱的私生子刘特左．将对在美国潜伏的特务网．吴争……韦石……等．开始全面司法机调查．中南坑老杂毛]({{site.baseurl}}/miles/transcript/2021/06/20210612-1091498)
-
-[郭文贵2021年6月12日直播 20210612_1新盖特，盖特Pay将是全球的领导者；爆料革命不要急功近利，任何时候都要无我；爆料革命，新中国联邦，法治基金，将永远在我们的生命之上，成为我们的信仰！]({{site.baseurl}}/miles/transcript/2021/06/20210612-1091549)
-
-[郭文贵2021年6月11日盖特 20210611_1尊敬的战友们好！回应战友们！这几天给我发的信息．有关路德访谈和科学家访谈！当中的一系列的不好的感觉！我们一定要记住，唯真不破．知恩感恩的．爆料革命团结是一切根本性的原则！只]({{site.baseurl}}/miles/transcript/2021/06/20210611-1091536)
-
-[郭文贵2021年6月10日盖特 20210610_1今天上午10:30在国会山询问关于闫博士来美国，以及他给美国政府的报告的有关事情！说明了什么？新中国联邦和爆料革命走到今天实在实在太不容易，无数个背后的伟大的．有巨大成功的影响力的]({{site.baseurl}}/miles/transcript/2021/06/20210610-1091530)
-
-[郭文贵2021年6月9日盖特 20210609_1尊敬的战友们好！复旦．南京等地区爆发的一系列的抗议事件．和在中共国的国内发生一系列的残暴杀人……都是共产党奴隶抢夺和非法统治中国人民必然发生的一个轮回的结果，欧中协议失败和]({{site.baseurl}}/miles/transcript/2021/06/20210609-1091526)
-
-
-## 頁面 27/112 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page28)
+## 頁面 27/113 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page28)

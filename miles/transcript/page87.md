@@ -1,7 +1,23 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 87/112 [**<**]({{site.baseurl}}/miles/transcript/page86) [1]({{site.baseurl}}/miles/transcript/index) ... [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) **87** [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page88)
+## 頁面 87/113 [**<**]({{site.baseurl}}/miles/transcript/page86) [1]({{site.baseurl}}/miles/transcript/index) ... [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) **87** [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page88)
+
+[郭文贵2019年1月13日视频 20190113_1班農已確定參加春晚爆料, Absolutely]({{site.baseurl}}/miles/transcript/2019/01/20190113-1089022)
+
+[郭文贵2019年1月13日视频 20190113_2看看我的新車 多酷]({{site.baseurl}}/miles/transcript/2019/01/20190113-1089029)
+
+[郭文贵2019年1月12日视频 20190112_2早起準備接受90後的戰友楚門世界的採訪]({{site.baseurl}}/miles/transcript/2019/01/20190112-1089019)
+
+[郭文贵2019年1月12日 20190112接受《楚门看世界采访》老百姓怕共产党，共产党怕洋人 9，有钱人欺负穷人，但是怕政府；官员怕中纪委，中纪委怕证据 10，陈刚是中国政坛唯一横跨三届的官员 11 张海]({{site.baseurl}}/miles/transcript/2019/01/20190112-1092205)
+
+[郭文贵2019年1月11日视频 20190111_2國內現在都明白了, 甚麼反腐運動, 王八蛋反腐, 實際上都是滅口運動]({{site.baseurl}}/miles/transcript/2019/01/20190111-1089016)
+
+[郭文贵2019年1月11日视频 20190111中央電視台大樓整個設計本人全面參與, 班農將在春晚講述在白宮的親身經歷]({{site.baseurl}}/miles/transcript/2019/01/20190111-1092587)
+
+[郭文贵2019年1月10日视频 20190110文贵请战友投票决定：文贵看春晚包不包...]({{site.baseurl}}/miles/transcript/2019/01/20190110-1092156)
+
+[郭文贵2019年1月9日视频 20190109_1袁建斌败诉后会赔多少钱？美国的法律会给出答案]({{site.baseurl}}/miles/transcript/2019/01/20190109-1089010)
 
 [郭文贵2019年1月8日视频 20190108春晚搞不搞，听听战友们的心声]({{site.baseurl}}/miles/transcript/2019/01/20190108-1092417)
 
@@ -37,21 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2018年12月27日视频 20181227 原马健副部长所谓的被判无期徒刑是中共“以黑治国”“以警治国”最好的证明！郭文贵将不惜一切代价为马健先生及绝大多数被残害的共产党员争取公平！真相！还他们自由！]({{site.baseurl}}/miles/transcript/2018/12/20181227-1091983)
 
-[郭文贵2018年12月26日视频 20181226_1辽宁沈阳对罚款600亿人民币维持原判．限期30天内交罚款！文贵的三个压力二个高兴！]({{site.baseurl}}/miles/transcript/2018/12/20181226-1088972)
 
-[郭文贵2018年12月24日视频 20181224_1文贵衷心祝愿所有的伟大的战友及家人！14亿同胞！全世界的人们圣诞快乐]({{site.baseurl}}/miles/transcript/2018/12/20181224-1088969)
-
-[郭文贵2018年12月23日视频 20181223_1我们这两天加班，完成了对Sam Nunberg 和吴征的重新起诉，索赔，这是个大事！媒体高度关注！]({{site.baseurl}}/miles/transcript/2018/12/20181223-1088965)
-
-[郭文贵2018年12月22日视频 20181222_2我與Snow和大家聊聊天]({{site.baseurl}}/miles/transcript/2018/12/20181222-1088962)
-
-[郭文贵2018年12月22日直播 20181222谈中美两国夫妻关系及刘特佐是否会被孟建柱做掉 共产党在香港所谓的商政双轨制的控制手段]({{site.baseurl}}/miles/transcript/2018/12/20181222-1091968)
-
-[郭文贵2018年12月21日视频 20181221_1昨天美國司法部的行動還不是特別大的事 大事還沒開始呢 明年三月才開始 那時候可就不是亂扔刀叉這個級別的了]({{site.baseurl}}/miles/transcript/2018/12/20181221-1088961)
-
-[郭文贵2018年12月20日视频 20181220要對你的嫂子好 對你的弟妹好 你的運氣才會好]({{site.baseurl}}/miles/transcript/2018/12/20181220-1094208)
-
-[郭文贵2018年12月19日视频 20181219改革開放40年大會確定要往回走 大家準備吃草吧]({{site.baseurl}}/miles/transcript/2018/12/20181219-1094206)
-
-
-## 頁面 87/112 [**<**]({{site.baseurl}}/miles/transcript/page86) [1]({{site.baseurl}}/miles/transcript/index) ... [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) **87** [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page88)
+## 頁面 87/113 [**<**]({{site.baseurl}}/miles/transcript/page86) [1]({{site.baseurl}}/miles/transcript/index) ... [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) **87** [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page88)

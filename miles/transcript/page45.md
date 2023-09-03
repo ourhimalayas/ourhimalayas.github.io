@@ -1,7 +1,23 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 45/112 [**<**]({{site.baseurl}}/miles/transcript/page44) [1]({{site.baseurl}}/miles/transcript/index) ... [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) **45** [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page46)
+## 頁面 45/113 [**<**]({{site.baseurl}}/miles/transcript/page44) [1]({{site.baseurl}}/miles/transcript/index) ... [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) **45** [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page46)
+
+[郭文贵2020年11月18日盖特 20201118尊敬的戰友，你們健身了嗎？你們傳播CCP病毒……香港危機真相了嗎？一切都已經開始！]({{site.baseurl}}/miles/transcript/2020/11/20201118-1093215)
+
+[郭文贵2020年11月17日盖特 2020111772小時會不會发生啊？]({{site.baseurl}}/miles/transcript/2020/11/20201117-1093220)
+
+[郭文贵2020年11月15日视频 20201115_6直播连线唐平，威廉王]({{site.baseurl}}/miles/transcript/2020/11/20201115-1089043)
+
+[郭文贵2020年11月15日视频 20201115_7文贵直播连线唐平和威廉王 第二部分]({{site.baseurl}}/miles/transcript/2020/11/20201115-1089047)
+
+[郭文贵2020年11月15日视频 20201115_5 來自白宮表示：昨天的遊行，深深影響美國人對新中國聯邦的看法]({{site.baseurl}}/miles/transcript/2020/11/20201115-1090033)
+
+[郭文贵2020年11月15日盖特 20201115_1衷心地感谢新……中新国联邦人．为我们中国人．在11月14号在华盛顿地区的游行中展示的团结．伟大的精神面貌！]({{site.baseurl}}/miles/transcript/2020/11/20201115-1093169)
+
+[郭文贵2020年11月15日盖特 20201115_2衷心地感谢新……中新国联邦人．为我们中国人．在11月14号在华盛顿地区的游行中展示的团结．伟大的精神面貌！]({{site.baseurl}}/miles/transcript/2020/11/20201115-1093183)
+
+[郭文贵2020年11月15日盖特 20201115_32心地感谢新……中新国联邦人．为我们中国人．在11月14号在华盛顿地区的游行中展示的团结．伟大的精神面貌！]({{site.baseurl}}/miles/transcript/2020/11/20201115-1093185)
 
 [郭文贵2020年11月15日直播 20201115_4连线唐平，威廉王]({{site.baseurl}}/miles/transcript/2020/11/20201115-1093212)
 
@@ -37,21 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2020年11月8日盖特 20201108_3文贵喝完下午茶……抽雪茄抽醉了，在此……和战友聊聊……到底美国大选谁能赢？？为什么？我们为什么支持川普总统？]({{site.baseurl}}/miles/transcript/2020/11/20201108-1093132)
 
-[郭文贵2020年11月8日盖特 20201108_4记得文贵去过亚利桑娜州吧，我们今天将等来亚利桑娜州的重大利好信息！]({{site.baseurl}}/miles/transcript/2020/11/20201108-1093137)
 
-[郭文贵2020年11月7日直播 20201107_1美国大选后文贵一起直播 第一段]({{site.baseurl}}/miles/transcript/2020/11/20201107-1093082)
-
-[郭文贵2020年11月7日直播 20201107_2美国大选后文贵一起直播 - 第二段]({{site.baseurl}}/miles/transcript/2020/11/20201107-1093094)
-
-[郭文贵2020年10月27日盖特 20201027太长时间没有直播，没有发照片，很多战友一直在关心和想念．惦记着文贵…你们发来的信息都收到了，今天我到了另外一个地方…录了一]({{site.baseurl}}/miles/transcript/2020/10/20201027-1093066)
-
-[郭文贵2020年10月20日语音 20201020这个世界上没有信仰的魔鬼的时代它已经在。” “共产党不灭，未来人类上不可能有后来的15年]({{site.baseurl}}/miles/transcript/2020/10/20201020-1093069)
-
-[郭文贵2020年10月14日盖特 20201014兄弟姐妹们你们可搂住、明天放亨特拜登照片的时候......很黄很黄...不要让孩子们看阿.]({{site.baseurl}}/miles/transcript/2020/10/20201014-1093130)
-
-[郭文贵2020年10月13日直播 20201013文贵关于Gclub和GFashion上线前有关问题的声明直播]({{site.baseurl}}/miles/transcript/2020/10/20201013-1093154)
-
-[郭文贵2020年10月12日盖特 20201012_1爆料革命这碗洒……????????????敬天．敬地．敬战友！]({{site.baseurl}}/miles/transcript/2020/10/20201012-1093124)
-
-
-## 頁面 45/112 [**<**]({{site.baseurl}}/miles/transcript/page44) [1]({{site.baseurl}}/miles/transcript/index) ... [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) **45** [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page46)
+## 頁面 45/113 [**<**]({{site.baseurl}}/miles/transcript/page44) [1]({{site.baseurl}}/miles/transcript/index) ... [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) **45** [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page46)

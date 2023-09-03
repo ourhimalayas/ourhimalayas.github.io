@@ -1,7 +1,23 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 48/112 [**<**]({{site.baseurl}}/miles/transcript/page47) [1]({{site.baseurl}}/miles/transcript/index) ... [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) **48** [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page49)
+## 頁面 48/113 [**<**]({{site.baseurl}}/miles/transcript/page47) [1]({{site.baseurl}}/miles/transcript/index) ... [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) **48** [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page49)
+
+[郭文贵2020年9月8日直播 20200908文贵与战友以歌灭共的新时代]({{site.baseurl}}/miles/transcript/2020/09/20200908-1092771)
+
+[郭文贵2020年9月7日盖特 20200907尊敬的战友们好，你们健身了吗？你们传统播C C P病毒．香港危机真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2020/09/20200907-1092749)
+
+[郭文贵2020年9月7日做客战斗室 20200907_2]({{site.baseurl}}/miles/transcript/2020/09/20200907-1093004)
+
+[郭文贵2020年9月5日直播 20200905向战友们展示一下G翻身的新到的帽子和新到的裤子短暂的直播一下．文贵还有视频会议非常的抱歉．不能时间太长]({{site.baseurl}}/miles/transcript/2020/09/20200905-1092736)
+
+[郭文贵2020年9月5日做客战斗室 20200905_2]({{site.baseurl}}/miles/transcript/2020/09/20200905-1093013)
+
+[郭文贵2020年9月4日盖特 202009049月4号 衷心的感谢????????????????????????????国内外的战友，因为昨天大连法院．没收了我家人和同事的65套房子。我的很多家人和同事被赶到大街上去……]({{site.baseurl}}/miles/transcript/2020/09/20200904-1092732)
+
+[郭文贵2020年9月3日盖特 202009039月3号 尊敬的战友们好．全球联合灭共！和全球联合依法灭贼！进入了新的时代，为了维护新中国联邦……和战友们安全．与利益。和家人应有的尊]({{site.baseurl}}/miles/transcript/2020/09/20200903-1092730)
+
+[郭文贵2020年9月1日直播 20200901我们的GTV首次使用OBS全功能平台摄像机直播共产党在蒙古正在幻想灭族罪。]({{site.baseurl}}/miles/transcript/2020/09/20200901-1092721)
 
 [郭文贵2020年9月1日盖特 20200901_29月1号 尊敬的战友们好，你们健身了吗？传播C C P病毒．香港危机真相了吗？感谢战友们的文字。昨天这跑调的歌声的包容和支持，希望不要再传]({{site.baseurl}}/miles/transcript/2020/09/20200901-1092727)
 
@@ -37,21 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2020年8月23日直播 20200823_1大家记住一定要今天文贵信的内容；中共制造经济危机，人道危机，人类面临大劫难；美国与中共脱钩为时已晚]({{site.baseurl}}/miles/transcript/2020/08/20200823-1092604)
 
-[郭文贵2020年8月23日盖特 20200823_28月23日，尊敬的战友们好，你们健身了吗？你们传播C C P病毒香港危机真相了吗？一切都已经开始了！]({{site.baseurl}}/miles/transcript/2020/08/20200823-1092618)
 
-[郭文贵2020年8月22日连线木兰 20200822_1木兰与七哥试直播]({{site.baseurl}}/miles/transcript/2020/08/20200822-1092577)
-
-[郭文贵2020年8月22日连线秘密翻译组 20200822_2周六连线秘密翻译组 - 火辣爆料！]({{site.baseurl}}/miles/transcript/2020/08/20200822-1092600)
-
-[郭文贵2020年8月22日盖特 20200822_38月22号 尊敬的战友们好，你们健身了吗？你们传播C C P病毒香港危机真相了吗？一小时候907在秘密翻译组．GTV连线直播见，一切都已经开始！]({{site.baseurl}}/miles/transcript/2020/08/20200822-1092615)
-
-[郭文贵2020年8月21日盖特 202008218月21号 尊敬的战友们好，你们健身了吗？你们传播C C P病毒．香港危机真相了吗？从班农先生的事件……看中美两国真正的巨大差异，一切都已经开]({{site.baseurl}}/miles/transcript/2020/08/20200821-1092522)
-
-[郭文贵2020年8月21日盖特 20200821_28月21号 我们要让吴争．马云．哀立搏一敌．泥扣大V死．华尔街的．死地方夫汶……一个个地为共产党效劳，伤害，爆料革命的人付出必须付出代]({{site.baseurl}}/miles/transcript/2020/08/20200821-1092610)
-
-[郭文贵2020年8月20日直播 20200820_1文贵紧急直播：班农先生被捕是共产党的垂死反击，只会让灭共意志更坚定，让灭共力量更强大！]({{site.baseurl}}/miles/transcript/2020/08/20200820-1092739)
-
-[郭文贵2020年8月20日盖特 20200820_28月20号 尊敬的战友们好，我一直以来所说的。新中国联邦．爆料革命灭共运动，在八月份．九月份是最重要的]({{site.baseurl}}/miles/transcript/2020/08/20200820-1092748)
-
-
-## 頁面 48/112 [**<**]({{site.baseurl}}/miles/transcript/page47) [1]({{site.baseurl}}/miles/transcript/index) ... [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) **48** [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page49)
+## 頁面 48/113 [**<**]({{site.baseurl}}/miles/transcript/page47) [1]({{site.baseurl}}/miles/transcript/index) ... [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) **48** [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page49)

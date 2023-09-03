@@ -1,7 +1,23 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 65/112 [**<**]({{site.baseurl}}/miles/transcript/page64) [1]({{site.baseurl}}/miles/transcript/index) ... [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) **65** [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page66)
+## 頁面 65/113 [**<**]({{site.baseurl}}/miles/transcript/page64) [1]({{site.baseurl}}/miles/transcript/index) ... [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) **65** [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page66)
+
+[郭文贵2019年11月27日视频 20191127_2香港有大陆法，信天主教和讲英文是高于台湾的原因]({{site.baseurl}}/miles/transcript/2019/11/20191127-1089681)
+
+[郭文贵2019年11月27日 20191127再谈《香港人权与民主法案》,川普签署法案的前一分钟，中共仍在勾兑；CCP在疆狂杀滥捕甚于魔鬼]({{site.baseurl}}/miles/transcript/2019/11/20191127-1094080)
+
+[郭文贵2019年11月26日 20191126文贵与比尔.戈兹喜马拉雅大使馆直播并谈新书]({{site.baseurl}}/miles/transcript/2019/11/20191126-1094062)
+
+[郭文贵2019年11月25日视频 20191125_1出庭作證]({{site.baseurl}}/miles/transcript/2019/11/20191125-1089678)
+
+[郭文贵2019年11月24日视频 20191124_2今天這個日子太重要了 大家都看到了 共產黨買票行賄控制威脅 甚麼手段都來]({{site.baseurl}}/miles/transcript/2019/11/20191124-1089671)
+
+[郭文贵2019年11月24日视频 20191124_3为了庆祝香港区议会选举的伟大胜利，今天我们要做了家常菜来庆祝庆祝，一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/11/20191124-1089673)
+
+[郭文贵2019年11月24日视频 20191124_4 燉魚頭慶賀香港區議員選舉大贏]({{site.baseurl}}/miles/transcript/2019/11/20191124-1089675)
+
+[郭文贵2019年11月24日 20191124马装助威香港公投选举议员]({{site.baseurl}}/miles/transcript/2019/11/20191124-1093943)
 
 [郭文贵2019年11月23日视频 20191123川普总统在福克斯电台爆料习近平对港举动震惊了全世界]({{site.baseurl}}/miles/transcript/2019/11/20191123-1094161)
 
@@ -37,21 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年11月17日视频 20191117_2香港又有行动啦！香港的教堂要注意了，对教堂有行动，宗教设施，那几个教堂，我就不多说了啊]({{site.baseurl}}/miles/transcript/2019/11/20191117-1089651)
 
-[郭文贵2019年11月17日 20191117对香港理工大学即将发生的人道危机提出的个人看法。]({{site.baseurl}}/miles/transcript/2019/11/20191117-1094165)
 
-[2019年11月16日文贵大直播全文字版：报平安直播]({{site.baseurl}}/miles/transcript/2019/11/20191116-1086585)
-
-[郭文贵2019年11月16日 20191116习近平讲话对香港有本质影响；建议香港的孩子们撤离]({{site.baseurl}}/miles/transcript/2019/11/20191116-1093971)
-
-[2019年11月15日郭文贵直播建议香港前线勇武义士战术性转进 在香港沦陷区进入潜伏状态 蛰伏保留实力 全文字版\n]({{site.baseurl}}/miles/transcript/2019/11/20191115-1085770)
-
-[郭文贵2019年11月15日视频 20191115建议香港前线勇武义士战术性转进 在香港沦陷区进入潜伏状态 蛰伏保留实力 文贵去华盛顿办大事；香港法案一定会过]({{site.baseurl}}/miles/transcript/2019/11/20191115-1093968)
-
-[郭文贵2019年11月14日视频 20191114_3在勞斯萊斯上直播 戰友們關心香港的心情我能理解]({{site.baseurl}}/miles/transcript/2019/11/20191114-1089649)
-
-[郭文贵2019年11月14日第二次直播 20191114_2香港一定赢！三分钟香港抗议实况]({{site.baseurl}}/miles/transcript/2019/11/20191114-1093952)
-
-[郭文贵2019年11月14日第一次直播 20191114_1]({{site.baseurl}}/miles/transcript/2019/11/20191114-1093958)
-
-
-## 頁面 65/112 [**<**]({{site.baseurl}}/miles/transcript/page64) [1]({{site.baseurl}}/miles/transcript/index) ... [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) **65** [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page66)
+## 頁面 65/113 [**<**]({{site.baseurl}}/miles/transcript/page64) [1]({{site.baseurl}}/miles/transcript/index) ... [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) **65** [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page66)

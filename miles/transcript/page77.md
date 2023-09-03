@@ -1,7 +1,23 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 77/112 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page78)
+## 頁面 77/113 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page78)
+
+[2019年7月24日《文贵大直播》全文字版]({{site.baseurl}}/miles/transcript/2019/07/20190724-1098119)
+
+[郭文贵2019年7月23日直播 20190723_3黑客后第二段高清版]({{site.baseurl}}/miles/transcript/2019/07/20190723-1088590)
+
+[郭文贵2019年7月23日第二次直播 20190723_2尊敬的战友们好！你们健身了吗？你们往身上泼水了吗？一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/07/20190723-1093365)
+
+[郭文贵2019年7月23日第一次直播 20190723_1李鹏89年在哪里Why did Li Peng always ask whoever he met "Back in 1989, where were you when it ...]({{site.baseurl}}/miles/transcript/2019/07/20190723-1093380)
+
+[2019年7月23日直播全文字版]({{site.baseurl}}/miles/transcript/2019/07/20190723-1098116)
+
+[2019年7月23日文贵大直播全文字版：李鹏为什么一见人就问89年当时你在哪？]({{site.baseurl}}/miles/transcript/2019/07/20190723-1098120)
+
+[郭文贵2019年7月22日视频 20190722_2戰友之間要不忘記 不放棄 不拋棄 不互相攻擊]({{site.baseurl}}/miles/transcript/2019/07/20190722-1089353)
+
+[郭文贵2019年7月22日视频 20190722聊聊．钥匙吴．和．Walle  French．造谣：欺骗的伎俩]({{site.baseurl}}/miles/transcript/2019/07/20190722-1093361)
 
 [2019年7月22日 直播全文字版]({{site.baseurl}}/miles/transcript/2019/07/20190722-1098117)
 
@@ -37,21 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年7月12日蔡英文访问纽约 20190712蔡英文访问纽约．和香港接下来的行动．大版G20的结果已经影响了美国内部的政治！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/07/20190712-1093418)
 
-[2019年7月12日直播全文字版：蔡英文访问纽约；香港接下来的行动；大阪G20的结果已经影响了美国内部的政治！]({{site.baseurl}}/miles/transcript/2019/07/20190712-1098107)
 
-[郭文贵2019年7月11日视频 20190711_1本周星期六的直播．将改为本周星期天上午930！一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/07/20190711-1089310)
-
-[郭文贵2019年7月11日视频 20190711_2郭文贵先生首谈卡拉OK 爆料革命是过街老虎]({{site.baseurl}}/miles/transcript/2019/07/20190711-1089314)
-
-[郭文贵2019年7月10日视频 20190710尊敬的战友们好．不要计较任何的名．利．不要评价香港的抗议运动的阶段性的得失……我们只有一个目标．灭共．其他都不重要，一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/07/20190710-1093407)
-
-[2019年7月10日直播全文字版：不要计较名利，不要评价香港的抗议运动的阶段性的得失，我们只有一个目标：灭共！]({{site.baseurl}}/miles/transcript/2019/07/20190710-1098109)
-
-[郭文贵2019年7月9日视频 20190709香港逃犯法为什么死亡了？香港还会有抗议吗？会实现双普选吗？]({{site.baseurl}}/miles/transcript/2019/07/20190709-1093392)
-
-[2019年7月9日直播全文字版：香港逃犯法为什么死亡了？香港还会有抗议吗？会实现双普选吗？]({{site.baseurl}}/miles/transcript/2019/07/20190709-1098105)
-
-[郭文贵2019年7月8日视频 20190708_2刚刚完成一个两个小会．现在马上上快船……跨越一个海湾……去另外一个地方开大会，现在正在去见一个牛叉叉的人物……一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/07/20190708-1089300)
-
-
-## 頁面 77/112 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page78)
+## 頁面 77/113 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page78)

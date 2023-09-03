@@ -1,7 +1,23 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 35/112 [**<**]({{site.baseurl}}/miles/transcript/page34) [1]({{site.baseurl}}/miles/transcript/index) ... [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) **35** [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page36)
+## 頁面 35/113 [**<**]({{site.baseurl}}/miles/transcript/page34) [1]({{site.baseurl}}/miles/transcript/index) ... [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) **35** [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page36)
+
+[郭文贵2021年3月18日直播 20210318_1火币是中共用来控制个人信息和收割财富的高科技手段；Gcoin， Ｇdollar是保证个人财富安全，灭共的金融平台；SEC下周开始退款，九指妖的灾难即将到来]({{site.baseurl}}/miles/transcript/2021/03/20210318-1090954)
+
+[郭文贵2021年3月18日盖特 20210318_2刚刚直播完后．没有声音的一段．很多战友让我再说一下，我在这里在和有个重复补播上！听战友的话有饭吃．有未来！]({{site.baseurl}}/miles/transcript/2021/03/20210318-1090957)
+
+[郭文贵2021年3月18日盖特 20210318_3文贵浴后．乱聊阿拉斯加的外交大戏背后的故事！]({{site.baseurl}}/miles/transcript/2021/03/20210318-1090961)
+
+[郭文贵2021年3月17日盖特 20210317_1尊敬的战友们好．与国内的企业家通话后的一些感受——共产党的政治．经济．生活信心．已经彻底的在崩溃当中……]({{site.baseurl}}/miles/transcript/2021/03/20210317-1090939)
+
+[郭文贵2021年3月17日盖特 20210317_2第二次发盖特．向香港的在海外的手足兄弟姐妹们．发出的紧急的信息的通知，……共产党正在全球实施对香港逃出来的同胞们的围剿打击……请务必小心……新中国联邦人．和爆料革命将永远的]({{site.baseurl}}/miles/transcript/2021/03/20210317-1090944)
+
+[郭文贵2021年3月17日盖特 20210317_3很多战友发给我关于孝敬父母的一些事情．和故事，包括一些自己的观点．以及我向黄艳女士公开道歉，引起国内媒体．及官场的巨大震动的事件．谈谈自己的看法……]({{site.baseurl}}/miles/transcript/2021/03/20210317-1090948)
+
+[郭文贵2021年3月17日盖特 20210317_4已经开始的G支付和金融系统．和我们的媒体平台．将是惟一一个打破共产党金融垄断，媒体垄断……奴役14亿中国人民……威胁全香港同胞的唯一的力量．和唯一的综合灭共平台！]({{site.baseurl}}/miles/transcript/2021/03/20210317-1090950)
+
+[郭文贵2021年3月16日盖特 20210316_1尊敬的战友们好……很多战友这几天发了很多信息！问关于一些孝敬孝顺和养老．过程当中的实际客观的矛盾和问题，并给文贵提出了很多的建议，文贵在此谈谈个人的想法和办法！]({{site.baseurl}}/miles/transcript/2021/03/20210316-1090927)
 
 [郭文贵2021年3月16日盖特 20210316_2尊敬的战友们好．这是今天第二次发的盖特……谈谈，以毒灭共．和台湾香港面临的巨大的挑战！]({{site.baseurl}}/miles/transcript/2021/03/20210316-1090929)
 
@@ -37,21 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2021年3月12日盖特 20210312_3从四美女在GTV直播……看我们GTV的未来]({{site.baseurl}}/miles/transcript/2021/03/20210312-1090889)
 
-[郭文贵2021年3月12日盖特 20210312_4在外面开会回来．文贵看到共产党病毒在西方世界……给中国人带来的负面影响，感到非常的恐惧和害怕，我们都要珍惜由爆料革命新中国联邦！为中国人在国际上打下这片天空！将共产党与共产]({{site.baseurl}}/miles/transcript/2021/03/20210312-1090891)
 
-[郭文贵2021年3月11日盖特 20210311_1尊敬的战友们好！GTV可能被骇客的紧急通知！]({{site.baseurl}}/miles/transcript/2021/03/20210311-1090862)
-
-[郭文贵2021年3月11日直播 20210311_2加拿大恢复正式农场；关于GTV投资者的解决方案；全球各农场要承担好服务战友的责任]({{site.baseurl}}/miles/transcript/2021/03/20210311-1090874)
-
-[郭文贵2021年3月10日直播 20210310_1共产党邪恶的阶级论，血统论，Ｇ系列让草根战友们翻身做“上等人”，壮大灭共实力；GTV最新方案]({{site.baseurl}}/miles/transcript/2021/03/20210310-1090858)
-
-[郭文贵2021年3月9日盖特 20210309_1尊敬的战友．同胞．无数个相信，共产党的人．自己的钱走进了共产党的金融火葬场……这是悲剧也是喜剧，这是贪婪与无知结合起来的必然的结果，一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/03/20210309-1090860)
-
-[郭文贵2021年3月8日直播 20210308_1文贵将在农历2月初二，即3月14号直播怀念母亲；各农场和联盟不要忘记灭共的使命；战友们要学会感恩；Gnews，GTV正飞速发展壮大，感谢义工的付出，希望更多战友加入]({{site.baseurl}}/miles/transcript/2021/03/20210308-1090851)
-
-[郭文贵2021年3月7日盖特 20210307_1国际巨头 (鳄鱼????￼)投资基金．在对大陆的金融市场价值．风险全面调查后．决定将投入大陆的资金撤出，可能部分????????????投入到我们G系列！一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/03/20210307-1090848)
-
-[郭文贵2021年3月6日盖特 20210306_1尊敬的战友们好！文贵和大家聊聊。西方媒体的堕落的真正的本质……和对我们所有每个人的危害是什么？香港的董栽倒？和当年的邓痰￼倒．撒切尔夫人之间有什么样的关系？意味着什么？]({{site.baseurl}}/miles/transcript/2021/03/20210306-1090846)
-
-
-## 頁面 35/112 [**<**]({{site.baseurl}}/miles/transcript/page34) [1]({{site.baseurl}}/miles/transcript/index) ... [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) **35** [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page36)
+## 頁面 35/113 [**<**]({{site.baseurl}}/miles/transcript/page34) [1]({{site.baseurl}}/miles/transcript/index) ... [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) **35** [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page36)

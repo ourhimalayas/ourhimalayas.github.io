@@ -1,7 +1,23 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 34/112 [**<**]({{site.baseurl}}/miles/transcript/page33) [1]({{site.baseurl}}/miles/transcript/index) ... [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) **34** [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page35)
+## 頁面 34/113 [**<**]({{site.baseurl}}/miles/transcript/page33) [1]({{site.baseurl}}/miles/transcript/index) ... [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) **34** [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page35)
+
+[郭文贵2021年3月30日直播 20210330_1GFashion的设计，材质都是唯一；警告投资Ｇ系列不要被骗，所有代持代购都必须上报联盟；好莱坞，华尔街大佬都将加入以毒灭共]({{site.baseurl}}/miles/transcript/2021/03/20210330-1091070)
+
+[郭文贵2021年3月29日盖特 20210329_1世界的政治经济．在剧烈的震荡中．为什么全世界都在买虚拟货币？为什么全世界的人都对经济和政治和CCP病毒的真相．没有任何信息信心，这都是因为共产党这个魔鬼在作祟！这一切都是对新中]({{site.baseurl}}/miles/transcript/2021/03/20210329-1091056)
+
+[郭文贵2021年3月29日盖特 20210329_2當年和我吵架．關於什麼是民主的人．在多年後今天和我聯繫．他真正的感受到了共產黨對中國人．和世界的威脅⋯⋯和對他家族的威脅⋯⋯山雨欲來風滿樓啊！]({{site.baseurl}}/miles/transcript/2021/03/20210329-1091058)
+
+[郭文贵2021年3月29日盖特 20210329_3關於:Gcoion．GTV．配额和重建公司，股权分配．等可能会有改变．提前给大家吹吹风！希望所有的战友们．尽快的和农场核对所有的有关数据，尽快地将两个项目完成，我们正在和机构投资者和实际]({{site.baseurl}}/miles/transcript/2021/03/20210329-1091062)
+
+[郭文贵2021年3月28日盖特 20210328_1文贵和战友聊聊．与中国共产党的老干部．老革命聊天的感受，共产党真是玩球蛋了……CCP下三滥的招，已被全世界所看透．引火自焚是共产党的唯一命运结局！]({{site.baseurl}}/miles/transcript/2021/03/20210328-1091053)
+
+[郭文贵2021年3月27日直播 20210327_1文贵直播：国际金融市场的真相，即将爆发的金融危机如同2008年；不要投机者进入投资Ｇ系列；九指妖事件更让战友们有辨别是非，看清善恶的能力]({{site.baseurl}}/miles/transcript/2021/03/20210327-1091048)
+
+[郭文贵2021年3月27日盖特 20210327_2想想儿时没有材火．没有粮食做饭吃的生活……和今天的世界相比，我们真是太幸福了，这是没有在西方世界生活过的人……无法懂得的……没有对比就没有真相……锅里煮着的大锅菜蒸的包子…]({{site.baseurl}}/miles/transcript/2021/03/20210327-1091050)
+
+[郭文贵2021年3月26日盖特 20210326_1不美国的宪政危机．经济危机．必将导致美欧日的经济危机．和世界的经济危机。在美国的恶性膨胀，将彻底的改变美国的经济现状，中共的擀面杖的经济必将彻底崩塌。这是新中国联邦最大的机]({{site.baseurl}}/miles/transcript/2021/03/20210326-1091040)
 
 [郭文贵2021年3月26日盖特 20210326_2尊敬的战友们好！应很多战友的要求，明天3月27号上午9:30文贵乱聊直播！一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/03/20210326-1091044)
 
@@ -37,21 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2021年3月19日盖特 20210319_2所有给我发信息咨询付款的战友们，我再次强调：要与各农场高效紧密准确．地联系，并准确地填写银行信息是关键中的关键。我们正和共产党打一场帐号游击站，请战友们一定用对付游击战中的]({{site.baseurl}}/miles/transcript/2021/03/20210319-1090968)
 
-[郭文贵2021年3月18日直播 20210318_1火币是中共用来控制个人信息和收割财富的高科技手段；Gcoin， Ｇdollar是保证个人财富安全，灭共的金融平台；SEC下周开始退款，九指妖的灾难即将到来]({{site.baseurl}}/miles/transcript/2021/03/20210318-1090954)
 
-[郭文贵2021年3月18日盖特 20210318_2刚刚直播完后．没有声音的一段．很多战友让我再说一下，我在这里在和有个重复补播上！听战友的话有饭吃．有未来！]({{site.baseurl}}/miles/transcript/2021/03/20210318-1090957)
-
-[郭文贵2021年3月18日盖特 20210318_3文贵浴后．乱聊阿拉斯加的外交大戏背后的故事！]({{site.baseurl}}/miles/transcript/2021/03/20210318-1090961)
-
-[郭文贵2021年3月17日盖特 20210317_1尊敬的战友们好．与国内的企业家通话后的一些感受——共产党的政治．经济．生活信心．已经彻底的在崩溃当中……]({{site.baseurl}}/miles/transcript/2021/03/20210317-1090939)
-
-[郭文贵2021年3月17日盖特 20210317_2第二次发盖特．向香港的在海外的手足兄弟姐妹们．发出的紧急的信息的通知，……共产党正在全球实施对香港逃出来的同胞们的围剿打击……请务必小心……新中国联邦人．和爆料革命将永远的]({{site.baseurl}}/miles/transcript/2021/03/20210317-1090944)
-
-[郭文贵2021年3月17日盖特 20210317_3很多战友发给我关于孝敬父母的一些事情．和故事，包括一些自己的观点．以及我向黄艳女士公开道歉，引起国内媒体．及官场的巨大震动的事件．谈谈自己的看法……]({{site.baseurl}}/miles/transcript/2021/03/20210317-1090948)
-
-[郭文贵2021年3月17日盖特 20210317_4已经开始的G支付和金融系统．和我们的媒体平台．将是惟一一个打破共产党金融垄断，媒体垄断……奴役14亿中国人民……威胁全香港同胞的唯一的力量．和唯一的综合灭共平台！]({{site.baseurl}}/miles/transcript/2021/03/20210317-1090950)
-
-[郭文贵2021年3月16日盖特 20210316_1尊敬的战友们好……很多战友这几天发了很多信息！问关于一些孝敬孝顺和养老．过程当中的实际客观的矛盾和问题，并给文贵提出了很多的建议，文贵在此谈谈个人的想法和办法！]({{site.baseurl}}/miles/transcript/2021/03/20210316-1090927)
-
-
-## 頁面 34/112 [**<**]({{site.baseurl}}/miles/transcript/page33) [1]({{site.baseurl}}/miles/transcript/index) ... [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) **34** [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page35)
+## 頁面 34/113 [**<**]({{site.baseurl}}/miles/transcript/page33) [1]({{site.baseurl}}/miles/transcript/index) ... [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) **34** [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page35)

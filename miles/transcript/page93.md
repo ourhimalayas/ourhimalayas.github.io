@@ -1,7 +1,23 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 93/112 [**<**]({{site.baseurl}}/miles/transcript/page92) [1]({{site.baseurl}}/miles/transcript/index) ... [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) **93** [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page94)
+## 頁面 93/113 [**<**]({{site.baseurl}}/miles/transcript/page92) [1]({{site.baseurl}}/miles/transcript/index) ... [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) **93** [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page94)
+
+[郭文贵2018年9月21日视频 20180921_1文贵请战友们帮忙]({{site.baseurl}}/miles/transcript/2018/09/20180921-1088792)
+
+[郭文贵2018年9月21日视频 20180921_2文贵为忙碌了一周的同事切莲花西瓜……大家开心极了……从未见过！]({{site.baseurl}}/miles/transcript/2018/09/20180921-1088795)
+
+[郭文贵2018年9月20日视频 20180920_2工作了17个小时. Snow还不睡觉!要等着我狗情胜人味, 比那些伪类强多了!]({{site.baseurl}}/miles/transcript/2018/09/20180920-1088791)
+
+[郭文贵2018年9月20日视频 20180920马云开始被“狩猎”时间 王岐山穿睡衣大谈中美贸易战, FBI约谈博讯西诺]({{site.baseurl}}/miles/transcript/2018/09/20180920-1093123)
+
+[郭文贵2018年9月19日视频 20180919_1]({{site.baseurl}}/miles/transcript/2018/09/20180919-1088789)
+
+[郭文贵2018年9月18日视频 20180918_1]({{site.baseurl}}/miles/transcript/2018/09/20180918-1088780)
+
+[郭文贵2018年9月18日视频 20180918_2選購西裝布料]({{site.baseurl}}/miles/transcript/2018/09/20180918-1088784)
+
+[郭文贵2018年9月17日视频 20180917_2]({{site.baseurl}}/miles/transcript/2018/09/20180917-1088772)
 
 [郭文贵2018年9月17日视频 20180917_3今天是个好日子……本来过5不食的！现在吃点粗茶淡饭！喝点中年茅台！奖励自己一下……二十几个小时连续的工作！唯独美中不足缺战友！]({{site.baseurl}}/miles/transcript/2018/09/20180917-1088777)
 
@@ -37,21 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2018年9月10日第一次直播 20180910_1马云辞职的真正原因]({{site.baseurl}}/miles/transcript/2018/09/20180910-1093048)
 
-[郭文贵2018年9月10日第二次直播 20180910_2马云辞职的真正的目的与动机漫天过海！]({{site.baseurl}}/miles/transcript/2018/09/20180910-1093071)
 
-[郭文贵2018年9月9日直播 20180909_1]({{site.baseurl}}/miles/transcript/2018/09/20180909-1088721)
-
-[郭文贵2018年9月8日直播 20180908_1文贵用行动．莲花西瓜刀法感谢杨建利．韩涟潮先生！伟大的亲爱的战友们！感恩伟大的美国！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/09/20180908-1088715)
-
-[郭文贵2018年9月8日直播 20180908_2]({{site.baseurl}}/miles/transcript/2018/09/20180908-1088718)
-
-[郭文贵2018年9月7日视频 20180907文贵申请政庇一周年！与战友们分享香港司法的危害与黑暗的事实！]({{site.baseurl}}/miles/transcript/2018/09/20180907-1093040)
-
-[郭文贵2018年9月6日直播 20180906_1]({{site.baseurl}}/miles/transcript/2018/09/20180906-1088707)
-
-[郭文贵2018年9月5日视频第二部分 20180905_2黄河边性无能造成严重后果。林肯中心被取消发布会 2]({{site.baseurl}}/miles/transcript/2018/09/20180905-1093026)
-
-[郭文贵2018年9月5日视频第一部分 20180905_1黄河边性无能造成严重后果。林肯中心被取消发布会【1】]({{site.baseurl}}/miles/transcript/2018/09/20180905-1093135)
-
-
-## 頁面 93/112 [**<**]({{site.baseurl}}/miles/transcript/page92) [1]({{site.baseurl}}/miles/transcript/index) ... [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) **93** [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page94)
+## 頁面 93/113 [**<**]({{site.baseurl}}/miles/transcript/page92) [1]({{site.baseurl}}/miles/transcript/index) ... [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) **93** [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page94)

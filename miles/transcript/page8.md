@@ -1,7 +1,23 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 8/112 [**<**]({{site.baseurl}}/miles/transcript/page7) [1]({{site.baseurl}}/miles/transcript/index) ... [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) **8** [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page9)
+## 頁面 8/113 [**<**]({{site.baseurl}}/miles/transcript/page7) [1]({{site.baseurl}}/miles/transcript/index) ... [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) **8** [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page9)
+
+[郭文贵2022年4月16日直播 20220416_17哥乱聊直播]({{site.baseurl}}/miles/transcript/2022/04/20220416-1090941)
+
+[郭文贵2022年4月15日直播 20220415_1文贵乱聊直播]({{site.baseurl}}/miles/transcript/2022/04/20220415-1090928)
+
+[郭文贵2022年4月14日直播 20220414_1七哥乱聊直播第一段]({{site.baseurl}}/miles/transcript/2022/04/20220414-1090887)
+
+[郭文贵2022年4月14日直播 20220414_2七哥乱聊直播第二段]({{site.baseurl}}/miles/transcript/2022/04/20220414-1090896)
+
+[郭文贵2022年4月14日直播 20220414_3七哥乱聊直播第三段]({{site.baseurl}}/miles/transcript/2022/04/20220414-1090914)
+
+[郭文贵2022年4月13日盖特 20220413_1尊敬的战友们好，俄乌战争……给中国人民……和世界人民．带来了千载难逢的机会，消灭马克思主义……彻底的消灭社会主义的伟大机会！]({{site.baseurl}}/miles/transcript/2022/04/20220413-1091680)
+
+[郭文贵2022年4月13日盖特 20220413_2尊敬的战友们好．收到了很多战友的信息．无法全部回复……非常的抱歉????????????????????????????????????????明天上午我会抽时间直播半小时左右，一切都已经开始！]({{site.baseurl}}/miles/transcript/2022/04/20220413-1091683)
+
+[郭文贵2022年4月12日盖特 20220412_1尊敬的战友们好，今天是新中国联邦……开天辟地的．重要的一天！]({{site.baseurl}}/miles/transcript/2022/04/20220412-1091678)
 
 [郭文贵2022年4月11日直播 20220411_1试试直播]({{site.baseurl}}/miles/transcript/2022/04/20220411-1090879)
 
@@ -37,21 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2022年3月24日盖特 20220324_1尊敬的战友们好……共产党就面临着全球经济脱钩．次级经济制裁……官员资产被查封的灾难时刻到来！共产党你玩啦！]({{site.baseurl}}/miles/transcript/2022/03/20220324-1090688)
 
-[郭文贵2022年3月23日直播 20220323_1俄乌战争实为世界与俄中的政治大较量；战后世界经济政治变化与中国人的灾难]({{site.baseurl}}/miles/transcript/2022/03/20220323-1090983)
 
-[郭文贵2022年3月22日盖特 20220322_1尊敬的战友们好．世界经济大战……粮食大战……已经前面开始！]({{site.baseurl}}/miles/transcript/2022/03/20220322-1090687)
-
-[郭文贵2022年3月21日盖特 20220321_1尊敬的战友们好．俄乌战争的救援……每时每刻．都为中国人在海外的安全奇形象增光添彩！共产党的经济和国际关系！即将崩塌。新中国联邦人一定要抓住这个机会，建立一个新的世界上的正面]({{site.baseurl}}/miles/transcript/2022/03/20220321-1090684)
-
-[郭文贵2022年3月20日直播 20220320_1俄罗斯中将莫德维切夫被干死成俄乌战争的最大转折点；大量外资撤离香港及大陆中共国面临世界经济严峻形势]({{site.baseurl}}/miles/transcript/2022/03/20220320-1090900)
-
-[郭文贵2022年3月19日盖特 20220319_1尊敬的战友们好中共内战．外战的大戏即将开始！]({{site.baseurl}}/miles/transcript/2022/03/20220319-1090678)
-
-[郭文贵2022年3月18日盖特 20220318_2尊敬的战友们好……共产党和俄罗斯的生死相依的关系什么时候完球蛋！世界的经济危机什么时候是最坏的时候？香港病毒的感染率，和死亡率．成了世界之谜！]({{site.baseurl}}/miles/transcript/2022/03/20220318-1090670)
-
-[郭文贵2022年3月18日盖特 20220318_3尊敬的战友们好，你们健身了吗？看到共产党今天如何自寻死路了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2022/03/20220318-1090675)
-
-[郭文贵2022年3月18日直播 20220318_1]({{site.baseurl}}/miles/transcript/2022/03/20220318-1090829)
-
-
-## 頁面 8/112 [**<**]({{site.baseurl}}/miles/transcript/page7) [1]({{site.baseurl}}/miles/transcript/index) ... [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) **8** [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page9)
+## 頁面 8/113 [**<**]({{site.baseurl}}/miles/transcript/page7) [1]({{site.baseurl}}/miles/transcript/index) ... [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) **8** [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page9)

@@ -1,7 +1,23 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 62/112 [**<**]({{site.baseurl}}/miles/transcript/page61) [1]({{site.baseurl}}/miles/transcript/index) ... [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) **62** [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page63)
+## 頁面 62/113 [**<**]({{site.baseurl}}/miles/transcript/page61) [1]({{site.baseurl}}/miles/transcript/index) ... [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) **62** [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page63)
+
+[郭文贵2020年1月24日文贵看春晚 20200124]({{site.baseurl}}/miles/transcript/2020/01/20200124-1091671)
+
+[郭文贵2020年1月23日第二次直播 20200123_2向大家汇报今天的法治基金的会议花絮．24号文贵看春晚的节目的一些安排]({{site.baseurl}}/miles/transcript/2020/01/20200123-1092137)
+
+[郭文贵2020年1月23日第一次直播 20200123_1法治社会法制基金第一次董事会后．全员直播．史蒂夫班农先生和卡尔巴斯．比尔盖茨先生．郭文贵先生，路德先生Sara一起直播。]({{site.baseurl}}/miles/transcript/2020/01/20200123-1092209)
+
+[郭文贵2020年1月22日第二次直播 20200122_2谈武汉疫情紧急事]({{site.baseurl}}/miles/transcript/2020/01/20200122-1091635)
+
+[郭文贵2020年1月22日第一次直播 20200122_1中共新4000隐士]({{site.baseurl}}/miles/transcript/2020/01/20200122-1092219)
+
+[郭文贵2020年1月20日谈非典真相 20200120西方人如何看待勤劳的中国人]({{site.baseurl}}/miles/transcript/2020/01/20200120-1091624)
+
+[郭文贵2020年1月19日 20200119惊天的新闻．中美协议是卖香港的交易。这就是中共所谓的外溢效应！]({{site.baseurl}}/miles/transcript/2020/01/20200119-1092312)
+
+[郭文贵2020年1月18日 20200118刘鹤招待会取消预示着什么]({{site.baseurl}}/miles/transcript/2020/01/20200118-1092293)
 
 [郭文贵2020年1月17日谈中美贸易战内幕 20200117贸易协议为何一定是滑稽的结]({{site.baseurl}}/miles/transcript/2020/01/20200117-1091616)
 
@@ -37,21 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2020年1月4日 20200104共产党不管你咋折腾，你完蛋了]({{site.baseurl}}/miles/transcript/2020/01/20200104-1091701)
 
-[郭文贵2020年1月3日中俄伊军演 20200103苏曼尼的被炸死是我们爆料革命展示实力走向]({{site.baseurl}}/miles/transcript/2020/01/20200103-1092232)
 
-[郭文贵2020年1月2日 20200102聊自己的人生和武汉的非典 为战友终生戒吃牛肉！]({{site.baseurl}}/miles/transcript/2020/01/20200102-1091687)
-
-[郭文贵2020年1月1日 20200101畅谈2020 盘古开天霹雳年！灭共]({{site.baseurl}}/miles/transcript/2020/01/20200101-1091644)
-
-[郭文贵2019年12月31日视频 20191231_1 郭文貴call in 曾宏節目]({{site.baseurl}}/miles/transcript/2019/12/20191231-1089748)
-
-[郭文贵2019年12月30日第一次直播 20191230_1谈2020霹雳年 私自募捐就是一帮]({{site.baseurl}}/miles/transcript/2019/12/20191230-1094144)
-
-[郭文贵2019年12月30日第二次直播 20191230_2第二次直播向战友询问1/22和春节晚会的举办形式，有惊人王健死亡照片出示]({{site.baseurl}}/miles/transcript/2019/12/20191230-1094155)
-
-[郭文贵2019年12月29日连线钢铁侠 20191229聊中国的教育和如何面对的性]({{site.baseurl}}/miles/transcript/2019/12/20191229-1094163)
-
-[郭文贵2019年12月28日谈细丝的行为 20191228又一个郭宝胜欺诈的案例]({{site.baseurl}}/miles/transcript/2019/12/20191228-1094145)
-
-
-## 頁面 62/112 [**<**]({{site.baseurl}}/miles/transcript/page61) [1]({{site.baseurl}}/miles/transcript/index) ... [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) **62** [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) ... [112]({{site.baseurl}}/miles/transcript/page112) [**>**]({{site.baseurl}}/miles/transcript/page63)
+## 頁面 62/113 [**<**]({{site.baseurl}}/miles/transcript/page61) [1]({{site.baseurl}}/miles/transcript/index) ... [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) **62** [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page63)
