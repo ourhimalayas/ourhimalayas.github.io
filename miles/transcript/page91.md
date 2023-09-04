@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 91/113 [**<**]({{site.baseurl}}/miles/transcript/page90) [1]({{site.baseurl}}/miles/transcript/index) ... [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) **91** [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page92)
 
+[郭文贵2018年10月21日 20181021_2澳門鄭曉松的被殺是因為孟宏偉 這是又一次的黑吃黑 2]({{site.baseurl}}/miles/transcript/2018/10/20181021-1087981)
+
+[郭文贵2018年10月21日 20181021_3澳門鄭曉松的被殺是因為孟宏偉 這是又一次的黑吃黑 3]({{site.baseurl}}/miles/transcript/2018/10/20181021-1087990)
+
 [郭文贵2018年10月21日 20181021_1澳門鄭曉松的被殺是因為孟宏偉 這是又一次的黑吃黑]({{site.baseurl}}/miles/transcript/2018/10/20181021-1094219)
 
 [郭文贵2018年10月20日视频 20181020_2Snow響應王岐山號召 從吃狗糧改吃草了]({{site.baseurl}}/miles/transcript/2018/10/20181020-1087971)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年10月8日视频 20181008_2与黑水公司朋友射击]({{site.baseurl}}/miles/transcript/2018/10/20181008-1088634)
 
 [郭文贵2018年10月6日视频 20181006_2]({{site.baseurl}}/miles/transcript/2018/10/20181006-1088838)
-
-[郭文贵2018年10月6日视频 20181006_3]({{site.baseurl}}/miles/transcript/2018/10/20181006-1088839)
-
-[郭文贵2018年10月6日视频 20181006_4]({{site.baseurl}}/miles/transcript/2018/10/20181006-1088843)
 
 
 ## 頁面 91/113 [**<**]({{site.baseurl}}/miles/transcript/page90) [1]({{site.baseurl}}/miles/transcript/index) ... [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) **91** [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page92)

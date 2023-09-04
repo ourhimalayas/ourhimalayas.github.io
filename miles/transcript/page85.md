@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 85/113 [**<**]({{site.baseurl}}/miles/transcript/page84) [1]({{site.baseurl}}/miles/transcript/index) ... [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) **85** [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page86)
 
+[郭文贵2019年3月2日 20190302和Sara,安红,路德,邱先生谈话]({{site.baseurl}}/miles/transcript/2019/03/20190302-1092663)
+
+[郭文贵2019年2月28日视频 20190228_2应战友的要求做一组 俯卧撑视频！文贵这都是硬撑着装出来的！ 如果大家觉得还行啊，择机再做三组给大家．再撑三下，把郭3秒变成郭三组！]({{site.baseurl}}/miles/transcript/2019/02/20190228-1089150)
+
 [郭文贵2019年2月28日视频 20190228_3政事这小哥你在哪？如果你把豆豆还给我们！我就送你一个乐高遥控车可以吗？请回复！请回复]({{site.baseurl}}/miles/transcript/2019/02/20190228-1089153)
 
 [郭文贵2019年2月28日视频 20190228文贵报平安谈金正恩谈判的破裂和蓝标公司在美国犯罪的各种信息。]({{site.baseurl}}/miles/transcript/2019/02/20190228-1092606)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年2月4日英文 20190204_1除夕爆料春晚 达赖喇嘛尊者]({{site.baseurl}}/miles/transcript/2019/02/20190204-1092670)
 
 [郭文贵2019年2月3日视频 20190203_1除夕前一天报平安]({{site.baseurl}}/miles/transcript/2019/02/20190203-1089083)
-
-[郭文贵2019年2月2日视频 20190202_1委内瑞拉的局势变化正是未來中國變局最好的樣板！和3月20号习近平先生的访问梵蒂冈！川金会川习会！]({{site.baseurl}}/miles/transcript/2019/02/20190202-1089084)
-
-[郭文贵2019年2月1日视频 20190201_1昨天刘鹤跟川普团队谈判后的自己的感受！ 王健被自己的生殖器戳死]({{site.baseurl}}/miles/transcript/2019/02/20190201-1089079)
 
 
 ## 頁面 85/113 [**<**]({{site.baseurl}}/miles/transcript/page84) [1]({{site.baseurl}}/miles/transcript/index) ... [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) **85** [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page86)

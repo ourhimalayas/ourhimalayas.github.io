@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 112/113 [**<**]({{site.baseurl}}/miles/transcript/page111) [1]({{site.baseurl}}/miles/transcript/index) ... [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) **112** [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page113)
 
+[郭文贵2017年5月15日视频 20170515_1]({{site.baseurl}}/miles/transcript/2017/05/20170515-1094389)
+
+[郭文贵2017年5月13日视频 20170513]({{site.baseurl}}/miles/transcript/2017/05/20170513-1094379)
+
 [郭文贵2017年5月12日视频 20170512]({{site.baseurl}}/miles/transcript/2017/05/20170512-1094377)
 
 [郭文贵2017年5月11日视频 20170511]({{site.baseurl}}/miles/transcript/2017/05/20170511-1094352)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年4月28日 20170428接受BBC采访的视频Miles Kwok was Interviewed by BBC on April 28th, 2017]({{site.baseurl}}/miles/transcript/2017/04/20170428-1094608)
 
 [郭文贵2017年4月27日 20170427推友过十一万感谢视频]({{site.baseurl}}/miles/transcript/2017/04/20170427-1094239)
-
-[郭文贵2017年4月26日第二次直播 20170426_2感谢推友过十万]({{site.baseurl}}/miles/transcript/2017/04/20170426-1094234)
-
-[郭文贵2017年4月26日第一次直播 20170426_1感谢推友过十万感谢视频]({{site.baseurl}}/miles/transcript/2017/04/20170426-1094237)
 
 
 ## 頁面 112/113 [**<**]({{site.baseurl}}/miles/transcript/page111) [1]({{site.baseurl}}/miles/transcript/index) ... [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) **112** [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page113)

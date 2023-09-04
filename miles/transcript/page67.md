@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 67/113 [**<**]({{site.baseurl}}/miles/transcript/page66) [1]({{site.baseurl}}/miles/transcript/index) ... [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) **67** [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page68)
 
+[郭文贵2019年11月5日视频 20191105_1浪裡個浪 文貴又要浪一下啦]({{site.baseurl}}/miles/transcript/2019/11/20191105-1089638)
+
+[2019年11月4日 郭文贵先生直播--四中全会是给香港的巨大礼物，CCP区块链挑战美国核心地位 全文字版]({{site.baseurl}}/miles/transcript/2019/11/20191104-1072004)
+
 [郭文贵2019年11月4日视频 20191104_2没有给SNOW 吃酸奶，他就生气了????……他太现实了]({{site.baseurl}}/miles/transcript/2019/11/20191104-1089637)
 
 [郭文贵2019年11月4日 20191104四中全会是给香港的巨大礼物，CCP区块链挑战美国核心地位]({{site.baseurl}}/miles/transcript/2019/11/20191104-1093852)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年10月27日文贵大直播全文字版：与战友闲聊]({{site.baseurl}}/miles/transcript/2019/10/20191027-1087430)
 
 [郭文贵2019年10月27日视频 20191027_2此时此刻的纽约．正在下着毛毛雨．和临近秋天的中央公园．以及最现代化的摩天大楼．相应成画．浪漫至极]({{site.baseurl}}/miles/transcript/2019/10/20191027-1089606)
-
-[郭文贵2019年10月27日视频 20191027试直播与战友闲聊]({{site.baseurl}}/miles/transcript/2019/10/20191027-1093787)
-
-[2019年10月26日文贵大直播全文版：十九大篡朝较量中错综复杂的关系 中南坑风暴一直在酝酿着]({{site.baseurl}}/miles/transcript/2019/10/20191026-1087429)
 
 
 ## 頁面 67/113 [**<**]({{site.baseurl}}/miles/transcript/page66) [1]({{site.baseurl}}/miles/transcript/index) ... [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) **67** [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page68)

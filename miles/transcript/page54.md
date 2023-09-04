@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 54/113 [**<**]({{site.baseurl}}/miles/transcript/page53) [1]({{site.baseurl}}/miles/transcript/index) ... [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) **54** [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page55)
 
+[郭文贵2020年6月15日视频 20200615_6七哥耍球棒]({{site.baseurl}}/miles/transcript/2020/06/20200615-1089836)
+
+[郭文贵2020年6月15日视频 20200615_7今天不直播]({{site.baseurl}}/miles/transcript/2020/06/20200615-1089839)
+
 [郭文贵2020年6月15日视频 20200615_3请应聘新中国联邦职务的战友们务必详细的提供你的个人信息和个人需求]({{site.baseurl}}/miles/transcript/2020/06/20200615-1089875)
 
 [郭文贵2020年6月15日视频 20200615_4文贵衷心地向战友们就昨天错误的发出新中国联邦部长及副总理招聘广告衷心地向你们道歉️文贵将在视频中骑狗惩罚自己]({{site.baseurl}}/miles/transcript/2020/06/20200615-1089898)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年5月30日第一次直播 20200530_1]({{site.baseurl}}/miles/transcript/2020/05/20200530-1092571)
 
 [郭文贵2020年5月30日第二次直播 20200530_2请所有的战友高度关注6月2号中午和6月3号晚上和6月4号上午．三次重大直播，请准备好美食美酒！]({{site.baseurl}}/miles/transcript/2020/05/20200530-1093019)
-
-[郭文贵2020年5月29日视频 20200529留美的学生和华人同胞们请务必看今天文贵的视频]({{site.baseurl}}/miles/transcript/2020/05/20200529-1092537)
-
-[郭文贵2020年5月27日视频 20200527_3所有被指定为个地区国家与战友们的联系负责人都不允许收集和查看任何战友的私人信息和投资相关的任何资料]({{site.baseurl}}/miles/transcript/2020/05/20200527-1089862)
 
 
 ## 頁面 54/113 [**<**]({{site.baseurl}}/miles/transcript/page53) [1]({{site.baseurl}}/miles/transcript/index) ... [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) **54** [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page55)

@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 47/113 [**<**]({{site.baseurl}}/miles/transcript/page46) [1]({{site.baseurl}}/miles/transcript/index) ... [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) **47** [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page48)
 
+[郭文贵2020年9月25日盖特 20200925尊敬的战友们好，你们健身了吗？你们传播CCP病毒．香港危机真相了吗？文贵聊聊．为什么要在全球依法灭贼！看过变态的性爱视频了]({{site.baseurl}}/miles/transcript/2020/09/20200925-1092969)
+
+[郭文贵2020年9月24日直播 20200924_1全球战友们一定要坚持唯真不破，依法灭贼．团结一致，迎接伟大时刻的到来]({{site.baseurl}}/miles/transcript/2020/09/20200924-1092863)
+
 [郭文贵2020年9月24日直播 20200924_2测试GTV安卓版直播；中共在48小时内将打开第二个潘多拉盒子，加速灭亡；全球灭贼行动正在进行]({{site.baseurl}}/miles/transcript/2020/09/20200924-1092876)
 
 [郭文贵2020年9月24日盖特 20200924_3尊敬的战友们好，谁能认出和我这么亲近的这只可爱的猫！谁就能准确地预测出美国总统大选的结果！这猫今天真是爱上我了…我一走她就]({{site.baseurl}}/miles/transcript/2020/09/20200924-1092967)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年9月10日盖特 20200910_1文贵将开创一个中老年人的生活方式，这是足球先生．郝海东老弟．羽毛球冠军．叶钊颖妹妹．虐待……郭文贵的证据]({{site.baseurl}}/miles/transcript/2020/09/20200910-1092782)
 
 [郭文贵2020年9月10日盖特 20200910_2兄弟姐妹们．别人老想用钱砸咱．咋办呢？咋办呢？咋办昵？]({{site.baseurl}}/miles/transcript/2020/09/20200910-1092786)
-
-[郭文贵2020年9月10日盖特 20200910_3感谢战友们的全球合力的顶．灭共之歌…干掉共产党，我们要创造更伟大的奇迹……]({{site.baseurl}}/miles/transcript/2020/09/20200910-1092788)
-
-[郭文贵2020年9月9日直播 20200909文贵在喜马拉雅乱聊直播]({{site.baseurl}}/miles/transcript/2020/09/20200909-1092779)
 
 
 ## 頁面 47/113 [**<**]({{site.baseurl}}/miles/transcript/page46) [1]({{site.baseurl}}/miles/transcript/index) ... [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) **47** [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page48)

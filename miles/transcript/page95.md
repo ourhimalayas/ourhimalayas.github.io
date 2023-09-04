@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 95/113 [**<**]({{site.baseurl}}/miles/transcript/page94) [1]({{site.baseurl}}/miles/transcript/index) ... [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) **95** [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page96)
 
+[郭文贵2018年8月19日直播 20180819_1紧急会议前苍促视频报平安]({{site.baseurl}}/miles/transcript/2018/08/20180819-1088690)
+
+[郭文贵2018年8月18日视频 20180818_2Snow今天要去与女朋友约会了]({{site.baseurl}}/miles/transcript/2018/08/20180818-1087767)
+
 [郭文贵2018年8月18日直播 20180818_1文贵推特被封,请战友不要关闭推特 王健事件相关人员受到盗国贼威胁]({{site.baseurl}}/miles/transcript/2018/08/20180818-1088686)
 
 [郭文贵2018年8月17日 20180817郭文贵曾经经历的中国主持人名星被强迫变态玩弄的血恤的7夕节！]({{site.baseurl}}/miles/transcript/2018/08/20180817-1094180)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年8月8日直播 20180808_6下一周是给盗国贼反击的时间文贵要准备发布会和刑事案件具体落实一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2018/08/20180808-1088643)
 
 [郭文贵2018年8月8日直播 20180808_7我将拉黑任何一个挑战喜马拉雅打击盗国贼的推号开足马力全力以赴投入全部精力物力推进爆料革命]({{site.baseurl}}/miles/transcript/2018/08/20180808-1088648)
-
-[郭文贵2018年8月7日视频 20180807_3今天太有成就感了，喝茅台吃羊排奖励自己！]({{site.baseurl}}/miles/transcript/2018/08/20180807-1087742)
-
-[郭文贵2018年8月7日直播 20180807_2今天太有成就感了 馬上要喝點酒]({{site.baseurl}}/miles/transcript/2018/08/20180807-1088616)
 
 
 ## 頁面 95/113 [**<**]({{site.baseurl}}/miles/transcript/page94) [1]({{site.baseurl}}/miles/transcript/index) ... [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) **95** [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page96)

@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 75/113 [**<**]({{site.baseurl}}/miles/transcript/page74) [1]({{site.baseurl}}/miles/transcript/index) ... [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) **75** [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page76)
 
+[郭文贵2019年8月9日视频 20190809_2昨晚歐洲發生了大事]({{site.baseurl}}/miles/transcript/2019/08/20190809-1089408)
+
+[郭文贵2019年8月9日视频 20190809Miles Kwok live streaming from boat, letting everyone know that he is safe]({{site.baseurl}}/miles/transcript/2019/08/20190809-1093489)
+
 [2019年8月9日《郭文贵大直播》全文字版：船上报平安直播]({{site.baseurl}}/miles/transcript/2019/08/20190809-1098166)
 
 [郭文贵2019年8月8日视频 201908088th Aug Mr. Guo's broadcast: CCP's sophisticated plan to take over the world will...]({{site.baseurl}}/miles/transcript/2019/08/20190808-1093465)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年7月31日文贵大直播全文字版：爆猛料遭黑客疯狂攻击]({{site.baseurl}}/miles/transcript/2019/07/20190731-1098126)
 
 [2019年7月31日《文贵大直播》全文字版：乱聊上海西郊宾馆，开启CCP死亡第二战场]({{site.baseurl}}/miles/transcript/2019/07/20190731-1098163)
-
-[郭文贵2019年7月30日视频 20190730_1(精華自26分04秒起至35分27秒)习近平上位、必灭薄熙来、贾庆林出场、李源潮书生、南普陀计划]({{site.baseurl}}/miles/transcript/2019/07/20190730-1089379)
-
-[郭文贵2019年7月29日第二次直播 20190729_2香港发生了什么情况 中共在以日计的步伐奔向灭亡]({{site.baseurl}}/miles/transcript/2019/07/20190729-1093416)
 
 
 ## 頁面 75/113 [**<**]({{site.baseurl}}/miles/transcript/page74) [1]({{site.baseurl}}/miles/transcript/index) ... [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) **75** [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page76)

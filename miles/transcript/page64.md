@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 64/113 [**<**]({{site.baseurl}}/miles/transcript/page63) [1]({{site.baseurl}}/miles/transcript/index) ... [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) **64** [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page65)
 
+[郭文贵2019年12月17日视频 20191217在华盛顿报平安]({{site.baseurl}}/miles/transcript/2019/12/20191217-1094063)
+
+[郭文贵2019年12月16日视频 20191216维护海外华人的形象，依法惩治海外的大小欺民贼．是保护海外华人利益的必需手段！]({{site.baseurl}}/miles/transcript/2019/12/20191216-1094060)
+
 [郭文贵2019年12月15日 20191215陈峰对女性的轮奸被称为欢乐佛的．双修．是对佛教的侮辱和利用]({{site.baseurl}}/miles/transcript/2019/12/20191215-1094031)
 
 [郭文贵2019年12月14日视频 20191214原来王岐山真的比我们想象的还要凶险！我说实在话，现在看习近平的智商和政治能力跟王岐山根本不是一个级别的，严格讲习的所有的过去这十几年都是王岐山手里玩了个球儿！]({{site.baseurl}}/miles/transcript/2019/12/20191214-1094048)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年11月29日 20191129龚小夏过往点滴,龚你啥时候看过帐？]({{site.baseurl}}/miles/transcript/2019/11/20191129-1094098)
 
 [郭文贵2019年11月28日视频 20191128_1欺民賊又在撒謊 美國又不行了 到處是要飯的 這幫騙子]({{site.baseurl}}/miles/transcript/2019/11/20191128-1089683)
-
-[郭文贵2019年11月28日视频 20191128_2文贵嗑瓜子等大事发生]({{site.baseurl}}/miles/transcript/2019/11/20191128-1089684)
-
-[郭文贵2019年11月28日视频 20191128_3看看文贵在吃啥呢？咋子过感恩节里！与战友们分享感恩节的美食！]({{site.baseurl}}/miles/transcript/2019/11/20191128-1089686)
 
 
 ## 頁面 64/113 [**<**]({{site.baseurl}}/miles/transcript/page63) [1]({{site.baseurl}}/miles/transcript/index) ... [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) **64** [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page65)

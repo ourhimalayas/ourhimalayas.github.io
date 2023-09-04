@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 26/113 [**<**]({{site.baseurl}}/miles/transcript/page25) [1]({{site.baseurl}}/miles/transcript/index) ... [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) **26** [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page27)
 
+[郭文贵2021年7月16日直播 20210716_1从近几天发生的一系列事件来看．我们爆料革命升级的一个契机]({{site.baseurl}}/miles/transcript/2021/07/20210716-1091769)
+
+[郭文贵2021年7月16日盖特 20210716_2尊敬的战友们好，你们健身了吗？传播C C P病毒香港危机真相了吗？]({{site.baseurl}}/miles/transcript/2021/07/20210716-1091818)
+
 [郭文贵2021年7月15日直播 20210715_1人民币国际化是中共的金融陷阱，货币炸弹；人民币一毛不值，换成外汇才是自己的钱；亡腚缸，蛇妖闫重新回到流浪狗]({{site.baseurl}}/miles/transcript/2021/07/20210715-1091748)
 
 [郭文贵2021年7月14日直播 20210714_1蛇妖闫，骗子王腚肛自爆，这是上天的安排；已经对他们采取法律行动，全面追责反击；新中国联邦在7月4号后已发生质的改变，接下来的90天将有灭共的重大事件发生]({{site.baseurl}}/miles/transcript/2021/07/20210714-1091733)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年7月1日直播 20210701_1终结中国百年杀戮]({{site.baseurl}}/miles/transcript/2021/07/20210701-1091722)
 
 [郭文贵2021年6月30日直播 20210630_1共产党的百年冥诞．将彻底的扭转中国人的命运……和明天7月1号我们的一整天的直播．全世界的被共产主义杀害的人们正在紧紧地联合起来．将选择最快的方式消灭中国共产党！]({{site.baseurl}}/miles/transcript/2021/06/20210630-1091651)
-
-[郭文贵2021年6月29日直播 20210629_1共产党你完了百年冥诞的恐惧即将崩溃的经济．和世界对共产党的病毒追责．你共产党还会有明天吗？]({{site.baseurl}}/miles/transcript/2021/06/20210629-1091639)
-
-[郭文贵2021年6月28日直播 20210628_1森林深处．与英俊漂亮的战友们连线试试直播……]({{site.baseurl}}/miles/transcript/2021/06/20210628-1091628)
 
 
 ## 頁面 26/113 [**<**]({{site.baseurl}}/miles/transcript/page25) [1]({{site.baseurl}}/miles/transcript/index) ... [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) **26** [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page27)

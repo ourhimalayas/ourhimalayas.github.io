@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 56/113 [**<**]({{site.baseurl}}/miles/transcript/page55) [1]({{site.baseurl}}/miles/transcript/index) ... [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) **56** [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page57)
 
+[郭文贵2020年5月9日连线草根小哥 20200509_2]({{site.baseurl}}/miles/transcript/2020/05/20200509-1092070)
+
+[郭文贵2020年5月9日连线魔女Peace 20200509_1]({{site.baseurl}}/miles/transcript/2020/05/20200509-1092098)
+
 [郭文贵2020年5月8日连线战友文信 20200508_2]({{site.baseurl}}/miles/transcript/2020/05/20200508-1092054)
 
 [郭文贵2020年5月8日连线挺郭小妹 20200508_1]({{site.baseurl}}/miles/transcript/2020/05/20200508-1092089)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年4月22日视频 20200422]({{site.baseurl}}/miles/transcript/2020/04/20200422-1091930)
 
 [郭文贵2020年4月21日视频 20200421_1简短录播]({{site.baseurl}}/miles/transcript/2020/04/20200421-1089829)
-
-[郭文贵2020年4月19日视频 20200419_2剛直播完跟女兒聚餐]({{site.baseurl}}/miles/transcript/2020/04/20200419-1089825)
-
-[郭文贵2020年4月19日视频 20200419三周年直播回顾]({{site.baseurl}}/miles/transcript/2020/04/20200419-1091916)
 
 
 ## 頁面 56/113 [**<**]({{site.baseurl}}/miles/transcript/page55) [1]({{site.baseurl}}/miles/transcript/index) ... [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) **56** [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page57)

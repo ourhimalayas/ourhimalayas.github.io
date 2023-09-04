@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 88/113 [**<**]({{site.baseurl}}/miles/transcript/page87) [1]({{site.baseurl}}/miles/transcript/index) ... [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) **88** [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page89)
 
+[郭文贵2018年12月28日视频 20181228_1昨天晚上两位老领导打电话给我让我当俊杰说我身边有千军万马在等命令随时灭我我好怕怕哦]({{site.baseurl}}/miles/transcript/2018/12/20181228-1088973)
+
+[郭文贵2018年12月27日视频 20181227 原马健副部长所谓的被判无期徒刑是中共“以黑治国”“以警治国”最好的证明！郭文贵将不惜一切代价为马健先生及绝大多数被残害的共产党员争取公平！真相！还他们自由！]({{site.baseurl}}/miles/transcript/2018/12/20181227-1091983)
+
 [郭文贵2018年12月26日视频 20181226_1辽宁沈阳对罚款600亿人民币维持原判．限期30天内交罚款！文贵的三个压力二个高兴！]({{site.baseurl}}/miles/transcript/2018/12/20181226-1088972)
 
 [郭文贵2018年12月24日视频 20181224_1文贵衷心祝愿所有的伟大的战友及家人！14亿同胞！全世界的人们圣诞快乐]({{site.baseurl}}/miles/transcript/2018/12/20181224-1088969)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年12月2日视频 20181202杨澜找钥匙和G20会议的背后真相，开棺验王健的尸，谈谈王岐山，孟建柱，吴征。]({{site.baseurl}}/miles/transcript/2018/12/20181202-1087653)
 
 [郭文贵2018年11月29日视频 20181129郭戰裝到了]({{site.baseurl}}/miles/transcript/2018/11/20181129-1094422)
-
-[郭文贵2018年11月28日视频 20181128_1不好了 Snow吸大麻被活逮 遭雙規了]({{site.baseurl}}/miles/transcript/2018/11/20181128-1089063)
-
-[郭文贵2018年11月27日视频 20181127_2]({{site.baseurl}}/miles/transcript/2018/11/20181127-1089060)
 
 
 ## 頁面 88/113 [**<**]({{site.baseurl}}/miles/transcript/page87) [1]({{site.baseurl}}/miles/transcript/index) ... [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) **88** [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page89)

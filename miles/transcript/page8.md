@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 8/113 [**<**]({{site.baseurl}}/miles/transcript/page7) [1]({{site.baseurl}}/miles/transcript/index) ... [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) **8** [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page9)
 
+[郭文贵2022年4月17日直播 20220417_1七哥来啦]({{site.baseurl}}/miles/transcript/2022/04/20220417-1090964)
+
+[郭文贵2022年4月17日盖特 20220417_2尊敬的战友们好……下周二．4月19号，我们将有一整天的纪念419．5周年的大直播，一切都已经开始！]({{site.baseurl}}/miles/transcript/2022/04/20220417-1091688)
+
 [郭文贵2022年4月16日直播 20220416_17哥乱聊直播]({{site.baseurl}}/miles/transcript/2022/04/20220416-1090941)
 
 [郭文贵2022年4月15日直播 20220415_1文贵乱聊直播]({{site.baseurl}}/miles/transcript/2022/04/20220415-1090928)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2022年3月27日直播 20220327_1世界政治地域文化经济彻底改变；美国点明俄国非西方敌人普京是；从普京必须离开看习近平的命运；GClubs年会显天意人心遥相呼应]({{site.baseurl}}/miles/transcript/2022/03/20220327-1091315)
 
 [郭文贵2022年3月26日直播 20220326_1G CLUB2022年年会]({{site.baseurl}}/miles/transcript/2022/03/20220326-1091221)
-
-[郭文贵2022年3月25日直播 20220325_1从俄乌战争看真正的世界军事实力；香港地产大缩水金融市场黑市交易]({{site.baseurl}}/miles/transcript/2022/03/20220325-1091067)
-
-[郭文贵2022年3月24日盖特 20220324_1尊敬的战友们好……共产党就面临着全球经济脱钩．次级经济制裁……官员资产被查封的灾难时刻到来！共产党你玩啦！]({{site.baseurl}}/miles/transcript/2022/03/20220324-1090688)
 
 
 ## 頁面 8/113 [**<**]({{site.baseurl}}/miles/transcript/page7) [1]({{site.baseurl}}/miles/transcript/index) ... [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) **8** [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page9)

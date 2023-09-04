@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 18/113 [**<**]({{site.baseurl}}/miles/transcript/page17) [1]({{site.baseurl}}/miles/transcript/index) ... [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) **18** [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page19)
 
+[郭文贵2021年10月24日直播 20211024_1与川普公司合并的SPAC公司DWAC背后的11家投资机构与中共的关系，这场交易是以共产党情报为背景进行的连环操作，涉嫌多项内幕交易和犯罪的惊天的计划，让川普总统处在极度危险之中；我们永远]({{site.baseurl}}/miles/transcript/2021/10/20211024-1093490)
+
+[郭文贵2021年10月24日盖特 20211024_2绝密绝密绝密．习近平在共产党的六中全会前的．五国秘密外访，说明了什么？有什么样的内外政治目的？]({{site.baseurl}}/miles/transcript/2021/10/20211024-1093608)
+
 [郭文贵2021年10月23日盖特 20211023_1尊敬的战友们好．太多战友发来各种信息，文贵确实无法一一回复，有些问题等明天24号上午9:00的与战友们的大直播中，回答亲爱的兄弟姐妹们……一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/10/20211023-1093603)
 
 [郭文贵2021年10月22日直播 20211022_1马云为什么在西班牙而不敢回香港；吴征成功拿下川普，共产党已经控制了川普；习的行为都是个人恩怨造成的；中共六中全会会发生什么，会有什么结果；G系列是让共产党最害怕的]({{site.baseurl}}/miles/transcript/2021/10/20211022-1093414)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年10月10日直播 20211010_1文贵在双十节给台湾同胞说的话：台湾凶也，中共与美方对台湾问题早有文字性承诺勾兑;习以孙灭台，与国民党卖台贼呼应；国内经济房地产的万亿债务危机，华平基金的腐败会把西方掏空，中美]({{site.baseurl}}/miles/transcript/2021/10/20211010-1093468)
 
 [郭文贵2021年10月10日盖特 20211010_2尊敬的战友们好，我们都应该拥有这样美好的现代的文明的生活，????????????????????你们说对不对啊？]({{site.baseurl}}/miles/transcript/2021/10/20211010-1093471)
-
-[郭文贵2021年10月8日盖特 20211008_1尊敬的战友们好……台湾再次成为中美两国之间的政治经济交易的筹码，对台湾没有任何好处，美国等西方国家正在利用中国的内部政治斗争，获取自己的短暂的政治经济的利益，对中国人，对世]({{site.baseurl}}/miles/transcript/2021/10/20211008-1093374)
-
-[郭文贵2021年10月8日盖特直播 20211008_2]({{site.baseurl}}/miles/transcript/2021/10/20211008-1093378)
 
 
 ## 頁面 18/113 [**<**]({{site.baseurl}}/miles/transcript/page17) [1]({{site.baseurl}}/miles/transcript/index) ... [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) **18** [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page19)

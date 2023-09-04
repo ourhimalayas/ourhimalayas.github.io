@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 30/113 [**<**]({{site.baseurl}}/miles/transcript/page29) [1]({{site.baseurl}}/miles/transcript/index) ... [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) **30** [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page31)
 
+[郭文贵2021年5月21日盖特 20210521_1尊敬的战友们好，为什么在这短短的一两周内世界经济，政治，军事科学．教育各个领域．都突然的统一迅速的。在转向灭共．反共呢？为什么那么多世界上曾经否定我们的科学家的报告的人，现]({{site.baseurl}}/miles/transcript/2021/05/20210521-1091354)
+
+[郭文贵2021年5月21日直播 20210521_2为新中国联邦一周年平安顺利进行．到纽约自由女神祈福]({{site.baseurl}}/miles/transcript/2021/05/20210521-1091363)
+
 [郭文贵2021年5月20日盖特 20210520_2尊敬的战友们好！共产党刚刚制定了新一波．有杨娘娘．王公公．主持的攻击，新中国联邦．爆料革命的计划．文贵在这里向大家分享！]({{site.baseurl}}/miles/transcript/2021/05/20210520-1091342)
 
 [郭文贵2021年5月20日盖特 20210520_3没有什么七哥一年前敢保证欧中贸易协议一定会被干掉？为什么美国突然有这么多投资，中共的大佬们迅速在中共撤回和撤资？为什么共匪敢公开反犹太民族？]({{site.baseurl}}/miles/transcript/2021/05/20210520-1091346)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年5月13日直播 20210513_3文贵直播：以毒灭共，喜币打疼了中共，中共对文贵开始新一轮打压；秦刚女婿大使来美的首要任务；虚拟币在美国合法化的重大意义；我们已经有了喜银行]({{site.baseurl}}/miles/transcript/2021/05/20210513-1091338)
 
 [郭文贵2021年5月13日盖特 20210513_4第13to完成！]({{site.baseurl}}/miles/transcript/2021/05/20210513-1091340)
-
-[郭文贵2021年5月12日盖特 20210512_1尊敬的战友们好．美国在印度．马六甲．霍尔木兹海峡．等地区将派重兵意味着什么？美国商业科技领域从中共和香港全面撤出，以及在亚洲的商业贸易，金融的布局．是在做灭共后的一切准备。]({{site.baseurl}}/miles/transcript/2021/05/20210512-1091324)
-
-[郭文贵2021年5月11日盖特 20210511_15月11号尊敬的战友们好！SN0W向大家请安了……]({{site.baseurl}}/miles/transcript/2021/05/20210511-1091319)
 
 
 ## 頁面 30/113 [**<**]({{site.baseurl}}/miles/transcript/page29) [1]({{site.baseurl}}/miles/transcript/index) ... [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) **30** [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page31)

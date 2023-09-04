@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 16/113 [**<**]({{site.baseurl}}/miles/transcript/page15) [1]({{site.baseurl}}/miles/transcript/index) ... [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) **16** [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page17)
 
+[郭文贵2021年11月18日盖特 20211118_2可爱的笨笨和Snow嬉闹的日常生活]({{site.baseurl}}/miles/transcript/2021/11/20211118-1093640)
+
+[郭文贵2021年11月18日盖特 20211118_3笨笨喜欢啃啃啃… 玩得好开心啊]({{site.baseurl}}/miles/transcript/2021/11/20211118-1093644)
+
 [郭文贵2021年11月18日盖特 20211118_4笨笨说，“Snow，出来跟我玩儿嘛……” Snow说, “我不要啦，让我静静的做个美男子好不好啦 ！”????]({{site.baseurl}}/miles/transcript/2021/11/20211118-1093645)
 
 [郭文贵2021年11月18日盖特 20211118_5自娱自乐模式启动????]({{site.baseurl}}/miles/transcript/2021/11/20211118-1093649)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年11月7日直播 20211107_1爆料革命班农战斗室发起的百家私人企业起诉，第五法庭暂停拜登政府强制疫苗令的重大意义；虚拟币交易所，银行，币价，市值，估值与提现之间的关系；中共为了冬奥会，掩盖疫苗死亡真相；]({{site.baseurl}}/miles/transcript/2021/11/20211107-1093849)
 
 [郭文贵2021年11月7日盖特 20211107_2尊敬的战友们好……工作了一整天，吃了好几顿饭非常的兴奋，一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/11/20211107-1094499)
-
-[郭文贵2021年11月6日盖特 20211106_1尊敬的战友们好．你们健身了吗？传播．C C P病毒．香港危机．疫苗解药的真相了吗？七哥今天一天都和DC来的朋友开会，就没有时间录长视频了……明天的大直播间！]({{site.baseurl}}/miles/transcript/2021/11/20211106-1093748)
-
-[郭文贵2021年11月6日盖特 20211106_2尊敬的战友们好！正在努力加入喜联储开喜美元帐号，准备买喜币的战友们……一定准确快速正确的聪明的准备好KYC的有关材料，这是关键的关键！]({{site.baseurl}}/miles/transcript/2021/11/20211106-1093751)
 
 
 ## 頁面 16/113 [**<**]({{site.baseurl}}/miles/transcript/page15) [1]({{site.baseurl}}/miles/transcript/index) ... [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) **16** [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page17)

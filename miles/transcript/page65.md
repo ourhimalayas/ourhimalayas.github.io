@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 65/113 [**<**]({{site.baseurl}}/miles/transcript/page64) [1]({{site.baseurl}}/miles/transcript/index) ... [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) **65** [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page66)
 
+[郭文贵2019年11月28日视频 20191128_2文贵嗑瓜子等大事发生]({{site.baseurl}}/miles/transcript/2019/11/20191128-1089684)
+
+[郭文贵2019年11月28日视频 20191128_3看看文贵在吃啥呢？咋子过感恩节里！与战友们分享感恩节的美食！]({{site.baseurl}}/miles/transcript/2019/11/20191128-1089686)
+
 [郭文贵2019年11月27日视频 20191127_2香港有大陆法，信天主教和讲英文是高于台湾的原因]({{site.baseurl}}/miles/transcript/2019/11/20191127-1089681)
 
 [郭文贵2019年11月27日 20191127再谈《香港人权与民主法案》,川普签署法案的前一分钟，中共仍在勾兑；CCP在疆狂杀滥捕甚于魔鬼]({{site.baseurl}}/miles/transcript/2019/11/20191127-1094080)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年11月18日视频 20191118_4香港的人权法案可能今天要通过了 你能擋得住嗎共產黨]({{site.baseurl}}/miles/transcript/2019/11/20191118-1089657)
 
 [郭文贵2019年11月18日 20191118香港理工大事件的背后故事和王建到底是怎么死的！ part1 2]({{site.baseurl}}/miles/transcript/2019/11/20191118-1093975)
-
-[2019年11月17日文贵大直播全文字版：对香港理工大学即将发生的人道危机提出的个人看法]({{site.baseurl}}/miles/transcript/2019/11/20191117-1086589)
-
-[郭文贵2019年11月17日视频 20191117_2香港又有行动啦！香港的教堂要注意了，对教堂有行动，宗教设施，那几个教堂，我就不多说了啊]({{site.baseurl}}/miles/transcript/2019/11/20191117-1089651)
 
 
 ## 頁面 65/113 [**<**]({{site.baseurl}}/miles/transcript/page64) [1]({{site.baseurl}}/miles/transcript/index) ... [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) **65** [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page66)

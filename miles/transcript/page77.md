@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 77/113 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page78)
 
+[2019年7月25日《文贵大直播》全文字版：请战友们记住7月21号7月23号.......]({{site.baseurl}}/miles/transcript/2019/07/20190725-1098121)
+
+[郭文贵2019年7月24日视频 20190724尊敬的战友们好，你们健身了吗？你们往身上泼水了吗？衷心的祝愿和祝福所有的在国内．在水灾同胞们能尽快的恢复到正常的生活……我们的心和你们在一起，一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/07/20190724-1093387)
+
 [2019年7月24日《文贵大直播》全文字版]({{site.baseurl}}/miles/transcript/2019/07/20190724-1098119)
 
 [郭文贵2019年7月23日直播 20190723_3黑客后第二段高清版]({{site.baseurl}}/miles/transcript/2019/07/20190723-1088590)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年7月15日直播全文字版：盘古大观在7月14日被北京高院公告······]({{site.baseurl}}/miles/transcript/2019/07/20190715-1098113)
 
 [郭文贵2019年7月14日 20190714班农与文贵直播: 共产党为什么可以强奸美国70年？]({{site.baseurl}}/miles/transcript/2019/07/20190714-1093421)
-
-[2019年7月14日直播全文字版: 班农与文贵：共产党为什么可以强奸美国70年？]({{site.baseurl}}/miles/transcript/2019/07/20190714-1098114)
-
-[郭文贵2019年7月12日蔡英文访问纽约 20190712蔡英文访问纽约．和香港接下来的行动．大版G20的结果已经影响了美国内部的政治！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/07/20190712-1093418)
 
 
 ## 頁面 77/113 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page78)

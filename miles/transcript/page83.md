@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 83/113 [**<**]({{site.baseurl}}/miles/transcript/page82) [1]({{site.baseurl}}/miles/transcript/index) ... [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) **83** [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page84)
 
+[郭文贵2019年5月1日委内瑞拉革命 20190501从委内瑞拉革命，我们可以得到如何保护台湾和香港快速灭共的最佳办法，什么是尿脸党！]({{site.baseurl}}/miles/transcript/2019/05/20190501-1092973)
+
+[郭文贵2019年4月30日视频 20190430Miles reporting safety, ROL Foundation’s iphone incident]({{site.baseurl}}/miles/transcript/2019/04/20190430-1092964)
+
 [郭文贵2019年4月29日 20190429_2（2）台湾．香港．将是灭共的重要之地]({{site.baseurl}}/miles/transcript/2019/04/20190429-1088623)
 
 [郭文贵2019年4月29日 20190429台湾．香港．将是灭共的重要之地……谷畜生侮骂一亿河南同胞必须受惩罚！]({{site.baseurl}}/miles/transcript/2019/04/20190429-1092960)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年4月16日 20190416简单谈谈维基解密解密的信息 搜集李嘉诚10个人信息的进展]({{site.baseurl}}/miles/transcript/2019/04/20190416-1092824)
 
 [郭文贵2019年4月15日第二次直播 20190415_2接下来的爆料有些会是让人无法接受的……人性丑恶行为！＂世上有些人的恶已经超过魔鬼????＂与共产党一起的任何人任何事情都比妖怪还要让人憎恶……]({{site.baseurl}}/miles/transcript/2019/04/20190415-1092809)
-
-[郭文贵2019年4月15日第一次直播 20190415_1下午三点！显摆一下新＂汉挂子＂新衣服．向战友报告一点刚刚的神秘会议！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/04/20190415-1092813)
-
-[郭文贵2019年4月13日第三次直播 20190413_3给战友们的四条建议！紧急通知，战友必看！]({{site.baseurl}}/miles/transcript/2019/04/20190413-1092773)
 
 
 ## 頁面 83/113 [**<**]({{site.baseurl}}/miles/transcript/page82) [1]({{site.baseurl}}/miles/transcript/index) ... [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) **83** [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page84)

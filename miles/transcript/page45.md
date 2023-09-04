@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 45/113 [**<**]({{site.baseurl}}/miles/transcript/page44) [1]({{site.baseurl}}/miles/transcript/index) ... [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) **45** [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page46)
 
+[郭文贵2020年11月20日直播 20201120_4王建之死 两周年]({{site.baseurl}}/miles/transcript/2020/11/20201120-1093255)
+
+[郭文贵2020年11月19日直播 20201119_1]({{site.baseurl}}/miles/transcript/2020/11/20201119-1093232)
+
 [郭文贵2020年11月18日盖特 20201118尊敬的戰友，你們健身了嗎？你們傳播CCP病毒……香港危機真相了嗎？一切都已經開始！]({{site.baseurl}}/miles/transcript/2020/11/20201118-1093215)
 
 [郭文贵2020年11月17日盖特 2020111772小時會不會发生啊？]({{site.baseurl}}/miles/transcript/2020/11/20201117-1093220)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年11月9日直播 20201109]({{site.baseurl}}/miles/transcript/2020/11/20201109-1093131)
 
 [郭文贵2020年11月8日直播 20201108_1]({{site.baseurl}}/miles/transcript/2020/11/20201108-1093104)
-
-[郭文贵2020年11月8日直播与大卫连线 20201108_2]({{site.baseurl}}/miles/transcript/2020/11/20201108-1093113)
-
-[郭文贵2020年11月8日盖特 20201108_3文贵喝完下午茶……抽雪茄抽醉了，在此……和战友聊聊……到底美国大选谁能赢？？为什么？我们为什么支持川普总统？]({{site.baseurl}}/miles/transcript/2020/11/20201108-1093132)
 
 
 ## 頁面 45/113 [**<**]({{site.baseurl}}/miles/transcript/page44) [1]({{site.baseurl}}/miles/transcript/index) ... [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) **45** [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page46)

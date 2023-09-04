@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 62/113 [**<**]({{site.baseurl}}/miles/transcript/page61) [1]({{site.baseurl}}/miles/transcript/index) ... [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) **62** [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page63)
 
+[郭文贵2020年1月25日 20200125大年初一文贵严肃负责任向战友及疫区同胞报告：……武汉疫情绝对是人为不是天灾！]({{site.baseurl}}/miles/transcript/2020/01/20200125-1091698)
+
+[郭文贵2020年1月24日视频 20200124_2吃完年夜飯 抽根朋友送的雪茄PARTAGAS]({{site.baseurl}}/miles/transcript/2020/01/20200124-1089758)
+
 [郭文贵2020年1月24日文贵看春晚 20200124]({{site.baseurl}}/miles/transcript/2020/01/20200124-1091671)
 
 [郭文贵2020年1月23日第二次直播 20200123_2向大家汇报今天的法治基金的会议花絮．24号文贵看春晚的节目的一些安排]({{site.baseurl}}/miles/transcript/2020/01/20200123-1092137)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年1月5日视频 20200105_3文贵在这里又要浪一浪了，应战友们的要求，将今天穿的衣服录一段视频发出来，一切都是刚刚开始。]({{site.baseurl}}/miles/transcript/2020/01/20200105-1089023)
 
 [郭文贵2020年1月5日视频 20200105_2郭文貴在喜馬拉雅大使館採訪班農 談美國擊斃伊朗二號人物蘇拉曼尼]({{site.baseurl}}/miles/transcript/2020/01/20200105-1089752)
-
-[郭文贵2020年1月5日 20200105傅希秋是挂牌特务艾未未等欺民贼将被扫入历史的垃圾桶]({{site.baseurl}}/miles/transcript/2020/01/20200105-1091725)
-
-[郭文贵2020年1月4日 20200104共产党不管你咋折腾，你完蛋了]({{site.baseurl}}/miles/transcript/2020/01/20200104-1091701)
 
 
 ## 頁面 62/113 [**<**]({{site.baseurl}}/miles/transcript/page61) [1]({{site.baseurl}}/miles/transcript/index) ... [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) **62** [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page63)

@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 24/113 [**<**]({{site.baseurl}}/miles/transcript/page23) [1]({{site.baseurl}}/miles/transcript/index) ... [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) **24** [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page25)
 
+[郭文贵2021年8月6日盖特 20210806_2尊敬的战友们好，全国水灾．人祸．病毒肆虐．经济接近崩溃，为什么中南坑的老杂毛？还是照样的群居北戴河呢，他们在干什么？他们想干什么？无产阶级的中国共产党，所享受的物质的生活，]({{site.baseurl}}/miles/transcript/2021/08/20210806-1092058)
+
+[郭文贵2021年8月5日盖特 20210805_1尊敬的战友们好：你们健身了吗？传播CC P病毒．郑州人祸，香港危机真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/08/20210805-1092162)
+
 [郭文贵2021年8月5日盖特 20210805_2尊敬的战友们好，无论是共产党还是一帮且LOW 爆了个的低级骗子，我最恨的就是他们用最低级的谎言，玩弄我们爆料革命的战友，凡是这些打着爆料革命灭共的名义，玩弄我们战友感情的人，我们]({{site.baseurl}}/miles/transcript/2021/08/20210805-1092168)
 
 [郭文贵2021年8月5日盖特 20210805_3尊敬的战友们好．很多人希望能得到七哥签署的，今天新中国联邦，第一次发出的官方文件，要求取消北京冬奥会的这个申请书！七哥只能满足一少部分的战友们要求，我会尽快的发给，分配给战]({{site.baseurl}}/miles/transcript/2021/08/20210805-1092170)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年7月30日盖特 20210730_6真心觉得自己真的很棒！]({{site.baseurl}}/miles/transcript/2021/07/20210730-1091861)
 
 [郭文贵2021年7月30日盖特 20210730_7尊敬的战友们好：为什么这几天从东京到南京．从北京到华盛顿．从欧洲到非洲．CCP病毒突然猛增，这与这些天发生的一个个的所谓的平爆策反 路大脑骗．蛇妖闫……有什么关系。]({{site.baseurl}}/miles/transcript/2021/07/20210730-1091862)
-
-[郭文贵2021年7月29日盖特 20210729_2尊敬的战友们好，你们健身了吗，传播CCP病毒香港危机郑州水灾真相了吗！爆料革命由路大脑袋和蛇妖闫事件，新中国联邦迎来了新的春天。。]({{site.baseurl}}/miles/transcript/2021/07/20210729-1091852)
-
-[郭文贵2021年7月29日直播 20210729_1文贵是第一个说中概股会崩溃的；世界的未来和希望就是虚拟币；灭共要有耐心，不能急功近利；灭爆小组行动将持续到9月20号，更多孙力军会被抓]({{site.baseurl}}/miles/transcript/2021/07/20210729-1091928)
 
 
 ## 頁面 24/113 [**<**]({{site.baseurl}}/miles/transcript/page23) [1]({{site.baseurl}}/miles/transcript/index) ... [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) **24** [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page25)

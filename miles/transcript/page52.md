@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 52/113 [**<**]({{site.baseurl}}/miles/transcript/page51) [1]({{site.baseurl}}/miles/transcript/index) ... [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) **52** [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page53)
 
+[郭文贵2020年7月12日视频 20200712_2馬上直播]({{site.baseurl}}/miles/transcript/2020/07/20200712-1089944)
+
+[郭文贵2020年7月12日视频 20200712_3今天直播完以后，我继续健身，灭共的路上一定要强心健体永不放弃]({{site.baseurl}}/miles/transcript/2020/07/20200712-1089947)
+
 [郭文贵2020年7月12日直播 20200712美国领导的灭共盟军将在欧洲，及北约以及亚洲和南海东海香港领域．经济．领导人制栽等．全面开始灭共！]({{site.baseurl}}/miles/transcript/2020/07/20200712-1092359)
 
 [郭文贵2020年7月11日视频 20200711_1跟着郝海东先生和叶钊颖女士！学习健身1]({{site.baseurl}}/miles/transcript/2020/07/20200711-1089926)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年7月4日直播 20200704新中国联邦被西方政府认可吗？以及GTV投资．美国队中共有史以来最严厉的制裁意味着什么？爆料革命的下一步计划和行动]({{site.baseurl}}/miles/transcript/2020/07/20200704-1092200)
 
 [郭文贵2020年7月3日视频 20200703_1海航王健被殺害2周年]({{site.baseurl}}/miles/transcript/2020/07/20200703-1089897)
-
-[郭文贵2020年7月3日视频 20200703_2听听美国政府官员这一系列制裁和我们战友们在华盛顿抗议的一些观点以及背后的故事]({{site.baseurl}}/miles/transcript/2020/07/20200703-1089901)
-
-[郭文贵2020年7月2日直播 20200702华盛顿的历史性的美东战友们的抗议，以及接下来对中共惩罚的大锤如何落下！]({{site.baseurl}}/miles/transcript/2020/07/20200702-1092177)
 
 
 ## 頁面 52/113 [**<**]({{site.baseurl}}/miles/transcript/page51) [1]({{site.baseurl}}/miles/transcript/index) ... [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) **52** [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page53)

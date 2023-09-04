@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 49/113 [**<**]({{site.baseurl}}/miles/transcript/page48) [1]({{site.baseurl}}/miles/transcript/index) ... [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) **49** [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page50)
 
+[郭文贵2020年8月25日直播 20200825加拿大农场的战略性胜利堪比中途岛战役；司法部文件开启以法灭共；美国民主党不承认“一中”]({{site.baseurl}}/miles/transcript/2020/08/20200825-1092829)
+
+[郭文贵2020年8月23日直播 20200823_1大家记住一定要今天文贵信的内容；中共制造经济危机，人道危机，人类面临大劫难；美国与中共脱钩为时已晚]({{site.baseurl}}/miles/transcript/2020/08/20200823-1092604)
+
 [郭文贵2020年8月23日盖特 20200823_28月23日，尊敬的战友们好，你们健身了吗？你们传播C C P病毒香港危机真相了吗？一切都已经开始了！]({{site.baseurl}}/miles/transcript/2020/08/20200823-1092618)
 
 [郭文贵2020年8月22日连线木兰 20200822_1木兰与七哥试直播]({{site.baseurl}}/miles/transcript/2020/08/20200822-1092577)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年8月12日直播 20200812_2美灭共大锤如期一一砸下；下一制裁目标阿里巴巴，百度；文贵与战友们与中共展开智慧游击战]({{site.baseurl}}/miles/transcript/2020/08/20200812-1092607)
 
 [郭文贵2020年8月11日视频 20200811_2 希望…战友们永远都要坚持唯真不破．无我的爆料革命的原则，希望战友们能互相真正的尊重…和珍惜。]({{site.baseurl}}/miles/transcript/2020/08/20200811-1090015)
-
-[郭文贵2020年8月10日盖特 202008108月10号尊敬的战友们好，你们健身了吗？你们传播CCP病毒香港危机真相了吧，刚刚收到了很多战友发来的私信。没办法一一回信息…]({{site.baseurl}}/miles/transcript/2020/08/20200810-1092525)
-
-[郭文贵2020年8月9日直播 20200809张首晟到底是谁杀的？文贵每天面临多少的生死威胁？又是如何处理的？]({{site.baseurl}}/miles/transcript/2020/08/20200809-1092616)
 
 
 ## 頁面 49/113 [**<**]({{site.baseurl}}/miles/transcript/page48) [1]({{site.baseurl}}/miles/transcript/index) ... [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) **49** [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page50)

@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 36/113 [**<**]({{site.baseurl}}/miles/transcript/page35) [1]({{site.baseurl}}/miles/transcript/index) ... [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) **36** [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page37)
 
+[郭文贵2021年3月12日盖特 20210312_2尊敬的战友们好，今天是2021年第一次文贵重磅爆料灭共第二部分！]({{site.baseurl}}/miles/transcript/2021/03/20210312-1090885)
+
+[郭文贵2021年3月12日盖特 20210312_3从四美女在GTV直播……看我们GTV的未来]({{site.baseurl}}/miles/transcript/2021/03/20210312-1090889)
+
 [郭文贵2021年3月12日盖特 20210312_4在外面开会回来．文贵看到共产党病毒在西方世界……给中国人带来的负面影响，感到非常的恐惧和害怕，我们都要珍惜由爆料革命新中国联邦！为中国人在国际上打下这片天空！将共产党与共产]({{site.baseurl}}/miles/transcript/2021/03/20210312-1090891)
 
 [郭文贵2021年3月11日盖特 20210311_1尊敬的战友们好！GTV可能被骇客的紧急通知！]({{site.baseurl}}/miles/transcript/2021/03/20210311-1090862)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年3月1日盖特 20210301_1尊敬的战友得好！稍后在今天稍晚的时间，我将有一个重要的公告，关于GTV将退还所有的13OO投资者椅的公告……我们不会妥协，也不会被任何机构玩弄……我们爆料革命的平台，只能．越来越强越]({{site.baseurl}}/miles/transcript/2021/03/20210301-1090811)
 
 [郭文贵2021年2月28日盖特 20210228_1尊敬的战友们好！文贵正在尝试，让自己获得不高兴的心情，然后今天晚上在直播！文贵谈谈共产党的流氓文化……和把我们14亿中国人民不当猪狗的流氓逻辑]({{site.baseurl}}/miles/transcript/2021/02/20210228-1090782)
-
-[郭文贵2021年2月28日直播 20210228_2为了确保战友的利益，文贵做出的最终决定，确保Ｇ系列控制权一定都在战友手中]({{site.baseurl}}/miles/transcript/2021/02/20210228-1090801)
-
-[郭文贵2021年2月27日盖特 20210227_1即将崩溃的共产党的经济！和全世界联合以毒灭共的大时代的开启！最大的受益者，是新中国联邦和新中国联邦的中国人民]({{site.baseurl}}/miles/transcript/2021/02/20210227-1090772)
 
 
 ## 頁面 36/113 [**<**]({{site.baseurl}}/miles/transcript/page35) [1]({{site.baseurl}}/miles/transcript/index) ... [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) **36** [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page37)

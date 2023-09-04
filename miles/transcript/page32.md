@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 32/113 [**<**]({{site.baseurl}}/miles/transcript/page31) [1]({{site.baseurl}}/miles/transcript/index) ... [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) **32** [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page33)
 
+[郭文贵2021年4月30日盖特 20210430_3在此呼吁全球农场认真的服务我们的战友！将我们的农场推向一个新的高度．准备好灭共关键决战到来前的一切准备！]({{site.baseurl}}/miles/transcript/2021/04/20210430-1091203)
+
+[郭文贵2021年4月30日盖特 20210430_4尊敬的戰友們好！剛剛录制幾個小時的［馬背英雄］新歌之後的感想．分享給大家！感謝唐平老師！威廉王老師！辛苦的付出！和對一個完全不具備唱歌的學生！所付出的耐心！一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/04/20210430-1091207)
+
 [郭文贵2021年4月29日盖特 20210429_1尊敬的战友們好．你們健身了嗎！你們傳播CC P病毒．香港危機真相了嗎一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/04/20210429-1091273)
 
 [郭文贵2021年4月28日盖特 20210428_1為什麼這麼多人！認為趙婷的奧斯卡獎！是因為他的背景而得到的！]({{site.baseurl}}/miles/transcript/2021/04/20210428-1091265)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年4月16日盖特 20210416_1尊敬的战友们好……共产党在灭亡前夜……正在创造最大的经济泡沫，美国华尔街正在能制造一个世界经济的陷阱，我们如何把握住自己．踩着历史的节奏而不掉入陷阱，不被泡沫化．还要抓住的]({{site.baseurl}}/miles/transcript/2021/04/20210416-1091128)
 
 [郭文贵2021年4月16日盖特 20210416_2根据我海东兄弟和叶钊颖妹妹的提醒．我现在做两组啊，让他们审核看是否符合标准，战友们一定要按照标准做这个姿势，否则会伤到身体．这非常的重要！ 智慧人生……科学健身！]({{site.baseurl}}/miles/transcript/2021/04/20210416-1091132)
-
-[郭文贵2021年4月16日盖特 20210416_3根据我海东兄弟和叶钊颖妹妹的提醒．我现在做两组啊，让他们审核看是否符合标准，战友们一定要按照标准做这个姿势，否则会伤到身体．这非常的重要！ 智慧人生……科学健身！(第二段)另一]({{site.baseurl}}/miles/transcript/2021/04/20210416-1091137)
-
-[郭文贵2021年4月15日直播 20210415_1以毒灭共正在全面进行；马云的进进出出；江家势力杨雄之死绝非正常；中共如同二战时的日本；七哥已经准备好方案，保证所有GTV美国投资人的核心利益]({{site.baseurl}}/miles/transcript/2021/04/20210415-1091126)
 
 
 ## 頁面 32/113 [**<**]({{site.baseurl}}/miles/transcript/page31) [1]({{site.baseurl}}/miles/transcript/index) ... [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) **32** [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page33)

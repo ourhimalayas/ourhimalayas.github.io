@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 39/113 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page40)
 
+[郭文贵2021年2月2日直播 20210202_2回答战友们关于VOG退款事宜的疑问]({{site.baseurl}}/miles/transcript/2021/02/20210202-1090551)
+
+[郭文贵2021年2月1日直播 20210201_1文贵在雪中和战友们聊聊天．谈谈，中国共产党是如何欺骗中国老百姓的……]({{site.baseurl}}/miles/transcript/2021/02/20210201-1090507)
+
 [郭文贵2021年2月1日盖特 20210201_2尊敬的战友们好今天的纽约，封城和缅甸的政变和全球联合灭共所有的事情……有着什么样的内在的逻辑和关系！]({{site.baseurl}}/miles/transcript/2021/02/20210201-1090509)
 
 [郭文贵2021年2月1日盖特 20210201_3在国内新的一轮所谓平爆运动的．关键时刻，我相信绝大多数的共产党．体制内的有良知的．有智慧的人．应该知道．如何面对我们爆料革命．和处理，我们被九指妖．等背叛者．提供给他们的有]({{site.baseurl}}/miles/transcript/2021/02/20210201-1090515)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年1月22日盖特 20210122_2下午6:20我们正在和战友一起．等待这一切的到来……]({{site.baseurl}}/miles/transcript/2021/01/20210122-1090426)
 
 [郭文贵2021年1月21日直播 20210121_1深刻总结爆料革命的成功与不足，今年重点发展Ｇ系列，壮大灭共经济体系，与美新政府合作，联合灭共]({{site.baseurl}}/miles/transcript/2021/01/20210121-1090420)
-
-[郭文贵2021年1月20日直播 20210120_1新中国联邦见证美国120]({{site.baseurl}}/miles/transcript/2021/01/20210120-1090412)
-
-[郭文贵2021年1月20日盖特 20210120_2今天是爆料革命最大的挫败的一天……也是最美好的一天……感谢很多战友发来的信息，抱歉不能一一回复????????????同时我在这里谈一下．路德访谈今天节目．观后感的感觉]({{site.baseurl}}/miles/transcript/2021/01/20210120-1090416)
 
 
 ## 頁面 39/113 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page40)

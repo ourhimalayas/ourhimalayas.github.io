@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 104/113 [**<**]({{site.baseurl}}/miles/transcript/page103) [1]({{site.baseurl}}/miles/transcript/index) ... [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) **104** [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page105)
 
+[郭文贵2018年1月29日直播 20180129_1郭媒体视频郭文贵先生春节晚会节目预告]({{site.baseurl}}/miles/transcript/2018/01/20180129-1093308)
+
+[郭文贵2018年1月28日视频 20180128_2Snow太可爱了]({{site.baseurl}}/miles/transcript/2018/01/20180128-1087886)
+
 [郭文贵2018年1月28日直播 20180128_1郭媒体最新测试视频钓贼完整版]({{site.baseurl}}/miles/transcript/2018/01/20180128-1093304)
 
 [郭文贵2018年1月27日视频 20180127尊敬的战友们你们好，你们健身了吗]({{site.baseurl}}/miles/transcript/2018/01/20180127-1087878)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年11月27日 20171127郭文贵纽约的房子的价格为什么发生了问题？]({{site.baseurl}}/miles/transcript/2017/11/20171127-1094439)
 
 [郭文贵2017年11月26日第二次直播 20171126_2]({{site.baseurl}}/miles/transcript/2017/11/20171126-1094423)
-
-[郭文贵2017年11月26日第一次直播 20171126_1在Livestream 试播]({{site.baseurl}}/miles/transcript/2017/11/20171126-1094433)
-
-[郭文贵2017年11月23日第二次直播 20171123_2感恩节报平安]({{site.baseurl}}/miles/transcript/2017/11/20171123-1094418)
 
 
 ## 頁面 104/113 [**<**]({{site.baseurl}}/miles/transcript/page103) [1]({{site.baseurl}}/miles/transcript/index) ... [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) **104** [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page105)

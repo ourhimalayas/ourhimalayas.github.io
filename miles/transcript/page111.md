@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 111/113 [**<**]({{site.baseurl}}/miles/transcript/page110) [1]({{site.baseurl}}/miles/transcript/index) ... [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) **111** [112]({{site.baseurl}}/miles/transcript/page112) [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page112)
 
+[郭文贵2017年6月10日第二次直播 20170610_2]({{site.baseurl}}/miles/transcript/2017/06/20170610-1094373)
+
+[郭文贵2017年6月10日第一次直播 20170610_1有关海南航空的公告的回复]({{site.baseurl}}/miles/transcript/2017/06/20170610-1094378)
+
 [郭文贵2017年6月8日直播 20170608_1明鏡專訪郭文貴對盤古案的期待 60分]({{site.baseurl}}/miles/transcript/2017/06/20170608-1093265)
 
 [郭文贵2017年6月7日视频 20170607推特报平安]({{site.baseurl}}/miles/transcript/2017/06/20170607-1094292)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年5月16日视频 20170516]({{site.baseurl}}/miles/transcript/2017/05/20170516-1094403)
 
 [郭文贵2017年5月15日视频 20170515_2報平安 2被骇后再开！]({{site.baseurl}}/miles/transcript/2017/05/20170515-1094284)
-
-[郭文贵2017年5月15日视频 20170515_1]({{site.baseurl}}/miles/transcript/2017/05/20170515-1094389)
-
-[郭文贵2017年5月13日视频 20170513]({{site.baseurl}}/miles/transcript/2017/05/20170513-1094379)
 
 
 ## 頁面 111/113 [**<**]({{site.baseurl}}/miles/transcript/page110) [1]({{site.baseurl}}/miles/transcript/index) ... [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) **111** [112]({{site.baseurl}}/miles/transcript/page112) [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page112)

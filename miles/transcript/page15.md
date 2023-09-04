@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 15/113 [**<**]({{site.baseurl}}/miles/transcript/page14) [1]({{site.baseurl}}/miles/transcript/index) ... [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) **15** [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page16)
 
+[郭文贵2021年12月8日直播 20211208_1拜登外交抵制冬奥会；盘古物业接管惊世界；中共高级特务单伟建；新中国联邦未来1-3年对准中共高层海外大行动]({{site.baseurl}}/miles/transcript/2021/12/20211208-1093805)
+
+[郭文贵2021年12月7日盖特 20211207_1尊敬的战友们好，感谢全球亿万战友的关心，文贵的亲爹已经安顿下来啦……盘古的员工已经开始维权了……并很多人的救助……请大家放心！日久见人心，战友的牵挂和担心……和对我家人和我]({{site.baseurl}}/miles/transcript/2021/12/20211207-1094719)
+
 [郭文贵2021年12月7日盖特 20211207_2尊敬的战友们好……全球的新中国联邦人……要准备好，在所有的国家了解共产党官员的在海外各国的资产，财产，亲人朋友的详细的资料，和当地的各国的政府合作，把这些王八蛋的爹和娘和他]({{site.baseurl}}/miles/transcript/2021/12/20211207-1094724)
 
 [郭文贵2021年12月6日直播 20211206_1继文贵北京盘古家人再次被抄家后的直播]({{site.baseurl}}/miles/transcript/2021/12/20211206-1093740)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年11月19日直播 20211119_2试镜头]({{site.baseurl}}/miles/transcript/2021/11/20211119-1093873)
 
 [郭文贵2021年11月18日盖特 20211118_1尊敬的战友们好，……你们健身了吗？传播C C P病毒……疫苗解药的真相了吗？新中国联邦正以．前所未有的速度．和巨大的力量，在推动停止人类正在面对的疫苗灾难！]({{site.baseurl}}/miles/transcript/2021/11/20211118-1093635)
-
-[郭文贵2021年11月18日盖特 20211118_2可爱的笨笨和Snow嬉闹的日常生活]({{site.baseurl}}/miles/transcript/2021/11/20211118-1093640)
-
-[郭文贵2021年11月18日盖特 20211118_3笨笨喜欢啃啃啃… 玩得好开心啊]({{site.baseurl}}/miles/transcript/2021/11/20211118-1093644)
 
 
 ## 頁面 15/113 [**<**]({{site.baseurl}}/miles/transcript/page14) [1]({{site.baseurl}}/miles/transcript/index) ... [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) **15** [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page16)

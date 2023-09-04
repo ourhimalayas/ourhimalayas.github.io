@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 105/113 [**<**]({{site.baseurl}}/miles/transcript/page104) [1]({{site.baseurl}}/miles/transcript/index) ... [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) **105** [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page106)
 
+[郭文贵2017年11月26日第一次直播 20171126_1在Livestream 试播]({{site.baseurl}}/miles/transcript/2017/11/20171126-1094433)
+
+[郭文贵2017年11月23日第二次直播 20171123_2感恩节报平安]({{site.baseurl}}/miles/transcript/2017/11/20171123-1094418)
+
 [郭文贵2017年11月23日第一次直播 20171123_1就近况回答明镜电视追问]({{site.baseurl}}/miles/transcript/2017/11/20171123-1094818)
 
 [郭文贵2017年11月21日Instagram健身直播 20171121]({{site.baseurl}}/miles/transcript/2017/11/20171121-1094415)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年10月26日视频 20171026_3直播公告]({{site.baseurl}}/miles/transcript/2017/10/20171026-1087464)
 
 [郭文贵2017年10月26日第二次直播 20171026_2]({{site.baseurl}}/miles/transcript/2017/10/20171026-1094522)
-
-[郭文贵2017年10月26日第一次直播 20171026_1十九大后爆料计划]({{site.baseurl}}/miles/transcript/2017/10/20171026-1094531)
-
-[郭文贵2017年10月23日直播 20171023_1与澳纽挺郭后援会视频通话]({{site.baseurl}}/miles/transcript/2017/10/20171023-1093314)
 
 
 ## 頁面 105/113 [**<**]({{site.baseurl}}/miles/transcript/page104) [1]({{site.baseurl}}/miles/transcript/index) ... [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) **105** [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page106)

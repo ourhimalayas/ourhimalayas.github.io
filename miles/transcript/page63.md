@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 63/113 [**<**]({{site.baseurl}}/miles/transcript/page62) [1]({{site.baseurl}}/miles/transcript/index) ... [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) **63** [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page64)
 
+[郭文贵2020年1月5日 20200105傅希秋是挂牌特务艾未未等欺民贼将被扫入历史的垃圾桶]({{site.baseurl}}/miles/transcript/2020/01/20200105-1091725)
+
+[郭文贵2020年1月4日 20200104共产党不管你咋折腾，你完蛋了]({{site.baseurl}}/miles/transcript/2020/01/20200104-1091701)
+
 [郭文贵2020年1月3日中俄伊军演 20200103苏曼尼的被炸死是我们爆料革命展示实力走向]({{site.baseurl}}/miles/transcript/2020/01/20200103-1092232)
 
 [郭文贵2020年1月2日 20200102聊自己的人生和武汉的非典 为战友终生戒吃牛肉！]({{site.baseurl}}/miles/transcript/2020/01/20200102-1091687)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年12月19日视频 20191219_1由于文贵诉郭宝胜的案件在华盛顿开庭．延期一了天．今天不能直播了]({{site.baseurl}}/miles/transcript/2019/12/20191219-1089706)
 
 [郭文贵2019年12月18日视频 20191218_1文贵今天还要继续开庭，所以早上5：00起床，今天只能是录制视频给大家了]({{site.baseurl}}/miles/transcript/2019/12/20191218-1089702)
-
-[郭文贵2019年12月17日视频 20191217在华盛顿报平安]({{site.baseurl}}/miles/transcript/2019/12/20191217-1094063)
-
-[郭文贵2019年12月16日视频 20191216维护海外华人的形象，依法惩治海外的大小欺民贼．是保护海外华人利益的必需手段！]({{site.baseurl}}/miles/transcript/2019/12/20191216-1094060)
 
 
 ## 頁面 63/113 [**<**]({{site.baseurl}}/miles/transcript/page62) [1]({{site.baseurl}}/miles/transcript/index) ... [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) **63** [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page64)

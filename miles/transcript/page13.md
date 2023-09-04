@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 13/113 [**<**]({{site.baseurl}}/miles/transcript/page12) [1]({{site.baseurl}}/miles/transcript/index) ... [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) **13** [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page14)
 
+[郭文贵2022年1月10日盖特 20220110_1尊敬的战友们好！在中国大陆高墙内的同胞们……正在遭遇了前所未有的高压管制，正在爆发洗脑后的人道灾难事件，世界疫苗灾难即将停止，我们一定要坚持到最后……小心的面对新的爆发新的]({{site.baseurl}}/miles/transcript/2022/01/20220110-1088539)
+
+[郭文贵2022年1月9日直播 20220109_1哈薩克斯坦局势进展分析；青海地震几大山脉蓝莲花；疫苗大灾难和变种病毒的最新情况；重庆大爆炸，西安封城事件和中共20大之前的党争；喜币的现状与Hpay未来发展的潜力；中国人寿董事长王]({{site.baseurl}}/miles/transcript/2022/01/20220109-1088522)
+
 [郭文贵2022年1月9日盖特 20220109_2喜马拉雅七座山峰就是我们的????????????Noah‘s Ark。    诺亚方舟！]({{site.baseurl}}/miles/transcript/2022/01/20220109-1088533)
 
 [郭文贵2022年1月7日视频 20220107_1Who's Miles Guo Episode 2 Artemisinin and Ivermectin谁是郭文贵 2 青蒿素和伊维菌素]({{site.baseurl}}/miles/transcript/2022/01/20220107-1088294)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年12月25日盖特 20211225_3文贵衷心再愿全天下人……和所有的兄弟姐妹，战友们！及家人．圣诞节快乐，文贵为你们蒸馍馍吃咯????]({{site.baseurl}}/miles/transcript/2021/12/20211225-1093889)
 
 [郭文贵2021年12月25日盖特 20211225_4尊敬的战友们好，你们健身了吗？传播CC P病毒．疫苗解药的真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/12/20211225-1093890)
-
-[郭文贵2021年12月25日盖特直播 20211225_5蒸馍馍]({{site.baseurl}}/miles/transcript/2021/12/20211225-1093892)
-
-[郭文贵2021年12月25日盖特 20211225_6在今天这个特别的日子里． 当年的齐澳塞斯库就是在12月25号被枪毙的！原来共产主义的苏联也是在12月25号解体的……这是一个伟大的日子。七哥的厨艺大显身手……馍馍蒸熟啦……]({{site.baseurl}}/miles/transcript/2021/12/20211225-1093895)
 
 
 ## 頁面 13/113 [**<**]({{site.baseurl}}/miles/transcript/page12) [1]({{site.baseurl}}/miles/transcript/index) ... [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) **13** [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page14)

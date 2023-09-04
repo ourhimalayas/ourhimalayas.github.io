@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 53/113 [**<**]({{site.baseurl}}/miles/transcript/page52) [1]({{site.baseurl}}/miles/transcript/index) ... [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) **53** [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page54)
 
+[郭文贵2020年7月3日视频 20200703_2听听美国政府官员这一系列制裁和我们战友们在华盛顿抗议的一些观点以及背后的故事]({{site.baseurl}}/miles/transcript/2020/07/20200703-1089901)
+
+[郭文贵2020年7月2日直播 20200702华盛顿的历史性的美东战友们的抗议，以及接下来对中共惩罚的大锤如何落下！]({{site.baseurl}}/miles/transcript/2020/07/20200702-1092177)
+
 [郭文贵2020年6月30日视频 20200630_1]({{site.baseurl}}/miles/transcript/2020/06/20200630-1089891)
 
 [郭文贵2020年6月30日视频 20200630_2]({{site.baseurl}}/miles/transcript/2020/06/20200630-1089893)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年6月17日直播 20200617GTV投资和查询股票及夏威夷会议及喜马拉雅农场，新中国联邦的巨大影响力]({{site.baseurl}}/miles/transcript/2020/06/20200617-1094203)
 
 [郭文贵2020年6月16日直播 20200616回答战友们关于G币，GTV投资诉讼的问题；请大家注意挑拨离间的CCP特务；夏威夷将是中共的噩梦]({{site.baseurl}}/miles/transcript/2020/06/20200616-1094197)
-
-[郭文贵2020年6月15日视频 20200615_6七哥耍球棒]({{site.baseurl}}/miles/transcript/2020/06/20200615-1089836)
-
-[郭文贵2020年6月15日视频 20200615_7今天不直播]({{site.baseurl}}/miles/transcript/2020/06/20200615-1089839)
 
 
 ## 頁面 53/113 [**<**]({{site.baseurl}}/miles/transcript/page52) [1]({{site.baseurl}}/miles/transcript/index) ... [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) **53** [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page54)

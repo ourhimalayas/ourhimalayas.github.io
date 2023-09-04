@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 23/113 [**<**]({{site.baseurl}}/miles/transcript/page22) [1]({{site.baseurl}}/miles/transcript/index) ... [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) **23** [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page24)
 
+[郭文贵2021年8月17日直播 20210817_1为染病毒的战友及家人祈福！爆料革命，新中国联邦的战友们要真心爱家人，真心的爱战友；各农场是海外华人互帮互助的平台]({{site.baseurl}}/miles/transcript/2021/08/20210817-1092244)
+
+[郭文贵2021年8月17日盖特 20210817_2尊敬的战友们好，你们健身了吗？传播郑州人祸．香港危机真相了吗？一切都已经开始]({{site.baseurl}}/miles/transcript/2021/08/20210817-1092619)
+
 [郭文贵2021年8月16日直播 20210816_1美国在阿富汗失败而中共在阿富汗成功的原因；为什么说阿富汗政变是天助新中国联邦；解读俱乐部与G系列的意义；战友们如何正确理财；喜联储将是未来沼泽地的新一极力量]({{site.baseurl}}/miles/transcript/2021/08/20210816-1092223)
 
 [郭文贵2021年8月15日盖特 20210815_1尊敬的战友们大家好．北戴河会议，有些什么样的决定？共产党的经济崩溃前……会有什么要疯狂的行动，中国的私人企业家的命运将走向何方？]({{site.baseurl}}/miles/transcript/2021/08/20210815-1092612)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年8月7日盖特 20210807_2我才知道．路大脑骗．蛇妖闫．又一重磅发表．郝海东兄弟．叶钊颖妹妹现在海南不在西班牙了]({{site.baseurl}}/miles/transcript/2021/08/20210807-1092061)
 
 [郭文贵2021年8月6日盖特 20210806_1尊敬的战友们好，你们健身了吗？传播C C P病毒．郑州人祸．香港危机真相了吗？一切都已经开始。]({{site.baseurl}}/miles/transcript/2021/08/20210806-1092053)
-
-[郭文贵2021年8月6日盖特 20210806_2尊敬的战友们好，全国水灾．人祸．病毒肆虐．经济接近崩溃，为什么中南坑的老杂毛？还是照样的群居北戴河呢，他们在干什么？他们想干什么？无产阶级的中国共产党，所享受的物质的生活，]({{site.baseurl}}/miles/transcript/2021/08/20210806-1092058)
-
-[郭文贵2021年8月5日盖特 20210805_1尊敬的战友们好：你们健身了吗？传播CC P病毒．郑州人祸，香港危机真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/08/20210805-1092162)
 
 
 ## 頁面 23/113 [**<**]({{site.baseurl}}/miles/transcript/page22) [1]({{site.baseurl}}/miles/transcript/index) ... [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) **23** [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page24)

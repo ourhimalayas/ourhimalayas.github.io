@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 99/113 [**<**]({{site.baseurl}}/miles/transcript/page98) [1]({{site.baseurl}}/miles/transcript/index) ... [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) **99** [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page100)
 
+[郭文贵2018年4月26日直播 20180426_2]({{site.baseurl}}/miles/transcript/2018/04/20180426-1088198)
+
+[郭文贵2018年4月26日视频 20180426在西香格里拉酒店被抓嫖娼两位歌星是谁？]({{site.baseurl}}/miles/transcript/2018/04/20180426-1092842)
+
 [郭文贵2018年4月24日视频 20180424_2Guo Wengui's statement on the Persecution of Mr Zhiyu Chen and Zhiheng Chen by the Chin]({{site.baseurl}}/miles/transcript/2018/04/20180424-1087914)
 
 [郭文贵2018年4月24日视频 20180424_3文汇怎么造的假文件呢？详情，请看现在的路徳专访！文贵己经提供了部分信息给路德先生了！一切都是刚刚开始！愚蠢的盗国贼．又给文贵送大礼了！]({{site.baseurl}}/miles/transcript/2018/04/20180424-1087920)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年4月10日视频 20180410文贵谈见宝胜．与到底该不该反习！]({{site.baseurl}}/miles/transcript/2018/04/20180410-1092780)
 
 [郭文贵2018年4月9日视频 20180409尊敬的战友们好：文贵为什么在华盛顿！]({{site.baseurl}}/miles/transcript/2018/04/20180409-1092756)
-
-[郭文贵2018年4月7日第一次直播 20180407_1谈吴小晖在华尔道夫酒店保险箱藏着什么以及与胡舒立和海航的逻辑关系]({{site.baseurl}}/miles/transcript/2018/04/20180407-1092804)
-
-[郭文贵2018年4月7日第二次直播 20180407_2吴晓辉与胡舒立-海航．是你么逻辑上的关系！]({{site.baseurl}}/miles/transcript/2018/04/20180407-1094193)
 
 
 ## 頁面 99/113 [**<**]({{site.baseurl}}/miles/transcript/page98) [1]({{site.baseurl}}/miles/transcript/index) ... [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) **99** [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page100)

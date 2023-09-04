@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 86/113 [**<**]({{site.baseurl}}/miles/transcript/page85) [1]({{site.baseurl}}/miles/transcript/index) ... [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) **86** [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page87)
 
+[郭文贵2019年2月2日视频 20190202_1委内瑞拉的局势变化正是未來中國變局最好的樣板！和3月20号习近平先生的访问梵蒂冈！川金会川习会！]({{site.baseurl}}/miles/transcript/2019/02/20190202-1089084)
+
+[郭文贵2019年2月1日视频 20190201_1昨天刘鹤跟川普团队谈判后的自己的感受！ 王健被自己的生殖器戳死]({{site.baseurl}}/miles/transcript/2019/02/20190201-1089079)
+
 [郭文贵2019年1月31日视频 20190131_1昨天的中美貿易談判一定會宣布有了最好的結果 但實際上是最壞的結果 收到北韓來的許多信息]({{site.baseurl}}/miles/transcript/2019/01/20190131-1089074)
 
 [郭文贵2019年1月30日视频 20190130_1谈谈为什么说，金正日应该直接打电话给川普总统。還了家鄉一位老板二十多塊錢]({{site.baseurl}}/miles/transcript/2019/01/20190130-1089064)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年1月16日视频第二部分 20190116_2王健被谋杀之密有了重大进展。吴征还有博讯, 马蕊强奸案有了重大的实质性的证据证明吴征被CCP控制]({{site.baseurl}}/miles/transcript/2019/01/20190116-1092234)
 
 [郭文贵2019年1月15日视频 20190115_1两天前！我出去见朋友！CCP很多人跟踪我！他们这种做法一定会受到美国的法律的严惩]({{site.baseurl}}/miles/transcript/2019/01/20190115-1089042)
-
-[郭文贵2019年1月14日视频 20190114_1你们知道我昨天去见的是谁吗]({{site.baseurl}}/miles/transcript/2019/01/20190114-1089032)
-
-[郭文贵2019年1月14日视频 20190114_2试直播设备]({{site.baseurl}}/miles/transcript/2019/01/20190114-1089037)
 
 
 ## 頁面 86/113 [**<**]({{site.baseurl}}/miles/transcript/page85) [1]({{site.baseurl}}/miles/transcript/index) ... [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) **86** [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page87)

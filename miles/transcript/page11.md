@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 11/113 [**<**]({{site.baseurl}}/miles/transcript/page10) [1]({{site.baseurl}}/miles/transcript/index) ... [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) **11** [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page12)
 
+[郭文贵2022年2月11日直播 20220211_1冬奥会爆出“美”谷爱凌；黑操作假裁判破坏规则；共产党蓝金黄无孔不入；感染下降疫苗政策在变]({{site.baseurl}}/miles/transcript/2022/02/20220211-1090579)
+
+[郭文贵2022年2月10日盖特 20220210_1尊敬的战友们好，你们健身了吗？传播C C P病毒！疫苗解药真相了吗？共产党正在北京进行的绑架冬奥会的一系列的无法律．无规则的无底线的行为．都将给中国人在世界上带来无法挽回的负面影响]({{site.baseurl}}/miles/transcript/2022/02/20220210-1089929)
+
 [郭文贵2022年2月9日直播 20220209_1UBS正式立案 打响沼泽地的第一仗；习普政治困局；中美俄三角斗；药厂政策调整；药厂政府互掐；何为全球货币；七哥个人生活]({{site.baseurl}}/miles/transcript/2022/02/20220209-1090495)
 
 [郭文贵2022年2月8日盖特 20220208_1尊敬的战友们好，你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？今天可能将是我文贵人生的前半生和后半生的分水岭的一天．今天我将有个很大的决定，明天直播时再向大家汇报，一切都已]({{site.baseurl}}/miles/transcript/2022/02/20220208-1090659)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2022年1月26日盖特 20220126_2尊敬的战友们好！在爆料革命五周年之际，文贵衷心的感谢，????????????????????????????????????亿万个战友的付出……和文贵一起奋斗消灭这个邪恶的中国共产党……一切都已经开始]({{site.baseurl}}/miles/transcript/2022/01/20220126-1089795)
 
 [郭文贵2022年1月26日盖特 20220126_3第二次发Gettr、对上个视频的补充]({{site.baseurl}}/miles/transcript/2022/01/20220126-1089798)
-
-[郭文贵2022年1月25日盖特 20220125_2尊敬的战友们好……七哥一边蒸馍馍．一边练这首歌呢？甜蜜蜜 你笑得甜蜜蜜 好像花儿开在春风里 开在春风里 在哪里]({{site.baseurl}}/miles/transcript/2022/01/20220125-1089788)
-
-[郭文贵2022年1月25日盖特 20220125_3大功告成……馍馍出锅……]({{site.baseurl}}/miles/transcript/2022/01/20220125-1089791)
 
 
 ## 頁面 11/113 [**<**]({{site.baseurl}}/miles/transcript/page10) [1]({{site.baseurl}}/miles/transcript/index) ... [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) **11** [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page12)

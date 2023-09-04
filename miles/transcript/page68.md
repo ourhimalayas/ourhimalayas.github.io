@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 68/113 [**<**]({{site.baseurl}}/miles/transcript/page67) [1]({{site.baseurl}}/miles/transcript/index) ... [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) **68** [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page69)
 
+[郭文贵2019年10月27日视频 20191027试直播与战友闲聊]({{site.baseurl}}/miles/transcript/2019/10/20191027-1093787)
+
+[2019年10月26日文贵大直播全文版：十九大篡朝较量中错综复杂的关系 中南坑风暴一直在酝酿着]({{site.baseurl}}/miles/transcript/2019/10/20191026-1087429)
+
 [郭文贵2019年10月26日视频 20191026_2【Joe庄随手拍】郭文贵先生爆料：十九大篡朝较量中错综复杂的关系 中南坑风暴一直在酝酿着]({{site.baseurl}}/miles/transcript/2019/10/20191026-1089605)
 
 [郭文贵2019年10月26日 20191026文贵和战友谈北京局势和四中]({{site.baseurl}}/miles/transcript/2019/10/20191026-1093774)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年10月18日 20191018美国引领全球反共，港人宁死不屈，是反共先锋！]({{site.baseurl}}/miles/transcript/2019/10/20191018-1093703)
 
 [郭文贵2019年10月17日视频 20191017_1岑子杰被害背後的真相已逐漸浮出水面 我們一定要追究 我今天整天參加秘密聽證會 不能直播]({{site.baseurl}}/miles/transcript/2019/10/20191017-1089583)
-
-[2019年10月16日、17日郭文贵先生直播视频 共产党利用黑社会杀手手段 残害香港议员岑子杰先生以及被害真相浮出水面（合集）全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191016-1087415)
-
-[郭文贵2019年10月16日视频 20191016_1共产党利用黑社会杀手手段 残害香港议员岑子杰先生]({{site.baseurl}}/miles/transcript/2019/10/20191016-1089581)
 
 
 ## 頁面 68/113 [**<**]({{site.baseurl}}/miles/transcript/page67) [1]({{site.baseurl}}/miles/transcript/index) ... [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) **68** [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page69)

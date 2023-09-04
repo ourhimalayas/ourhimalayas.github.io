@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 81/113 [**<**]({{site.baseurl}}/miles/transcript/page80) [1]({{site.baseurl}}/miles/transcript/index) ... [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) **81** [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page82)
 
+[郭文贵2019年6月10日视频 20190610文贵报平安再谈，上天送给我的几个巨大的礼物？]({{site.baseurl}}/miles/transcript/2019/06/20190610-1093045)
+
+[郭文贵2019年6月9日直播 20190609_1班农先生．与郭文贵和龚小夏女士．直播香港百万人抗议大游行9小时直播上部分！]({{site.baseurl}}/miles/transcript/2019/06/20190609-1092646)
+
 [郭文贵2019年6月9日直播 20190609_2班农先生．与郭文贵和龚小夏女士．直播香港百万人抗议大游行9小时直播中部分！]({{site.baseurl}}/miles/transcript/2019/06/20190609-1092693)
 
 [郭文贵2019年6月9日直播 20190609_3班农先生．与郭文贵和龚小夏女士．直播香港百万人抗议大游行9小时直播]({{site.baseurl}}/miles/transcript/2019/06/20190609-1092822)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年5月19日视频 20190519_4昨天平板撐做了32分鐘 今天只做了25分鐘]({{site.baseurl}}/miles/transcript/2019/05/20190519-1089231)
 
 [郭文贵2019年5月19日视频 第一部分 20190519_1Pt2 Miles Kwok live broadcast on Hudson River.]({{site.baseurl}}/miles/transcript/2019/05/20190519-1093120)
-
-[郭文贵2019年5月19日视频 第二部分 20190519_2郭文贵先生哈德遜河直播（1） Pt4 Miles Kwok live broadcast on Hudson River.]({{site.baseurl}}/miles/transcript/2019/05/20190519-1093127)
-
-[郭文贵2019年5月19日视频 第三部分 20190519_3Pt5 Miles Kwok live broadcast on Hudson River.]({{site.baseurl}}/miles/transcript/2019/05/20190519-1093138)
 
 
 ## 頁面 81/113 [**<**]({{site.baseurl}}/miles/transcript/page80) [1]({{site.baseurl}}/miles/transcript/index) ... [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) **81** [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page82)

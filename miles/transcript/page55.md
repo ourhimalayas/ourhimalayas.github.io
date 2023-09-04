@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 55/113 [**<**]({{site.baseurl}}/miles/transcript/page54) [1]({{site.baseurl}}/miles/transcript/index) ... [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) **55** [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page56)
 
+[郭文贵2020年5月29日视频 20200529留美的学生和华人同胞们请务必看今天文贵的视频]({{site.baseurl}}/miles/transcript/2020/05/20200529-1092537)
+
+[郭文贵2020年5月27日视频 20200527_3所有被指定为个地区国家与战友们的联系负责人都不允许收集和查看任何战友的私人信息和投资相关的任何资料]({{site.baseurl}}/miles/transcript/2020/05/20200527-1089862)
+
 [郭文贵2020年5月27日视频 20200527_4文贵拜请所有有良知的华人同胞们，香港同胞们．去到美国国务卿彭佩奥先生推特下面．发信息．留言．对他表示感谢！我们要坚持密集的……全24小时不停止的对他表示感激！他是我们的英雄！]({{site.baseurl}}/miles/transcript/2020/05/20200527-1089864)
 
 [郭文贵2020年5月27日视频 20200527_5文贵又在海上耍浪了]({{site.baseurl}}/miles/transcript/2020/05/20200527-1089868)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年5月10日GTV连线文欣 20200510]({{site.baseurl}}/miles/transcript/2020/05/20200510-1092132)
 
 [郭文贵2020年5月10日连线老江等五人 20200510_2建立爆料革命受害者援助会．和保证灭共后的护卫力量，建立更强大的战友核心团队．建立喜马拉雅联储系统]({{site.baseurl}}/miles/transcript/2020/05/20200510-1092423)
-
-[郭文贵2020年5月9日连线草根小哥 20200509_2]({{site.baseurl}}/miles/transcript/2020/05/20200509-1092070)
-
-[郭文贵2020年5月9日连线魔女Peace 20200509_1]({{site.baseurl}}/miles/transcript/2020/05/20200509-1092098)
 
 
 ## 頁面 55/113 [**<**]({{site.baseurl}}/miles/transcript/page54) [1]({{site.baseurl}}/miles/transcript/index) ... [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) **55** [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page56)

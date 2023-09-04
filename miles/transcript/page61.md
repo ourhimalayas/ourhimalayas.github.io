@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 61/113 [**<**]({{site.baseurl}}/miles/transcript/page60) [1]({{site.baseurl}}/miles/transcript/index) ... [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) **61** [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page62)
 
+[郭文贵2020年2月19日 20200219参加班农先生的作战室第20期直播]({{site.baseurl}}/miles/transcript/2020/02/20200219-1091799)
+
+[郭文贵2020年2月18日 20200218警醒同胞2月29日是武汉疫情的分水岭，别上班，躲深山]({{site.baseurl}}/miles/transcript/2020/02/20200218-1091794)
+
 [郭文贵2020年2月15日 20200215 告诉战友们一定要耐心在家健身健心会有解药的！CCP灭了车贷房贷]({{site.baseurl}}/miles/transcript/2020/02/20200215-1091774)
 
 [郭文贵2020年2月14日谈武汉疫情 20200214战友不树敌只为灭共]({{site.baseurl}}/miles/transcript/2020/02/20200214-1091761)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年1月27日谈科比意外死亡 20200127并呼吁中共在灾难面前以人命]({{site.baseurl}}/miles/transcript/2020/01/20200127-1091716)
 
 [郭文贵2020年1月26日 20200126大年初二谈为什么共产党要控制世界卫生组织．国际刑警组织．国际人权组织．中共为什么拒绝世界卫生组织给武汉疫区医生护士的防护设备和设施。2020年1月26日爆料革命三周年文贵致谢所有的战]({{site.baseurl}}/miles/transcript/2020/01/20200126-1092308)
-
-[郭文贵2020年1月25日 20200125大年初一文贵严肃负责任向战友及疫区同胞报告：……武汉疫情绝对是人为不是天灾！]({{site.baseurl}}/miles/transcript/2020/01/20200125-1091698)
-
-[郭文贵2020年1月24日视频 20200124_2吃完年夜飯 抽根朋友送的雪茄PARTAGAS]({{site.baseurl}}/miles/transcript/2020/01/20200124-1089758)
 
 
 ## 頁面 61/113 [**<**]({{site.baseurl}}/miles/transcript/page60) [1]({{site.baseurl}}/miles/transcript/index) ... [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) **61** [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page62)

@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 58/113 [**<**]({{site.baseurl}}/miles/transcript/page57) [1]({{site.baseurl}}/miles/transcript/index) ... [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) **58** [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page59)
 
+[郭文贵2020年4月5日GTV视频 20200405_4与木兰 路德 sara直播]({{site.baseurl}}/miles/transcript/2020/04/20200405-1088967)
+
+[郭文贵2020年4月5日GTV视频 20200405_5回来了回来了。亲爱的战友们好，我们今天是试试多方连线直播]({{site.baseurl}}/miles/transcript/2020/04/20200405-1088986)
+
 [郭文贵2020年4月5日GTV炖羊肉 20200405_1郭先生直播做饭 炖羊肉【完整版】]({{site.baseurl}}/miles/transcript/2020/04/20200405-1089793)
 
 [郭文贵2020年4月5日GTV视频 20200405_2和路德直播]({{site.baseurl}}/miles/transcript/2020/04/20200405-1092077)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年3月27日视频 20200327_6CCP病毒肆虐，曼哈顿大街上空无一人，法治基金工作人员依然在给战友寄送口罩物资！]({{site.baseurl}}/miles/transcript/2020/03/20200327-1089012)
 
 [郭文贵2020年3月27日视频 20200327_2]({{site.baseurl}}/miles/transcript/2020/03/20200327-1089814)
-
-[郭文贵2020年3月27日视频 20200327_3七哥與Snow試鏡]({{site.baseurl}}/miles/transcript/2020/03/20200327-1089816)
-
-[郭文贵2020年3月27日视频 20200327_4]({{site.baseurl}}/miles/transcript/2020/03/20200327-1089820)
 
 
 ## 頁面 58/113 [**<**]({{site.baseurl}}/miles/transcript/page57) [1]({{site.baseurl}}/miles/transcript/index) ... [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) **58** [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page59)

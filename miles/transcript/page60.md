@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 60/113 [**<**]({{site.baseurl}}/miles/transcript/page59) [1]({{site.baseurl}}/miles/transcript/index) ... [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) **60** [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page61)
 
+[郭文贵2020年3月12日直播股市暴跌(下) 20200312_2船上第二次直播华尔街股市暴跌，世界资产重新分配]({{site.baseurl}}/miles/transcript/2020/03/20200312-1091952)
+
+[郭文贵2020年3月11日 20200311谈未来3到5年能健康地活着就是]({{site.baseurl}}/miles/transcript/2020/03/20200311-1091925)
+
 [郭文贵2020年3月9日视频 20200309_1本星期將是滅共里程碑的一周]({{site.baseurl}}/miles/transcript/2020/03/20200309-1089779)
 
 [郭文贵2020年3月8日视频 20200308_3]({{site.baseurl}}/miles/transcript/2020/03/20200308-1088902)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年2月20日第一次直播 20200220_1参加班农战斗室第21期 谈武汉]({{site.baseurl}}/miles/transcript/2020/02/20200220-1091819)
 
 [郭文贵2020年2月19日直播 20200219_2郭文贵先生加入班农先生战斗室谈武汉疫情 高清版]({{site.baseurl}}/miles/transcript/2020/02/20200219-1088898)
-
-[郭文贵2020年2月19日 20200219参加班农先生的作战室第20期直播]({{site.baseurl}}/miles/transcript/2020/02/20200219-1091799)
-
-[郭文贵2020年2月18日 20200218警醒同胞2月29日是武汉疫情的分水岭，别上班，躲深山]({{site.baseurl}}/miles/transcript/2020/02/20200218-1091794)
 
 
 ## 頁面 60/113 [**<**]({{site.baseurl}}/miles/transcript/page59) [1]({{site.baseurl}}/miles/transcript/index) ... [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) **60** [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page61)

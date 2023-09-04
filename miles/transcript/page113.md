@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 113/113 [**<**]({{site.baseurl}}/miles/transcript/page112) [1]({{site.baseurl}}/miles/transcript/index) ... [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) [112]({{site.baseurl}}/miles/transcript/page112) **113**
 
+[郭文贵2017年4月26日第二次直播 20170426_2感谢推友过十万]({{site.baseurl}}/miles/transcript/2017/04/20170426-1094234)
+
+[郭文贵2017年4月26日第一次直播 20170426_1感谢推友过十万感谢视频]({{site.baseurl}}/miles/transcript/2017/04/20170426-1094237)
+
 [郭文贵2017年4月25日 20170425_1感谢推友过九万第一部分]({{site.baseurl}}/miles/transcript/2017/04/20170425-1094227)
 
 [郭文贵2017年4月25日 20170425_2感谢推友过九万第二部分]({{site.baseurl}}/miles/transcript/2017/04/20170425-1094229)

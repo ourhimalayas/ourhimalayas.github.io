@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 28/113 [**<**]({{site.baseurl}}/miles/transcript/page27) [1]({{site.baseurl}}/miles/transcript/index) ... [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) **28** [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page29)
 
+[郭文贵2021年6月15日直播 20210615_1三品澜．吴征夫妻俩．性贿赂中国．国际多名高官……骗钱害命多人……黑幕被多个专案组掩盖．为什么？]({{site.baseurl}}/miles/transcript/2021/06/20210615-1091541)
+
+[郭文贵2021年6月14日直播 20210614_1马云投资吴征的秘密；韩正力保吴征的原因；新盖特Logo的涵义；7.17看文贵大招]({{site.baseurl}}/miles/transcript/2021/06/20210614-1091516)
+
 [郭文贵2021年6月14日直播 20210614_2多方连线直播测试]({{site.baseurl}}/miles/transcript/2021/06/20210614-1091534)
 
 [郭文贵2021年6月14日盖特 20210614_3]({{site.baseurl}}/miles/transcript/2021/06/20210614-1091543)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年6月3日盖特 20210603_1尊敬的战友们好，我们一起来向万佛万神祈福，我们新中国联邦一周年……在自由之塔的庆祝活动圆满成功，也祈求万佛万神．从今天起唤醒这个贪婪被共产主义蒙蔽了的黑暗的世界！从今天起让]({{site.baseurl}}/miles/transcript/2021/06/20210603-1091424)
 
 [郭文贵2021年6月2日盖特 20210602_1尊敬的战友们好，为了报复新中国联邦一周年……老杂毛们制定了九项反击政策。美国所谓的主流媒体黑谣我们．和在中共国拍卖方式抢夺方正证券股票！以及尝试对我们放毒攻击我们的科学家和]({{site.baseurl}}/miles/transcript/2021/06/20210602-1091494)
-
-[郭文贵2021年6月1日盖特 20210601_1看着战友来到曼哈顿相聚！七哥冰火两重天的感受！英雄在共产党以一国之力要阻止上线！他们能成功吗？我们新中国联邦人要建设的新中国的标准是什么？]({{site.baseurl}}/miles/transcript/2021/06/20210601-1091483)
-
-[郭文贵2021年6月1日盖特 20210601_2七哥不能和战友见面，后果很严重，决定干点坏事儿．报复一下厨房！]({{site.baseurl}}/miles/transcript/2021/06/20210601-1091484)
 
 
 ## 頁面 28/113 [**<**]({{site.baseurl}}/miles/transcript/page27) [1]({{site.baseurl}}/miles/transcript/index) ... [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) **28** [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page29)

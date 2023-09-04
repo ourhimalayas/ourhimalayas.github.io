@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 51/113 [**<**]({{site.baseurl}}/miles/transcript/page50) [1]({{site.baseurl}}/miles/transcript/index) ... [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) **51** [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page52)
 
+[郭文贵2020年7月26日视频 20200726_1衷心的感谢正在进行的全球抗议行动……的新中国联邦的所有的战友．兄弟姐妹们]({{site.baseurl}}/miles/transcript/2020/07/20200726-1090001)
+
+[郭文贵2020年7月25日视频 20200725_2文贵又来欺民贼说的菜市场了！咋弄呢……又是没钱了……只能吃菜 了……]({{site.baseurl}}/miles/transcript/2020/07/20200725-1089987)
+
 [郭文贵2020年7月25日视频 20200725_3【中英字幕版】7 月25日 班农战斗室特别节目：嘉宾郭文贵先生谈蓬佩奥演讲的重大意义，中共国洪灾真相，休斯敦战友们抗议游行 【Subtitiled】July 25, War Room Special: Guest speaker Mr Miles Guo will talk ab]({{site.baseurl}}/miles/transcript/2020/07/20200725-1089999)
 
 [郭文贵2020年7月25日直播 20200725文贵如何理庞皮奥的演讲和对新中国联邦的重大意义，以及如何处理班农先生与新中国联邦和文贵的个人关系]({{site.baseurl}}/miles/transcript/2020/07/20200725-1092360)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年7月14日盖特 20200714_1文贵对中国女性的坚强和伟大有了更新的认识，对中国男人的懦弱和自私有了更深度的理解，北约组织与我们一起在南海搞强拆．和接下来与美国和欧洲共同灭共的同时．将深度的合作．清除中共]({{site.baseurl}}/miles/transcript/2020/07/20200714-1092396)
 
 [郭文贵2020年7月14日盖特 20200714_2美国和欧洲国家正在制定详细的行动计划，在西方世界清除欺民贼及过去几年．与共产党沟连打击爆料革命的所有人……都将受到严惩！西方国家．对共产党病毒的认识和即将带来的威胁，正在有]({{site.baseurl}}/miles/transcript/2020/07/20200714-1092407)
-
-[郭文贵2020年7月12日视频 20200712_2馬上直播]({{site.baseurl}}/miles/transcript/2020/07/20200712-1089944)
-
-[郭文贵2020年7月12日视频 20200712_3今天直播完以后，我继续健身，灭共的路上一定要强心健体永不放弃]({{site.baseurl}}/miles/transcript/2020/07/20200712-1089947)
 
 
 ## 頁面 51/113 [**<**]({{site.baseurl}}/miles/transcript/page50) [1]({{site.baseurl}}/miles/transcript/index) ... [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) **51** [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page52)

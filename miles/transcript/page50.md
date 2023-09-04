@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 50/113 [**<**]({{site.baseurl}}/miles/transcript/page49) [1]({{site.baseurl}}/miles/transcript/index) ... [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) **50** [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page51)
 
+[郭文贵2020年8月10日盖特 202008108月10号尊敬的战友们好，你们健身了吗？你们传播CCP病毒香港危机真相了吧，刚刚收到了很多战友发来的私信。没办法一一回信息…]({{site.baseurl}}/miles/transcript/2020/08/20200810-1092525)
+
+[郭文贵2020年8月9日直播 20200809张首晟到底是谁杀的？文贵每天面临多少的生死威胁？又是如何处理的？]({{site.baseurl}}/miles/transcript/2020/08/20200809-1092616)
+
 [郭文贵2020年8月8日直播 20200808与日本樱花团战友连线谈论忠诚的文化和日本爆料革命的重要性]({{site.baseurl}}/miles/transcript/2020/08/20200808-1092593)
 
 [郭文贵2020年8月7日视频 20200807_2新中国联邦．与文贵和水台．联手打造的文贵水台牌胸罩款西装诞生]({{site.baseurl}}/miles/transcript/2020/08/20200807-1090013)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年7月28日直播 20200728习江曾栗．大战开始．曾维．戴永革等南普陀会议，相关家族一批人员将被抓捕……]({{site.baseurl}}/miles/transcript/2020/07/20200728-1092413)
 
 [郭文贵2020年7月27日直播 20200727伟大战友全球灭共大游行．华盛顿自由论坛．新中囯联邦在华盛顿首次亮相．官员．议员集体灭共的意义！]({{site.baseurl}}/miles/transcript/2020/07/20200727-1092390)
-
-[郭文贵2020年7月26日视频 20200726_1衷心的感谢正在进行的全球抗议行动……的新中国联邦的所有的战友．兄弟姐妹们]({{site.baseurl}}/miles/transcript/2020/07/20200726-1090001)
-
-[郭文贵2020年7月25日视频 20200725_2文贵又来欺民贼说的菜市场了！咋弄呢……又是没钱了……只能吃菜 了……]({{site.baseurl}}/miles/transcript/2020/07/20200725-1089987)
 
 
 ## 頁面 50/113 [**<**]({{site.baseurl}}/miles/transcript/page49) [1]({{site.baseurl}}/miles/transcript/index) ... [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) **50** [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page51)

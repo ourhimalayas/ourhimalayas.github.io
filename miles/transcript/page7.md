@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 7/113 [**<**]({{site.baseurl}}/miles/transcript/page6) [1]({{site.baseurl}}/miles/transcript/index) ... [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) **7** [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page8)
 
+[郭文贵2022年5月10日直播 20220510_1七哥生日与战友们在线聊天]({{site.baseurl}}/miles/transcript/2022/05/20220510-1091863)
+
+[郭文贵2022年5月8日直播 20220508_1母亲节谈中国母亲；疫苗灾难何去何从]({{site.baseurl}}/miles/transcript/2022/05/20220508-1091800)
+
 [郭文贵2022年5月7日直播 20220507_1]({{site.baseurl}}/miles/transcript/2022/05/20220507-1091699)
 
 [郭文贵2022年5月6日直播 20220506_1如何应对世界经济危机；俄乌战争对我们的影响]({{site.baseurl}}/miles/transcript/2022/05/20220506-1091691)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2022年4月19日直播 20220419_1419五周年专场,霹雳一声断播门,文贵爆料惊鬼神,五载星火燎原势,喜马拉雅再昆仑]({{site.baseurl}}/miles/transcript/2022/04/20220419-1091232)
 
 [郭文贵2022年4月18日盖特 20220418_1尊敬的战友们好，刚才的视频没有讲完．最后一个重点是．刚刚收到信息．上海会马上解封！]({{site.baseurl}}/miles/transcript/2022/04/20220418-1091692)
-
-[郭文贵2022年4月17日直播 20220417_1七哥来啦]({{site.baseurl}}/miles/transcript/2022/04/20220417-1090964)
-
-[郭文贵2022年4月17日盖特 20220417_2尊敬的战友们好……下周二．4月19号，我们将有一整天的纪念419．5周年的大直播，一切都已经开始！]({{site.baseurl}}/miles/transcript/2022/04/20220417-1091688)
 
 
 ## 頁面 7/113 [**<**]({{site.baseurl}}/miles/transcript/page6) [1]({{site.baseurl}}/miles/transcript/index) ... [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) **7** [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page8)

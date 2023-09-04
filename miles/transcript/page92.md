@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 92/113 [**<**]({{site.baseurl}}/miles/transcript/page91) [1]({{site.baseurl}}/miles/transcript/index) ... [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) **92** [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page93)
 
+[郭文贵2018年10月6日视频 20181006_3]({{site.baseurl}}/miles/transcript/2018/10/20181006-1088839)
+
+[郭文贵2018年10月6日视频 20181006_4]({{site.baseurl}}/miles/transcript/2018/10/20181006-1088843)
+
 [郭文贵2018年10月6日视频 20181006_5]({{site.baseurl}}/miles/transcript/2018/10/20181006-1088846)
 
 [郭文贵2018年10月6日 20181006文贵与班农接受著名对冲基金经理采访,讲述中共政治黑幕和孟宏伟失踪事件]({{site.baseurl}}/miles/transcript/2018/10/20181006-1093289)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年9月22日视频 20180922_2Snow在偷吃他女朋友的飯]({{site.baseurl}}/miles/transcript/2018/09/20180922-1088799)
 
 [郭文贵2018年9月22日视频 20180922_3文貴周末為家人做魚肉丸]({{site.baseurl}}/miles/transcript/2018/09/20180922-1088802)
-
-[郭文贵2018年9月22日视频 20180922_4文貴周末為家人做魚肉丸 用趕麵杖趕魚肉]({{site.baseurl}}/miles/transcript/2018/09/20180922-1088807)
-
-[郭文贵2018年9月22日视频 20180922香港．台湾．上海．股市．汇市……可能发生天翻地覆的变化！]({{site.baseurl}}/miles/transcript/2018/09/20180922-1093149)
 
 
 ## 頁面 92/113 [**<**]({{site.baseurl}}/miles/transcript/page91) [1]({{site.baseurl}}/miles/transcript/index) ... [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) **92** [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page93)

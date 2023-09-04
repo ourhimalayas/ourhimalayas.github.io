@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 41/113 [**<**]({{site.baseurl}}/miles/transcript/page40) [1]({{site.baseurl}}/miles/transcript/index) ... [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) **41** [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page42)
 
+[郭文贵2021年1月10日直播 20210110_1]({{site.baseurl}}/miles/transcript/2021/01/20210110-1090356)
+
+[郭文贵2021年1月9日盖特 20210109_1川普总统被形容为最失败的最懦弱．最口爆……最口炮……总统……这是正确的吗？我们如何看待过去24小时发生的媒体封杀川普总统的这些事情……文贵谈谈自己的观点，一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/01/20210109-1090346)
+
 [郭文贵2021年1月9日盖特 20210109_22021年1月9号上午，第二次发视频……再次集中回答国内很多战友的一些问题……]({{site.baseurl}}/miles/transcript/2021/01/20210109-1090349)
 
 [郭文贵2021年1月8日盖特 20210108_1尊敬的战友们好，我们为什么要打造G系列？我们为什么不能跟随任何政客和任何政党？我们必须要成为独立的世界的重要的一股正义的力量……任何正义的力量组织．必须尊重的一个代表中国人的]({{site.baseurl}}/miles/transcript/2021/01/20210108-1090341)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年12月29日视频 20201229_2郭文贵先生给《我是音雄》的祝贺和期许（一）]({{site.baseurl}}/miles/transcript/2020/12/20201229-1090167)
 
 [郭文贵2020年12月28日盖特 20201228_1尊敬的战友们好．文贵想和战友们聊聊……参与爆料革命的风险系数和我们现在遇到的问题后的……的应该如何面对和解决的办法，一切都已经开始！]({{site.baseurl}}/miles/transcript/2020/12/20201228-1090160)
-
-[郭文贵2020年12月28日盖特 20201228_2感谢战友们的关心……回答在国内疫情灾区的战友们……相互支持，相互帮助，及我们所能提供的帮助，一切都已经开始！]({{site.baseurl}}/miles/transcript/2020/12/20201228-1090162)
-
-[郭文贵2020年12月28日音频聊天 20201228_3郭先生喜马拉雅大使馆discord群答疑录音]({{site.baseurl}}/miles/transcript/2020/12/20201228-1090170)
 
 
 ## 頁面 41/113 [**<**]({{site.baseurl}}/miles/transcript/page40) [1]({{site.baseurl}}/miles/transcript/index) ... [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) **41** [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page42)

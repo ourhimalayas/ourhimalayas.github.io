@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 98/113 [**<**]({{site.baseurl}}/miles/transcript/page97) [1]({{site.baseurl}}/miles/transcript/index) ... [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) **98** [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page99)
 
+[郭文贵2018年5月31日视频 20180531不要将六．四悲剧变喜剧！马航客机失事新动向！]({{site.baseurl}}/miles/transcript/2018/05/20180531-1092883)
+
+[郭文贵2018年5月30日视频 20180530文贵很好请战友们放心]({{site.baseurl}}/miles/transcript/2018/05/20180530-1087703)
+
 [郭文贵2018年5月27日视频 20180527请战友一起反击所谓的文贵海外维稳民主人士阴谋！]({{site.baseurl}}/miles/transcript/2018/05/20180527-1092950)
 
 [郭文贵2018年5月26日直播 20180526_1破解金盾有进展,感谢战友提供听证会证据 LADY MAY回纽约了!]({{site.baseurl}}/miles/transcript/2018/05/20180526-1088320)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年4月29日直播 20180429_2文贵与战友聊天！]({{site.baseurl}}/miles/transcript/2018/04/20180429-1088254)
 
 [郭文贵2018年4月28日视频 20180428金正恩是我们学习的坏榜样]({{site.baseurl}}/miles/transcript/2018/04/20180428-1092846)
-
-[郭文贵2018年4月26日直播 20180426_2]({{site.baseurl}}/miles/transcript/2018/04/20180426-1088198)
-
-[郭文贵2018年4月26日视频 20180426在西香格里拉酒店被抓嫖娼两位歌星是谁？]({{site.baseurl}}/miles/transcript/2018/04/20180426-1092842)
 
 
 ## 頁面 98/113 [**<**]({{site.baseurl}}/miles/transcript/page97) [1]({{site.baseurl}}/miles/transcript/index) ... [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) **98** [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page99)

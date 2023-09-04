@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 6/113 [**<**]({{site.baseurl}}/miles/transcript/page5) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) **6** [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page7)
 
+[2022年7月3日 《戒烟大直播》——女子戒烟监督团连线补播  全文字版]({{site.baseurl}}/miles/transcript/2022/07/20220703-1628305)
+
+[2022年6月28日《文贵大直播》全文字版]({{site.baseurl}}/miles/transcript/2022/06/20220628-1573683)
+
 [2022年6月27日  郭文贵先生和战友互动聊天直播 全文字版]({{site.baseurl}}/miles/transcript/2022/06/20220627-1573679)
 
 [2022年6月24日《文贵大直播》全文字版]({{site.baseurl}}/miles/transcript/2022/06/20220624-1573674)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2022年5月11日直播 20220511_2七哥与战友们连线直播]({{site.baseurl}}/miles/transcript/2022/05/20220511-1091586)
 
 [郭文贵2022年5月10日盖特 20220510_2]({{site.baseurl}}/miles/transcript/2022/05/20220510-1091740)
-
-[郭文贵2022年5月10日直播 20220510_1七哥生日与战友们在线聊天]({{site.baseurl}}/miles/transcript/2022/05/20220510-1091863)
-
-[郭文贵2022年5月8日直播 20220508_1母亲节谈中国母亲；疫苗灾难何去何从]({{site.baseurl}}/miles/transcript/2022/05/20220508-1091800)
 
 
 ## 頁面 6/113 [**<**]({{site.baseurl}}/miles/transcript/page5) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) **6** [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page7)

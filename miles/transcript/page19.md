@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 19/113 [**<**]({{site.baseurl}}/miles/transcript/page18) [1]({{site.baseurl}}/miles/transcript/index) ... [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) **19** [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page20)
 
+[郭文贵2021年10月8日盖特 20211008_1尊敬的战友们好……台湾再次成为中美两国之间的政治经济交易的筹码，对台湾没有任何好处，美国等西方国家正在利用中国的内部政治斗争，获取自己的短暂的政治经济的利益，对中国人，对世]({{site.baseurl}}/miles/transcript/2021/10/20211008-1093374)
+
+[郭文贵2021年10月8日盖特直播 20211008_2]({{site.baseurl}}/miles/transcript/2021/10/20211008-1093378)
+
 [郭文贵2021年10月8日盖特直播 20211008_3]({{site.baseurl}}/miles/transcript/2021/10/20211008-1093381)
 
 [郭文贵2021年10月8日直播 20211008_4试驾RAM3500第一段]({{site.baseurl}}/miles/transcript/2021/10/20211008-1093384)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年9月21日直播 20210921_12021中秋特别节目：月亮托起我们的心愿]({{site.baseurl}}/miles/transcript/2021/09/20210921-1093257)
 
 [郭文贵2021年9月20日直播 20210920_1会议休息时间到山上转一转]({{site.baseurl}}/miles/transcript/2021/09/20210920-1093190)
-
-[郭文贵2021年9月20日盖特 20210920_2尊敬的战友们好……七哥在这里向所有的全球的兄弟姐妹们请安了。你们觉得未来的新中国联邦的农场总部，这样的山脉和环境怎么样？]({{site.baseurl}}/miles/transcript/2021/09/20210920-1093195)
-
-[郭文贵2021年9月20日盖特 20210920_3与战友分享大自然神奇……无法解释的这种自然现象，我深信这所有的美丽都是人心，和历史，和人的行为，和上天对这里的人们的一切的裁判．给予的结果，才能有这样的自然的神奇，这种人工]({{site.baseurl}}/miles/transcript/2021/09/20210920-1093198)
 
 
 ## 頁面 19/113 [**<**]({{site.baseurl}}/miles/transcript/page18) [1]({{site.baseurl}}/miles/transcript/index) ... [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) **19** [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page20)

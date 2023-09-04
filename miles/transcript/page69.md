@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 69/113 [**<**]({{site.baseurl}}/miles/transcript/page68) [1]({{site.baseurl}}/miles/transcript/index) ... [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) **69** [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page70)
 
+[2019年10月16日、17日郭文贵先生直播视频 共产党利用黑社会杀手手段 残害香港议员岑子杰先生以及被害真相浮出水面（合集）全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191016-1087415)
+
+[郭文贵2019年10月16日视频 20191016_1共产党利用黑社会杀手手段 残害香港议员岑子杰先生]({{site.baseurl}}/miles/transcript/2019/10/20191016-1089581)
+
 [2019年10月15日文贵先生大直播全文字版：船上直播，天主教徒、基督教徒是香港的主力！别天真！远离伪民运！郭先生被共产党抢劫500亿现金！是中美贸易500亿的净利润的至少10倍！]({{site.baseurl}}/miles/transcript/2019/10/20191015-1087422)
 
 [郭文贵2019年10月15日视频 20191015_2香港人權民主法案在美國眾議院已經通過的意義和給我們的啟迪！可敬可爱的香港人，用行动证明给我们．口炮．恐惧都是死路一条．只有抗争才能得到自己想要的！]({{site.baseurl}}/miles/transcript/2019/10/20191015-1089579)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年10月9日视频 20191009港人的好日子要来了，美对CCP将有雷霆行动，不仅仅制裁]({{site.baseurl}}/miles/transcript/2019/10/20191009-1093814)
 
 [2019年10月8日郭文贵先生班农先生直播对谈新疆与香港人权法案，及最新反共局势包括贸易谈判和NBA等方面，制裁中共才刚刚开始全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191008-1087421)
-
-[郭文贵2019年10月8日视频 20191008_1勿中招中共挑起与新疆民族仇恨 NBA言论令中共玻璃心碎一地了]({{site.baseurl}}/miles/transcript/2019/10/20191008-1089554)
-
-[郭文贵2019年10月8日视频 20191008_2郭文貴先生苦口婆心地教育snow吃餐禮儀snow躺在郭先生懷裏有點犯睏不知聽進去了沒有]({{site.baseurl}}/miles/transcript/2019/10/20191008-1089556)
 
 
 ## 頁面 69/113 [**<**]({{site.baseurl}}/miles/transcript/page68) [1]({{site.baseurl}}/miles/transcript/index) ... [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) **69** [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page70)

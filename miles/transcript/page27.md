@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 27/113 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page28)
 
+[郭文贵2021年6月29日直播 20210629_1共产党你完了百年冥诞的恐惧即将崩溃的经济．和世界对共产党的病毒追责．你共产党还会有明天吗？]({{site.baseurl}}/miles/transcript/2021/06/20210629-1091639)
+
+[郭文贵2021年6月28日直播 20210628_1森林深处．与英俊漂亮的战友们连线试试直播……]({{site.baseurl}}/miles/transcript/2021/06/20210628-1091628)
+
 [郭文贵2021年6月28日盖特 20210628_2尊敬的战友们好，在香港和北京发生的大爆炸，死了很多人，为什么共产党要掩盖这些真相呢？]({{site.baseurl}}/miles/transcript/2021/06/20210628-1091637)
 
 [郭文贵2021年6月28日盖特 20210628_3七哥和約翰哥哥討論蓋特功能改善]({{site.baseurl}}/miles/transcript/2021/06/20210628-1091708)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年6月16日盖特 20210616_2]({{site.baseurl}}/miles/transcript/2021/06/20210616-1089819)
 
 [郭文贵2021年6月16日盖特 20210616_1香港运动两周年之际，文贵感触很多……为什么最近我要再报杨澜．吴征黑森林的故事呢？]({{site.baseurl}}/miles/transcript/2021/06/20210616-1091563)
-
-[郭文贵2021年6月15日直播 20210615_1三品澜．吴征夫妻俩．性贿赂中国．国际多名高官……骗钱害命多人……黑幕被多个专案组掩盖．为什么？]({{site.baseurl}}/miles/transcript/2021/06/20210615-1091541)
-
-[郭文贵2021年6月14日直播 20210614_1马云投资吴征的秘密；韩正力保吴征的原因；新盖特Logo的涵义；7.17看文贵大招]({{site.baseurl}}/miles/transcript/2021/06/20210614-1091516)
 
 
 ## 頁面 27/113 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page28)

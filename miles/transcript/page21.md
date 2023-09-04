@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 21/113 [**<**]({{site.baseurl}}/miles/transcript/page20) [1]({{site.baseurl}}/miles/transcript/index) ... [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) **21** [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page22)
 
+[郭文贵2021年9月11日盖特 20210911_1尊敬的战友们好．每时每刻．我们爆料革命．新中国联邦都在拯救很多无辜的生命……和影响这个世界走向阳光！我们是这个世界上最伟大的正义的力量．共产党你完蛋了。]({{site.baseurl}}/miles/transcript/2021/09/20210911-1092996)
+
+[郭文贵2021年9月10日直播 20210910_1恒大与香港黑帮玩的假金融游戏，恒大就是中国的雷曼兄弟，七哥四年前就准确爆出今天恒大的结局；房地产商都有自己的评估机构，进行金融骗贷；习和拜登通电话说了什么；共产党就是中国的]({{site.baseurl}}/miles/transcript/2021/09/20210910-1092987)
+
 [郭文贵2021年9月9日盖特 20210909_1尊敬的战友们好，中共即将崩溃的庞氏骗局的经济。和房地产骗局⋯以及共产党在国际上的邪恶的力量！都正在土崩瓦解中……新中国联邦人，我们要找回属于我们每一个人，必须拥有有的勇气，]({{site.baseurl}}/miles/transcript/2021/09/20210909-1092990)
 
 [郭文贵2021年9月8日直播 20210908_1拍卖行业的鉴定，评估，律师一条龙造假；中共的信托艺术市场是骗托骗术市场，就是洗钱的工具；中国有团契会光明会和共济会，王岐山，张宏伟都是中国光明会会员；七哥的俱乐部都是全世界]({{site.baseurl}}/miles/transcript/2021/09/20210908-1092926)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年8月30日直播 20210830_1中共已经有解药：D-NAB；东奥会中国队员已经用青蒿素防病毒，屠呦呦的药都有效；从美军，郑州，香港看中共的解药；疫苗界的大咖很快会出来爆料；体制内将大换岗，特别是公检法]({{site.baseurl}}/miles/transcript/2021/08/20210830-1092798)
 
 [郭文贵2021年8月29日直播 20210829_1七哥给部级战友饮食的三条建议；墙内病毒疫苗什么时候大爆发；七哥给“我是英雄”第一名亲自设计G翻身衣服；江家的金人庆自焚前见了3人，经常被杨澜找钥匙]({{site.baseurl}}/miles/transcript/2021/08/20210829-1092733)
-
-[郭文贵2021年8月29日盖特 20210829_3几次大直播．我们拯救了无数个生命．巨大的影响正在改变疫苗大屠杀的壮况……所有的战友们和我的朋友们都在思考，我们的人生和我们所生存的意义：和自己的信仰和宗教的理解！认知！爆料]({{site.baseurl}}/miles/transcript/2021/08/20210829-1092802)
-
-[郭文贵2021年8月29日盖特 20210829_4第二段视频……谈谈最近国内的演艺界体育节．所发生一系列的事情．和共产党正在疯狂的准备打烂台湾……打残欧州．征服世界的一些疯狂的方案和计划????????????????????????胆小的不要看这个视频]({{site.baseurl}}/miles/transcript/2021/08/20210829-1092810)
 
 
 ## 頁面 21/113 [**<**]({{site.baseurl}}/miles/transcript/page20) [1]({{site.baseurl}}/miles/transcript/index) ... [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) **21** [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page22)

@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 35/113 [**<**]({{site.baseurl}}/miles/transcript/page34) [1]({{site.baseurl}}/miles/transcript/index) ... [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) **35** [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page36)
 
+[郭文贵2021年3月19日盖特 20210319_1文贵再谈为什么？阿拉斯加的会谈！引起了美国和西方的高度关注！如何看待共产党玩弄种族矛盾……以及回应很多国内战友关于文贵．二月二直播后！一些家庭问题引起的各种讨论！]({{site.baseurl}}/miles/transcript/2021/03/20210319-1090966)
+
+[郭文贵2021年3月19日盖特 20210319_2所有给我发信息咨询付款的战友们，我再次强调：要与各农场高效紧密准确．地联系，并准确地填写银行信息是关键中的关键。我们正和共产党打一场帐号游击站，请战友们一定用对付游击战中的]({{site.baseurl}}/miles/transcript/2021/03/20210319-1090968)
+
 [郭文贵2021年3月18日直播 20210318_1火币是中共用来控制个人信息和收割财富的高科技手段；Gcoin， Ｇdollar是保证个人财富安全，灭共的金融平台；SEC下周开始退款，九指妖的灾难即将到来]({{site.baseurl}}/miles/transcript/2021/03/20210318-1090954)
 
 [郭文贵2021年3月18日盖特 20210318_2刚刚直播完后．没有声音的一段．很多战友让我再说一下，我在这里在和有个重复补播上！听战友的话有饭吃．有未来！]({{site.baseurl}}/miles/transcript/2021/03/20210318-1090957)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年3月13日盖特 20210313_3尊敬的战友们好，明天3月14号．农历二月初二．文贵母亲两周年，祭日……文贵要沐浴更衣．与战友们严肃地聊聊，未来新中国联邦人如何重建家庭文化！和如何建立利用科技和法律孝敬老人！我]({{site.baseurl}}/miles/transcript/2021/03/20210313-1090908)
 
 [郭文贵2021年3月12日盖特 20210312_1尊敬的战友们好，今天是2021年第一次文贵重磅爆料灭共第一部分！]({{site.baseurl}}/miles/transcript/2021/03/20210312-1090881)
-
-[郭文贵2021年3月12日盖特 20210312_2尊敬的战友们好，今天是2021年第一次文贵重磅爆料灭共第二部分！]({{site.baseurl}}/miles/transcript/2021/03/20210312-1090885)
-
-[郭文贵2021年3月12日盖特 20210312_3从四美女在GTV直播……看我们GTV的未来]({{site.baseurl}}/miles/transcript/2021/03/20210312-1090889)
 
 
 ## 頁面 35/113 [**<**]({{site.baseurl}}/miles/transcript/page34) [1]({{site.baseurl}}/miles/transcript/index) ... [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) **35** [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page36)

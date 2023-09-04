@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 31/113 [**<**]({{site.baseurl}}/miles/transcript/page30) [1]({{site.baseurl}}/miles/transcript/index) ... [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) **31** [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page32)
 
+[郭文贵2021年5月12日盖特 20210512_1尊敬的战友们好．美国在印度．马六甲．霍尔木兹海峡．等地区将派重兵意味着什么？美国商业科技领域从中共和香港全面撤出，以及在亚洲的商业贸易，金融的布局．是在做灭共后的一切准备。]({{site.baseurl}}/miles/transcript/2021/05/20210512-1091324)
+
+[郭文贵2021年5月11日盖特 20210511_15月11号尊敬的战友们好！SN0W向大家请安了……]({{site.baseurl}}/miles/transcript/2021/05/20210511-1091319)
+
 [郭文贵2021年5月11日盖特 20210511_2昨晚和国内统计部门的战友．通话极大的震撼了文贵……中华民族真的被共产党以．最快的速度．最愚蠢的方式，送进地狱！国将不国族将不族啊……我们只能以捶胸顿足．嚎啕大哭．来面对这残]({{site.baseurl}}/miles/transcript/2021/05/20210511-1091323)
 
 [郭文贵2021年5月10日直播 20210510_1感谢战友们的生日祝福；希望战友们珍惜现在，爱家人，爱朋友，爱战友]({{site.baseurl}}/miles/transcript/2021/05/20210510-1091311)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年4月30日盖特 20210430_1尊敬的战友們好．你們健身了嗎？你們傳播CC P病毒．香港危機真相了嗎？七哥這幾天為什麼快忙瘋了？]({{site.baseurl}}/miles/transcript/2021/04/20210430-1091197)
 
 [郭文贵2021年4月30日盖特 20210430_2文贵呼吁全球的农场的兄弟姐妹们，一定不能漏下，任何一个做出特殊贡献的义工．和对爆料革命的特殊贡献的战友们．必须让他们得到喜币！]({{site.baseurl}}/miles/transcript/2021/04/20210430-1091198)
-
-[郭文贵2021年4月30日盖特 20210430_3在此呼吁全球农场认真的服务我们的战友！将我们的农场推向一个新的高度．准备好灭共关键决战到来前的一切准备！]({{site.baseurl}}/miles/transcript/2021/04/20210430-1091203)
-
-[郭文贵2021年4月30日盖特 20210430_4尊敬的戰友們好！剛剛录制幾個小時的［馬背英雄］新歌之後的感想．分享給大家！感謝唐平老師！威廉王老師！辛苦的付出！和對一個完全不具備唱歌的學生！所付出的耐心！一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/04/20210430-1091207)
 
 
 ## 頁面 31/113 [**<**]({{site.baseurl}}/miles/transcript/page30) [1]({{site.baseurl}}/miles/transcript/index) ... [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) **31** [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page32)

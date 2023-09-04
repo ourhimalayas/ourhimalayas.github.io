@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 34/113 [**<**]({{site.baseurl}}/miles/transcript/page33) [1]({{site.baseurl}}/miles/transcript/index) ... [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) **34** [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page35)
 
+[郭文贵2021年3月31日盖特 20210331_1尊敬的战友们好！今天科学家．闫博士的第三个报告出来了????????????????????????????????????是个大日子！以毒灭共．全球联合灭共．以钱灭共…只有强大富有????(智慧)????的战友，才能达到我们最终目的]({{site.baseurl}}/miles/transcript/2021/03/20210331-1091074)
+
+[郭文贵2021年3月30日直播 20210330_2警告战友们投资不要上当受骗，代持代购一定要上报联盟]({{site.baseurl}}/miles/transcript/2021/03/20210330-1089051)
+
 [郭文贵2021年3月30日直播 20210330_1GFashion的设计，材质都是唯一；警告投资Ｇ系列不要被骗，所有代持代购都必须上报联盟；好莱坞，华尔街大佬都将加入以毒灭共]({{site.baseurl}}/miles/transcript/2021/03/20210330-1091070)
 
 [郭文贵2021年3月29日盖特 20210329_1世界的政治经济．在剧烈的震荡中．为什么全世界都在买虚拟货币？为什么全世界的人都对经济和政治和CCP病毒的真相．没有任何信息信心，这都是因为共产党这个魔鬼在作祟！这一切都是对新中]({{site.baseurl}}/miles/transcript/2021/03/20210329-1091056)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年3月21日盖特 20210321_3刚刚发出的盖特以后……很多战友给我发了信息．没办法一一回复，我只能在这里简单地．回应一下了……一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/03/20210321-1090994)
 
 [郭文贵2021年3月20日盖特 20210320_1昨天阿拉斯加的最大的政治骗局．又骗谁，又骗什么？和昨天拜登总统空军一号的三摔．摔出了什么？摔倒了谁？后果有多严重？]({{site.baseurl}}/miles/transcript/2021/03/20210320-1090969)
-
-[郭文贵2021年3月19日盖特 20210319_1文贵再谈为什么？阿拉斯加的会谈！引起了美国和西方的高度关注！如何看待共产党玩弄种族矛盾……以及回应很多国内战友关于文贵．二月二直播后！一些家庭问题引起的各种讨论！]({{site.baseurl}}/miles/transcript/2021/03/20210319-1090966)
-
-[郭文贵2021年3月19日盖特 20210319_2所有给我发信息咨询付款的战友们，我再次强调：要与各农场高效紧密准确．地联系，并准确地填写银行信息是关键中的关键。我们正和共产党打一场帐号游击站，请战友们一定用对付游击战中的]({{site.baseurl}}/miles/transcript/2021/03/20210319-1090968)
 
 
 ## 頁面 34/113 [**<**]({{site.baseurl}}/miles/transcript/page33) [1]({{site.baseurl}}/miles/transcript/index) ... [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) **34** [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page35)

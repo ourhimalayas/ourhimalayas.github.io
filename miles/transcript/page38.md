@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 38/113 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page39)
 
+[郭文贵2021年2月15日直播 20210215_3谈看完电影《白虎》的感受， 与宗教，中共，爆料革命的关系，第一次披露中共在全球的灭白计划；虚拟货币的好消息]({{site.baseurl}}/miles/transcript/2021/02/20210215-1090710)
+
+[郭文贵2021年2月13日视频雅典娜 20210213_2雅典娜&秘翻组 2021春节联合直播：庆祝新年，未来展望。郭先生亲临给战友们抽奖！]({{site.baseurl}}/miles/transcript/2021/02/20210213-1090637)
+
 [郭文贵2021年2月13日视频樱花团 20210213_1新春联欢，郭先生连线寄语]({{site.baseurl}}/miles/transcript/2021/02/20210213-1090692)
 
 [郭文贵2021年2月12日盖特 20210212_12月12号向所有的战友们及同胞们拜年，文贵谈，习近平制造的习拜的双规电话．为什么样的中美关系的将巨变！这是给新中国联邦送来的大红包]({{site.baseurl}}/miles/transcript/2021/02/20210212-1090627)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年2月3日盖特 20210203_2共产党独裁统治下的以黑治国以假治国的中共经济！到底出现了什么情况？这几天来大量的香港优质上市股票，以30%的价格抵押贴现！和国内大量的黄金50%的价格抵押贷款，四个自信强大的中共政]({{site.baseurl}}/miles/transcript/2021/02/20210203-1090556)
 
 [郭文贵2021年2月2日直播 20210202_1]({{site.baseurl}}/miles/transcript/2021/02/20210202-1090530)
-
-[郭文贵2021年2月2日直播 20210202_2回答战友们关于VOG退款事宜的疑问]({{site.baseurl}}/miles/transcript/2021/02/20210202-1090551)
-
-[郭文贵2021年2月1日直播 20210201_1文贵在雪中和战友们聊聊天．谈谈，中国共产党是如何欺骗中国老百姓的……]({{site.baseurl}}/miles/transcript/2021/02/20210201-1090507)
 
 
 ## 頁面 38/113 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page39)

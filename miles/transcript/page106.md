@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 106/113 [**<**]({{site.baseurl}}/miles/transcript/page105) [1]({{site.baseurl}}/miles/transcript/index) ... [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) **106** [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page107)
 
+[郭文贵2017年10月26日第一次直播 20171026_1十九大后爆料计划]({{site.baseurl}}/miles/transcript/2017/10/20171026-1094531)
+
+[郭文贵2017年10月23日直播 20171023_1与澳纽挺郭后援会视频通话]({{site.baseurl}}/miles/transcript/2017/10/20171023-1093314)
+
 [郭文贵2017年10月21日视频 20171021十九大停播后对欧洲挺郭后援团寄语重托和厚望]({{site.baseurl}}/miles/transcript/2017/10/20171021-1087459)
 
 [郭文贵2017年10月15日视频 20171015两会所有的代表们都在讨论文贵爆料]({{site.baseurl}}/miles/transcript/2017/10/20171015-1087453)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年9月26日 20170926任何一个同胞都应该听的视频这是 2017年5月26日 与刘彦平书记在纽约两次开会后——经孙立军要求我去华盛顿去见面，这是我们语音沟通的一部分。]({{site.baseurl}}/miles/transcript/2017/09/20170926-1094521)
 
 [郭文贵2017年9月25日视频 20170925首发爆料后国内炸了锅了！]({{site.baseurl}}/miles/transcript/2017/09/20170925-1094102)
-
-[郭文贵2017年9月24日 20170924文贵爆料中国盗国贼首场全球信息发＂不＂会（原版、未作任何刪減）！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！]({{site.baseurl}}/miles/transcript/2017/09/20170924-1094599)
-
-[郭文贵2017年9月23日视频 20170923预告第二天全球发布会首场直播 关于盗国贼们的巨额财富私生子非法身份]({{site.baseurl}}/miles/transcript/2017/09/20170923-1094047)
 
 
 ## 頁面 106/113 [**<**]({{site.baseurl}}/miles/transcript/page105) [1]({{site.baseurl}}/miles/transcript/index) ... [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) **106** [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [111]({{site.baseurl}}/miles/transcript/page111) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page107)

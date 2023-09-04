@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 82/113 [**<**]({{site.baseurl}}/miles/transcript/page81) [1]({{site.baseurl}}/miles/transcript/index) ... [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) **82** [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page83)
 
+[郭文贵2019年5月19日视频 第二部分 20190519_2郭文贵先生哈德遜河直播（1） Pt4 Miles Kwok live broadcast on Hudson River.]({{site.baseurl}}/miles/transcript/2019/05/20190519-1093127)
+
+[郭文贵2019年5月19日视频 第三部分 20190519_3Pt5 Miles Kwok live broadcast on Hudson River.]({{site.baseurl}}/miles/transcript/2019/05/20190519-1093138)
+
 [郭文贵2019年5月18日 20190518爆料王建之死原视频！世界上谁都没有]({{site.baseurl}}/miles/transcript/2019/05/20190518-1093114)
 
 [郭文贵2019年5月16日视频 20190516_1西藏新疆香港台灣的同胞們 你們千萬不要放棄 我們將迎來偉大的時刻]({{site.baseurl}}/miles/transcript/2019/05/20190516-1089225)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年5月3日视频 201905032017年的5月3号和2018年的5月3号都发生了哪些重大事件，文贵与大家分享一些过去没有讲过的事情]({{site.baseurl}}/miles/transcript/2019/05/20190503-1092988)
 
 [郭文贵2019年5月2日视频 20190502霍尔木兹海峡决定灭共是否成功 毛泽东，邓小平，妈祖．给我托梦了．人民大会堂委内瑞拉，台湾香港要出大事儿．郭台铭的梦是假的，哈哈哈哈，一切都是刚刚开始。]({{site.baseurl}}/miles/transcript/2019/05/20190502-1092978)
-
-[郭文贵2019年5月1日委内瑞拉革命 20190501从委内瑞拉革命，我们可以得到如何保护台湾和香港快速灭共的最佳办法，什么是尿脸党！]({{site.baseurl}}/miles/transcript/2019/05/20190501-1092973)
-
-[郭文贵2019年4月30日视频 20190430Miles reporting safety, ROL Foundation’s iphone incident]({{site.baseurl}}/miles/transcript/2019/04/20190430-1092964)
 
 
 ## 頁面 82/113 [**<**]({{site.baseurl}}/miles/transcript/page81) [1]({{site.baseurl}}/miles/transcript/index) ... [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) **82** [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page83)

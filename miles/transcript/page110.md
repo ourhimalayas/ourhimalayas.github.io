@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 110/113 [**<**]({{site.baseurl}}/miles/transcript/page109) [1]({{site.baseurl}}/miles/transcript/index) ... [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) **110** [111]({{site.baseurl}}/miles/transcript/page111) [112]({{site.baseurl}}/miles/transcript/page112) [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page111)
 
+[郭文贵2017年7月24日第二次直播 20170724_2呼吁推友不要冲动]({{site.baseurl}}/miles/transcript/2017/07/20170724-1094663)
+
+[郭文贵2017年7月18日视频 20170718做平板撑坚持20分钟！当然和十里路不换肩比不了。。。各位健身了吗？]({{site.baseurl}}/miles/transcript/2017/07/20170718-1094033)
+
 [郭文贵2017年7月17日明镜专访第四期 20170717]({{site.baseurl}}/miles/transcript/2017/07/20170717-1094656)
 
 [郭文贵2017年7月15日直播 20170715_2关于范冰冰起诉．海航20万亿线索的来源及美国灯塔报纸采访的回复]({{site.baseurl}}/miles/transcript/2017/07/20170715-1093277)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年6月13日 20170613关于章立凡与胡平先生在VoA节目中对文贵的诬陷]({{site.baseurl}}/miles/transcript/2017/06/20170613-1094288)
 
 [郭文贵2017年6月11日视频 20170611]({{site.baseurl}}/miles/transcript/2017/06/20170611-1094383)
-
-[郭文贵2017年6月10日第二次直播 20170610_2]({{site.baseurl}}/miles/transcript/2017/06/20170610-1094373)
-
-[郭文贵2017年6月10日第一次直播 20170610_1有关海南航空的公告的回复]({{site.baseurl}}/miles/transcript/2017/06/20170610-1094378)
 
 
 ## 頁面 110/113 [**<**]({{site.baseurl}}/miles/transcript/page109) [1]({{site.baseurl}}/miles/transcript/index) ... [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) **110** [111]({{site.baseurl}}/miles/transcript/page111) [112]({{site.baseurl}}/miles/transcript/page112) [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page111)

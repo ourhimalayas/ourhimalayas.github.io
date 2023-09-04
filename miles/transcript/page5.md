@@ -15,7 +15,11 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2022年9月10日直播 20220910_1回響 ∙ 水调歌头 2022年中秋特别节目]({{site.baseurl}}/miles/transcript/2022/09/20220910-1091817)
 
+[2022年8月2日 郭文贵先生抽雪茄庆祝台湾事实独立 全文字版]({{site.baseurl}}/miles/transcript/2022/08/20220802-1643620)
+
 [2022年8月1日 郭文贵先生谈8月1日法庭听证会和我们将面对的挑战 全文字版]({{site.baseurl}}/miles/transcript/2022/08/20220801-1639353)
+
+[2022年8月1日 郭文贵先生谈8月1日法庭听证会和我们将面对的挑战 全文字版]({{site.baseurl}}/miles/transcript/2022/08/20220801-1643031)
 
 [2022年7月31日《文贵大直播》全文字版]({{site.baseurl}}/miles/transcript/2022/07/20220731-1637321)
 
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [2022年7月6日《文贵大直播》--北天东地 全文字版]({{site.baseurl}}/miles/transcript/2022/07/20220706-1628670)
 
 [2022年7月3日《文贵先生携百位战友戒烟宣誓大直播》全文字版]({{site.baseurl}}/miles/transcript/2022/07/20220703-1628289)
-
-[2022年7月3日 《戒烟大直播》——女子戒烟监督团连线补播  全文字版]({{site.baseurl}}/miles/transcript/2022/07/20220703-1628305)
-
-[2022年6月28日《文贵大直播》全文字版]({{site.baseurl}}/miles/transcript/2022/06/20220628-1573683)
 
 
 ## 頁面 5/113 [**<**]({{site.baseurl}}/miles/transcript/page4) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) **5** [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page6)

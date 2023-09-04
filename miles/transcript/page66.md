@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 66/113 [**<**]({{site.baseurl}}/miles/transcript/page65) [1]({{site.baseurl}}/miles/transcript/index) ... [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) **66** [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page67)
 
+[2019年11月17日文贵大直播全文字版：对香港理工大学即将发生的人道危机提出的个人看法]({{site.baseurl}}/miles/transcript/2019/11/20191117-1086589)
+
+[郭文贵2019年11月17日视频 20191117_2香港又有行动啦！香港的教堂要注意了，对教堂有行动，宗教设施，那几个教堂，我就不多说了啊]({{site.baseurl}}/miles/transcript/2019/11/20191117-1089651)
+
 [郭文贵2019年11月17日 20191117对香港理工大学即将发生的人道危机提出的个人看法。]({{site.baseurl}}/miles/transcript/2019/11/20191117-1094165)
 
 [2019年11月16日文贵大直播全文字版：报平安直播]({{site.baseurl}}/miles/transcript/2019/11/20191116-1086585)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年11月6日第三次直播 20191106_3“文贵和路德在喜马拉雅大使馆直播”上部 共产党创造了几个荒唐政治事件(2)]({{site.baseurl}}/miles/transcript/2019/11/20191106-1093877)
 
 [郭文贵2019年11月6日第一次直播 20191106_1“文贵和路德在喜马拉雅大使馆直播”下部]({{site.baseurl}}/miles/transcript/2019/11/20191106-1093896)
-
-[郭文贵2019年11月5日视频 20191105_1浪裡個浪 文貴又要浪一下啦]({{site.baseurl}}/miles/transcript/2019/11/20191105-1089638)
-
-[2019年11月4日 郭文贵先生直播--四中全会是给香港的巨大礼物，CCP区块链挑战美国核心地位 全文字版]({{site.baseurl}}/miles/transcript/2019/11/20191104-1072004)
 
 
 ## 頁面 66/113 [**<**]({{site.baseurl}}/miles/transcript/page65) [1]({{site.baseurl}}/miles/transcript/index) ... [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) **66** [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page67)

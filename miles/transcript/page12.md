@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 12/113 [**<**]({{site.baseurl}}/miles/transcript/page11) [1]({{site.baseurl}}/miles/transcript/index) ... [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) **12** [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page13)
 
+[郭文贵2022年1月25日盖特 20220125_2尊敬的战友们好……七哥一边蒸馍馍．一边练这首歌呢？甜蜜蜜 你笑得甜蜜蜜 好像花儿开在春风里 开在春风里 在哪里]({{site.baseurl}}/miles/transcript/2022/01/20220125-1089788)
+
+[郭文贵2022年1月25日盖特 20220125_3大功告成……馍馍出锅……]({{site.baseurl}}/miles/transcript/2022/01/20220125-1089791)
+
 [郭文贵2022年1月25日直播 20220125_1紧急直播：甜蜜蜜运动重大公告Breaking Live：Important Announcement-Tianmimi(Sweet as Honey)Movement]({{site.baseurl}}/miles/transcript/2022/01/20220125-1089924)
 
 [郭文贵2022年1月24日盖特 20220124_2尊敬的战友们好……你们健身了吗？在今天大直播后，在整个中共国甜蜜蜜这首歌，已经完全找不到了，爆料革命和新中国联邦到底有多大的力量？从共产党将盘古龙头变成龟头……又将甜蜜蜜这]({{site.baseurl}}/miles/transcript/2022/01/20220124-1089784)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2022年1月12日直播 20220112_1伊萨贝拉杨新出的采访视频对华人的威胁将有怎样后果；美国、香港和世界的金融市场的变化与动向；中共与哈萨克斯坦事件背后的真相；桥水基金-“美国共同富裕”北京冬奥会和国内的疫情情况]({{site.baseurl}}/miles/transcript/2022/01/20220112-1089137)
 
 [郭文贵2022年1月11日盖特直播 20220111_1]({{site.baseurl}}/miles/transcript/2022/01/20220111-1089692)
-
-[郭文贵2022年1月10日盖特 20220110_1尊敬的战友们好！在中国大陆高墙内的同胞们……正在遭遇了前所未有的高压管制，正在爆发洗脑后的人道灾难事件，世界疫苗灾难即将停止，我们一定要坚持到最后……小心的面对新的爆发新的]({{site.baseurl}}/miles/transcript/2022/01/20220110-1088539)
-
-[郭文贵2022年1月9日直播 20220109_1哈薩克斯坦局势进展分析；青海地震几大山脉蓝莲花；疫苗大灾难和变种病毒的最新情况；重庆大爆炸，西安封城事件和中共20大之前的党争；喜币的现状与Hpay未来发展的潜力；中国人寿董事长王]({{site.baseurl}}/miles/transcript/2022/01/20220109-1088522)
 
 
 ## 頁面 12/113 [**<**]({{site.baseurl}}/miles/transcript/page11) [1]({{site.baseurl}}/miles/transcript/index) ... [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) **12** [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page13)
