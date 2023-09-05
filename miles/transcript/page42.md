@@ -3,6 +3,34 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 42/113 [**<**]({{site.baseurl}}/miles/transcript/page41) [1]({{site.baseurl}}/miles/transcript/index) ... [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) **42** [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page43)
 
+[郭文贵2021年1月4日盖特 20210104_2刚刚直播当中忘掉两个问题在这里向战友们再报告一下，希望战友们高度配合．喜马拉雅联盟委员会的战友之家．为战友们解决麻烦！和提供可靠的帮助！]({{site.baseurl}}/miles/transcript/2021/01/20210104-1090267)
+
+[郭文贵2021年1月3日盖特 20210103_1爆料革命又为美国做出了巨大贡献。唯真不破就是爆料革命百战百胜的法宝……爆料革命的跟随者将如海啸般的爆发，一切都已经开始]({{site.baseurl}}/miles/transcript/2021/01/20210103-1090261)
+
+[郭文贵2021年1月2日盖特 20210102_1尊敬的战友们好！你们健身了吗？你们传播CCP病毒……香港危机真相了真相了吗？华盛顿将48小时不眠不休的斗争……结果将是如何？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/01/20210102-1090258)
+
+[郭文贵2021年1月2日音频聊天 20210102_2郭先生喜马拉雅大使馆discord群答疑录音]({{site.baseurl}}/miles/transcript/2021/01/20210102-1090293)
+
+[郭文贵2021年1月1日直播 20210101_1]({{site.baseurl}}/miles/transcript/2021/01/20210101-1090256)
+
+[郭文贵2020年12月31日盖特 20201231_1尊敬的战友的好，我们一起度过了灭共灭役的2020庚子年，我们将一起进入到最后的灭共辛丑之年……此时此刻的文贵，不知该如何向战友们表达我现在的心情！]({{site.baseurl}}/miles/transcript/2020/12/20201231-1090175)
+
+[郭文贵2020年12月31日视频 20201231_2《我是音雄》之GForever全球跨年晚会]({{site.baseurl}}/miles/transcript/2020/12/20201231-1090250)
+
+[郭文贵2020年12月31日音频聊天 20201231_3郭先生喜马拉雅大使馆discord群答疑录音]({{site.baseurl}}/miles/transcript/2020/12/20201231-1090263)
+
+[郭文贵2020年12月30日盖特 20201230_1尊敬的战友们好，所有的战友们一定要小心被洗脑后．被利用传播仇恨，传播共产主义，对家人及后代所带来的不可估量的负面影响，这是极为可怕的严重的不可接受的丑陋的行为，一切都已经开]({{site.baseurl}}/miles/transcript/2020/12/20201230-1090171)
+
+[郭文贵2020年12月30日音频聊天 20201230_2郭先生喜马拉雅大使馆discord群答疑录音]({{site.baseurl}}/miles/transcript/2020/12/20201230-1090179)
+
+[郭文贵2020年12月30日视频 20201230_3郭先生为“G Forever我是音雄全球跨年晚会”录制视频第二弹]({{site.baseurl}}/miles/transcript/2020/12/20201230-1090259)
+
+[郭文贵2020年12月29日盖特 20201229_1文贵刚开完会向大家报平安，一切都已经开始]({{site.baseurl}}/miles/transcript/2020/12/20201229-1090163)
+
+[郭文贵2020年12月29日视频 20201229_2郭文贵先生给《我是音雄》的祝贺和期许（一）]({{site.baseurl}}/miles/transcript/2020/12/20201229-1090167)
+
+[郭文贵2020年12月28日盖特 20201228_1尊敬的战友们好．文贵想和战友们聊聊……参与爆料革命的风险系数和我们现在遇到的问题后的……的应该如何面对和解决的办法，一切都已经开始！]({{site.baseurl}}/miles/transcript/2020/12/20201228-1090160)
+
 [郭文贵2020年12月28日盖特 20201228_2感谢战友们的关心……回答在国内疫情灾区的战友们……相互支持，相互帮助，及我们所能提供的帮助，一切都已经开始！]({{site.baseurl}}/miles/transcript/2020/12/20201228-1090162)
 
 [郭文贵2020年12月28日音频聊天 20201228_3郭先生喜马拉雅大使馆discord群答疑录音]({{site.baseurl}}/miles/transcript/2020/12/20201228-1090170)
@@ -24,34 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年12月25日直播 20201225_1文贵圣诞直播]({{site.baseurl}}/miles/transcript/2020/12/20201225-1090148)
 
 [郭文贵2020年12月25日音频聊天 20201225_2郭先生喜马拉雅大使馆discord群答疑录音]({{site.baseurl}}/miles/transcript/2020/12/20201225-1090289)
-
-[郭文贵2020年12月24日盖特 20201224_4郝海東夫婦中大獎了 買了八個中了三個20201224之4]({{site.baseurl}}/miles/transcript/2020/12/20201224-1089734)
-
-[郭文贵2020年12月24日盖特 20201224_1平安夜快乐……你们感受到最不平安夜的感觉了吗？]({{site.baseurl}}/miles/transcript/2020/12/20201224-1090139)
-
-[郭文贵2020年12月24日盖特 20201224_2平安夜????文贵向战友们再次的祝福，明天．25号上午9:00至10:00……文贵圣诞直播！]({{site.baseurl}}/miles/transcript/2020/12/20201224-1090140)
-
-[郭文贵2020年12月24日盖特 20201224_3文贵在平安夜……收到了G翻身的礼物，这是我一生中收到最大的……????????????最隆重的礼物，G翻身就是这样对待发起人，首席设计顾问……实在是太成功了以后战友们对G翻身的所有物品型号可要]({{site.baseurl}}/miles/transcript/2020/12/20201224-1090142)
-
-[郭文贵2020年12月23日盖特 20201223_3七哥在喜马拉雅大使馆群健身视频]({{site.baseurl}}/miles/transcript/2020/12/20201223-1089730)
-
-[郭文贵2020年12月23日盖特 20201223_1尊敬的战友们好……你们健身了吗？你们传播C C P病毒……香港危机真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2020/12/20201223-1090135)
-
-[郭文贵2020年12月23日盖特 20201223_2我们成功地在天佑之下……和无数个真诚的伟大的战友的团结合作中……击败了灭爆小组的一个惊天的阴谋……给我们的爆料革命，新中国联邦又带了一次巨大的升华！，上天护佑着我们！???????]({{site.baseurl}}/miles/transcript/2020/12/20201223-1090137)
-
-[郭文贵2020年12月22日盖特 20201222_1尊敬的战友们好．灭共……新中国联邦，维护中国人的尊严．和安全利益，这几条原则……必须要清楚和绝对的坚持与否……决定了我们每个人的未来！]({{site.baseurl}}/miles/transcript/2020/12/20201222-1090123)
-
-[郭文贵2020年12月22日盖特 20201222_2尊敬的战友们，????????????文贵在这里回答很多战友……在过去几个小时．发信息咨询文贵一些问题……一切都已经开始！]({{site.baseurl}}/miles/transcript/2020/12/20201222-1090127)
-
-[郭文贵2020年12月21日盖特 20201221_1尊敬的战友们好……文贵又做梦了……]({{site.baseurl}}/miles/transcript/2020/12/20201221-1090109)
-
-[郭文贵2020年12月21日盖特 20201221_2过冬至吃饺子喽……]({{site.baseurl}}/miles/transcript/2020/12/20201221-1090120)
-
-[郭文贵2020年12月20日盖特 20201220_1尊敬的战友们好！所有的战友们要知道．只有家和人和你才能平安，健康……中共的经济在崩塌……自己更要珍惜．与家人和周围同事．朋友的关系，这会让你更安全，更健康和躲过战争……饥荒]({{site.baseurl}}/miles/transcript/2020/12/20201220-1090107)
-
-[郭文贵2020年12月20日直播 20201220_2在线回答原凤凰农场和VOG战友的问题]({{site.baseurl}}/miles/transcript/2020/12/20201220-1090119)
-
-[郭文贵2020年12月20日音频聊天 20201220_3喜马拉雅大使馆Discord与战友聊天音频]({{site.baseurl}}/miles/transcript/2020/12/20201220-1090134)
 
 
 ## 頁面 42/113 [**<**]({{site.baseurl}}/miles/transcript/page41) [1]({{site.baseurl}}/miles/transcript/index) ... [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) **42** [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page43)

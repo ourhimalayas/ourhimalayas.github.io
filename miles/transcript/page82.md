@@ -3,6 +3,34 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 82/113 [**<**]({{site.baseurl}}/miles/transcript/page81) [1]({{site.baseurl}}/miles/transcript/index) ... [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) **82** [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page83)
 
+[郭文贵2019年6月1日视频 20190601文贵报平安直播！无论任何方式的任何人的＂偷＂都是错的．都应感到可耻……我们今天的爆料革命！就是为了我们中国儿童！有一个美好的健康的国家和未来]({{site.baseurl}}/miles/transcript/2019/06/20190601-1093008)
+
+[郭文贵2019年5月31日视频 20190531 林郑月娥触动中共最敏感神经 Carrie Lam put CCP on alert! 10000s banned on Twitter! Save all proofs of the ban!]({{site.baseurl}}/miles/transcript/2019/05/20190531-1093000)
+
+[郭文贵2019年5月30日视频 20190530_1林郑月娥亲自撰写，并要求中共中央在香港实施《遣返万能法》]({{site.baseurl}}/miles/transcript/2019/05/20190530-1089183)
+
+[郭文贵2019年5月30日视频 20190530_2郭文贵先生和战友们聊天]({{site.baseurl}}/miles/transcript/2019/05/20190530-1089188)
+
+[郭文贵2019年5月27日视频 20190527_1文貴又出來浪了]({{site.baseurl}}/miles/transcript/2019/05/20190527-1089178)
+
+[郭文贵2019年5月26日视频 20190526_2SNOW 是路德先生的大粉丝！]({{site.baseurl}}/miles/transcript/2019/05/20190526-1089175)
+
+[郭文贵2019年5月26日视频 20190526_12020年6月4日将是新中国的国庆日！]({{site.baseurl}}/miles/transcript/2019/05/20190526-1089239)
+
+[郭文贵2019年5月25日视频 20190525世界秩序新开始就在日本G20会议 G20 summit will mark the beginning of a new US-China game!]({{site.baseurl}}/miles/transcript/2019/05/20190525-1093209)
+
+[郭文贵2019年5月23日直播 20190523_2郭文贵先生与鲁任达先生直播 不完整高清版]({{site.baseurl}}/miles/transcript/2019/05/20190523-1088600)
+
+[郭文贵2019年5月23日直播 20190523鲁仁达先生与文贵在线互访直播]({{site.baseurl}}/miles/transcript/2019/05/20190523-1093187)
+
+[郭文贵2019年5月21日视频 20190521_1天哪！中共的天机又来了！还要延续三十年控制中国]({{site.baseurl}}/miles/transcript/2019/05/20190521-1089236)
+
+[郭文贵2019年5月20日视频 20190520接下来．我们中国及香港的经济．金融．将一塌糊涂．远超出大家的想象]({{site.baseurl}}/miles/transcript/2019/05/20190520-1093143)
+
+[郭文贵2019年5月19日视频 20190519_4昨天平板撐做了32分鐘 今天只做了25分鐘]({{site.baseurl}}/miles/transcript/2019/05/20190519-1089231)
+
+[郭文贵2019年5月19日视频 第一部分 20190519_1Pt2 Miles Kwok live broadcast on Hudson River.]({{site.baseurl}}/miles/transcript/2019/05/20190519-1093120)
+
 [郭文贵2019年5月19日视频 第二部分 20190519_2郭文贵先生哈德遜河直播（1） Pt4 Miles Kwok live broadcast on Hudson River.]({{site.baseurl}}/miles/transcript/2019/05/20190519-1093127)
 
 [郭文贵2019年5月19日视频 第三部分 20190519_3Pt5 Miles Kwok live broadcast on Hudson River.]({{site.baseurl}}/miles/transcript/2019/05/20190519-1093138)
@@ -24,34 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年5月11日视频 20190511_2你怎麼上來的啊Snow]({{site.baseurl}}/miles/transcript/2019/05/20190511-1089218)
 
 [郭文贵2019年5月11日视频 20190511文贵谈中美贸易谈判失败的真正原因，台湾和香港人民的未来]({{site.baseurl}}/miles/transcript/2019/05/20190511-1093080)
-
-[郭文贵2019年5月10日50岁生日感言 20190510 郭文贵先生50岁生日，谈母亲，父母，家庭 The real reason for trade talks failing; The future of Taiwanese and Hong Kong people]({{site.baseurl}}/miles/transcript/2019/05/20190510-1093052)
-
-[郭文贵2019年5月9日 20190509中共玩弄中美贸易协议重大事件！全球金融市场陷入惊慌！美国将对台湾香港采取战略调整]({{site.baseurl}}/miles/transcript/2019/05/20190509-1094196)
-
-[郭文贵2019年5月8日视频 20190508尊敬的战友们好，你们健身了吗？文贵聊聊．为什么中方要求美方不能公开中美的贸易协议内容！为什么文贵的梦语．郭九条．在国内引起了巨大的反响！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/05/20190508-1093044)
-
-[郭文贵2019年5月7日视频 20190507共产党被推倒，释放所有监狱里的犯人．土地拥有权归人民所有．西藏，新疆，台湾．香港实施百分之百的自治！你们觉得可能吗？]({{site.baseurl}}/miles/transcript/2019/05/20190507-1093038)
-
-[郭文贵2019年5月6日视频 20190506_35.6聊股市]({{site.baseurl}}/miles/transcript/2019/05/20190506-1088603)
-
-[郭文贵2019年5月6日视频 20190506_2文贵受到snow的严重骚扰……因为文贵马上要参加两个紧急的会议，暂时不能直播]({{site.baseurl}}/miles/transcript/2019/05/20190506-1089213)
-
-[郭文贵2019年5月6日视频 20190506文贵直播谈谈，为什么川普总统要突然间的停掉，中美贸易协定共产党必须还回属于14亿中国人民的一切财富一切权力！]({{site.baseurl}}/miles/transcript/2019/05/20190506-1093027)
-
-[郭文贵2019年5月5日与班农先生对谈 20190505文贵与班农先生就有关中美贸易协议停止！]({{site.baseurl}}/miles/transcript/2019/05/20190505-1093017)
-
-[郭文贵2019年5月4日视频 20190504小夏与文贵谈四一九VOA断播背后的真相]({{site.baseurl}}/miles/transcript/2019/05/20190504-1092997)
-
-[郭文贵2019年5月3日视频 20190503_2与战友分享日本拉面]({{site.baseurl}}/miles/transcript/2019/05/20190503-1089196)
-
-[郭文贵2019年5月3日视频 20190503_3希望＂政经关不了＂永远都不被关！文贵将和你联系！与您连线直播！只要有利于台湾和台湾人民的事我都愿意干]({{site.baseurl}}/miles/transcript/2019/05/20190503-1089200)
-
-[郭文贵2019年5月3日视频 20190503_4文贵在做平板称时的视频做得不标准，希望战友们不要秀文贵这样的做共28分钟。]({{site.baseurl}}/miles/transcript/2019/05/20190503-1089206)
-
-[郭文贵2019年5月3日视频 201905032017年的5月3号和2018年的5月3号都发生了哪些重大事件，文贵与大家分享一些过去没有讲过的事情]({{site.baseurl}}/miles/transcript/2019/05/20190503-1092988)
-
-[郭文贵2019年5月2日视频 20190502霍尔木兹海峡决定灭共是否成功 毛泽东，邓小平，妈祖．给我托梦了．人民大会堂委内瑞拉，台湾香港要出大事儿．郭台铭的梦是假的，哈哈哈哈，一切都是刚刚开始。]({{site.baseurl}}/miles/transcript/2019/05/20190502-1092978)
 
 
 ## 頁面 82/113 [**<**]({{site.baseurl}}/miles/transcript/page81) [1]({{site.baseurl}}/miles/transcript/index) ... [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) **82** [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page83)

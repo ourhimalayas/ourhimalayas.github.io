@@ -3,6 +3,34 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 61/113 [**<**]({{site.baseurl}}/miles/transcript/page60) [1]({{site.baseurl}}/miles/transcript/index) ... [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) **61** [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page62)
 
+[郭文贵2020年3月4日全世界反击CCP 20200304等着看吧，全世界反击CCP！一切已经开始！]({{site.baseurl}}/miles/transcript/2020/03/20200304-1091891)
+
+[郭文贵2020年3月3日车上直播 20200303谈17件大事正在发生中]({{site.baseurl}}/miles/transcript/2020/03/20200303-1091879)
+
+[郭文贵2020年2月29日 20200229共产党正在开始集体自焚，常委至少3人要死，即将修改郭七条]({{site.baseurl}}/miles/transcript/2020/02/20200229-1091872)
+
+[郭文贵2020年2月28日视频 20200228_1郭文贵先生加入班农先生战斗室EP…28中英字幕完整版]({{site.baseurl}}/miles/transcript/2020/02/20200228-1089774)
+
+[郭文贵2020年2月27日 20200227王岐山今天站着出来握手，29号看中南坑究竟谁染上了]({{site.baseurl}}/miles/transcript/2020/02/20200227-1091847)
+
+[郭文贵2020年2月24日视频 20200224祝福我们能够早日实现喜马拉雅新中国,2020霹雳年”中国共产党必灭！一首MV送给大家????????????“上海滩”]({{site.baseurl}}/miles/transcript/2020/02/20200224-1089021)
+
+[郭文贵2020年2月22日视频 20200222_2文贵再次呼吁法治基金法制社会所有的爆料革命的真战友们可以向我们申请口罩，一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2020/02/20200222-1089767)
+
+[郭文贵2020年2月22日 20200222谈CCP要与世界玉石俱焚，法治基金发口罩准备解药救人]({{site.baseurl}}/miles/transcript/2020/02/20200222-1091844)
+
+[郭文贵2020年2月21日直播 20200221_3]({{site.baseurl}}/miles/transcript/2020/02/20200221-1088901)
+
+[郭文贵2020年2月21日第二次直播 20200221_2北京人民医院感染众多！疫情大爆发还没真正开始]({{site.baseurl}}/miles/transcript/2020/02/20200221-1091826)
+
+[郭文贵2020年2月21日第一次直播 20200221_1参加班农战斗室访谈]({{site.baseurl}}/miles/transcript/2020/02/20200221-1091858)
+
+[郭文贵2020年2月20日第二次直播 20200220_2再次提醒战友们同胞们2月29日是巨大的分水岭，呆家里莫上班]({{site.baseurl}}/miles/transcript/2020/02/20200220-1091804)
+
+[郭文贵2020年2月20日第一次直播 20200220_1参加班农战斗室第21期 谈武汉]({{site.baseurl}}/miles/transcript/2020/02/20200220-1091819)
+
+[郭文贵2020年2月19日直播 20200219_2郭文贵先生加入班农先生战斗室谈武汉疫情 高清版]({{site.baseurl}}/miles/transcript/2020/02/20200219-1088898)
+
 [郭文贵2020年2月19日 20200219参加班农先生的作战室第20期直播]({{site.baseurl}}/miles/transcript/2020/02/20200219-1091799)
 
 [郭文贵2020年2月18日 20200218警醒同胞2月29日是武汉疫情的分水岭，别上班，躲深山]({{site.baseurl}}/miles/transcript/2020/02/20200218-1091794)
@@ -24,34 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年2月6日视频 20200206接受班农先生战斗室访谈 谈武]({{site.baseurl}}/miles/transcript/2020/02/20200206-1091713)
 
 [郭文贵2020年2月5日视频 20200205_1我们法治基金已经准备好了一亿个口罩！请问中共我们该如何送到我们血缘的同胞手里？寄诸囗罩．善至血缘！]({{site.baseurl}}/miles/transcript/2020/02/20200205-1089764)
-
-[郭文贵2020年2月3日直播 20200203_2谈共产党官方一直掩盖武汉真相第二部分]({{site.baseurl}}/miles/transcript/2020/02/20200203-1088889)
-
-[郭文贵2020年2月3日直播 20200203_1谈共产党官方一直掩盖武汉真相第一部分]({{site.baseurl}}/miles/transcript/2020/02/20200203-1088892)
-
-[郭文贵2020年2月3日直播 20200203_3谈共产党官方一直掩盖武汉真相第三部分]({{site.baseurl}}/miles/transcript/2020/02/20200203-1091704)
-
-[郭文贵2020年2月1日第一次直播 20200201_1无能共产党救灾不利，又拒绝国际救援，百姓何去何从，一起找书记]({{site.baseurl}}/miles/transcript/2020/02/20200201-1091807)
-
-[郭文贵2020年2月1日第二次直播 20200201_2在马阿拉哥总统套房第二次直播西方社会将对中共在西方的沉默力量采取最严厉的打击措施]({{site.baseurl}}/miles/transcript/2020/02/20200201-1091830)
-
-[郭文贵2020年2月1日第三次直播 20200201_3第三次直播分享参加川普总统晚宴有感]({{site.baseurl}}/miles/transcript/2020/02/20200201-1091839)
-
-[郭文贵2020年1月31日 20200131导致疫情扩大的真正原因是共]({{site.baseurl}}/miles/transcript/2020/01/20200131-1091780)
-
-[郭文贵2020年1月30日视频 20200130_2文貴在教堂為中國人祈福]({{site.baseurl}}/miles/transcript/2020/01/20200130-1089759)
-
-[郭文贵2020年1月30日视频 20200130_3沿着三年前习川会的小路走一走！【有1000个理由要搞好中美关系没有一个理由给搞坏中美关系。】]({{site.baseurl}}/miles/transcript/2020/01/20200130-1089762)
-
-[郭文贵2020年1月30日 20200130谈中南坑政治局常委有人会死]({{site.baseurl}}/miles/transcript/2020/01/20200130-1091760)
-
-[郭文贵2020年1月29日 20200129谈CCP统治下的孤国孤市孤镇孤]({{site.baseurl}}/miles/transcript/2020/01/20200129-1091747)
-
-[郭文贵2020年1月28日谈WHO已经认错 20200128CCP对疫情必须承担责任]({{site.baseurl}}/miles/transcript/2020/01/20200128-1091727)
-
-[郭文贵2020年1月27日谈科比意外死亡 20200127并呼吁中共在灾难面前以人命]({{site.baseurl}}/miles/transcript/2020/01/20200127-1091716)
-
-[郭文贵2020年1月26日 20200126大年初二谈为什么共产党要控制世界卫生组织．国际刑警组织．国际人权组织．中共为什么拒绝世界卫生组织给武汉疫区医生护士的防护设备和设施。2020年1月26日爆料革命三周年文贵致谢所有的战]({{site.baseurl}}/miles/transcript/2020/01/20200126-1092308)
 
 
 ## 頁面 61/113 [**<**]({{site.baseurl}}/miles/transcript/page60) [1]({{site.baseurl}}/miles/transcript/index) ... [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) **61** [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page62)

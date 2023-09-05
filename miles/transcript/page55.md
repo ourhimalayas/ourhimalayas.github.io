@@ -3,6 +3,34 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 55/113 [**<**]({{site.baseurl}}/miles/transcript/page54) [1]({{site.baseurl}}/miles/transcript/index) ... [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) **55** [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page56)
 
+[郭文贵2020年6月9日 20200609_1关于G币的退款．诉讼．赔偿．一些问题．及如何拥有投资GTV老股的机会！的一些回答。]({{site.baseurl}}/miles/transcript/2020/06/20200609-1092536)
+
+[郭文贵2020年6月8日连线木兰乱聊 20200608GTV恢复连线等功能；新中国联邦成立在中国国内和台湾的影响；中共持续造谣抹黑郝海东夫妇]({{site.baseurl}}/miles/transcript/2020/06/20200608-1092508)
+
+[郭文贵2020年6月6日 20200606新中国联邦对世界和中国人民的三大影响和正道主义的新中国的未来设想。]({{site.baseurl}}/miles/transcript/2020/06/20200606-1092470)
+
+[郭文贵2020年6月4日gtv视频 20200604_5郭文贵和班农先生在听郝海东朗读新中国联邦宣言]({{site.baseurl}}/miles/transcript/2020/06/20200604-1089025)
+
+[郭文贵2020年6月4日gtv视频 20200604_6全球灭共的时代已经开始 中国人民并不孤单 世界正道主义与你们站在一起]({{site.baseurl}}/miles/transcript/2020/06/20200604-1089026)
+
+[郭文贵2020年6月4日gtv视频 20200604_7讲述国旗上面的七七四十九宇宙之星， 心中之星，太阳之心]({{site.baseurl}}/miles/transcript/2020/06/20200604-1089027)
+
+[郭文贵2020年6月4日gtv视频 20200604_8新中国联邦成立庆典航拍全记录]({{site.baseurl}}/miles/transcript/2020/06/20200604-1089031)
+
+[郭文贵2020年6月4日视频 20200604_4新中國聯邦成立後大雨傾盆]({{site.baseurl}}/miles/transcript/2020/06/20200604-1089871)
+
+[郭文贵2020年6月4日 20200604_3新中国联邦宣言的历史意义]({{site.baseurl}}/miles/transcript/2020/06/20200604-1092446)
+
+[郭文贵2020年6月4日新中国联邦成立 20200604_1郭先生宣布新中国联邦正式成立，郝海东先生班农先生宣读新中国联邦宣言]({{site.baseurl}}/miles/transcript/2020/06/20200604-1094215)
+
+[郭文贵2020年6月4日参访众战友 20200604_2新中国联邦宣言仪式后参访众战友]({{site.baseurl}}/miles/transcript/2020/06/20200604-1094228)
+
+[郭文贵2020年6月2日 20200602正式宣布GTV完成私募]({{site.baseurl}}/miles/transcript/2020/06/20200602-1093033)
+
+[郭文贵2020年5月30日第一次直播 20200530_1]({{site.baseurl}}/miles/transcript/2020/05/20200530-1092571)
+
+[郭文贵2020年5月30日第二次直播 20200530_2请所有的战友高度关注6月2号中午和6月3号晚上和6月4号上午．三次重大直播，请准备好美食美酒！]({{site.baseurl}}/miles/transcript/2020/05/20200530-1093019)
+
 [郭文贵2020年5月29日视频 20200529留美的学生和华人同胞们请务必看今天文贵的视频]({{site.baseurl}}/miles/transcript/2020/05/20200529-1092537)
 
 [郭文贵2020年5月27日视频 20200527_3所有被指定为个地区国家与战友们的联系负责人都不允许收集和查看任何战友的私人信息和投资相关的任何资料]({{site.baseurl}}/miles/transcript/2020/05/20200527-1089862)
@@ -24,34 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年5月23日视频 20200523_4在班农War Room对美国的呐喊]({{site.baseurl}}/miles/transcript/2020/05/20200523-1089009)
 
 [郭文贵2020年5月23日第一次GTV直播 20200523_1从中国的五四民主运动和北京天安门的六四事件与美国的七四建国日．来看今天人类的大灾难……]({{site.baseurl}}/miles/transcript/2020/05/20200523-1092041)
-
-[郭文贵2020年5月23日GTV第二次直播 20200523_2文贵如何看待十几天后的六四……新宣言和内心的感受。]({{site.baseurl}}/miles/transcript/2020/05/20200523-1092288)
-
-[郭文贵2020年5月23日GTV第三次直播 20200523_3文贵不会带任何战友参与做空港币重新认识香港保护香港，是我们每个中国人起码的道德底线。]({{site.baseurl}}/miles/transcript/2020/05/20200523-1092401)
-
-[郭文贵2020年5月22日视频 20200522_2文贵先生在班农先生战斗室谈五四运动和呼吁美国关注香港！]({{site.baseurl}}/miles/transcript/2020/05/20200522-1089857)
-
-[郭文贵2020年5月22日视频 20200522两会的所谓西部大开发是灾难大转移新的大跃进，香港官方将成为美中大战的导火索．喜马拉雅农场到底是个什么]({{site.baseurl}}/miles/transcript/2020/05/20200522-1092274)
-
-[郭文贵2020年5月21日视频 20200521爆料革命为什么又要篾工还要在海外准备国中之国的基地？由G币引发的资金大外逃说明了什么？]({{site.baseurl}}/miles/transcript/2020/05/20200521-1092256)
-
-[郭文贵2020年5月19日视频 20200519谁偷走了你的G币和你的信息？为什么文贵不配合专案组．伤害傅政华．孟建柱．孙立军，王岐山的家人！]({{site.baseurl}}/miles/transcript/2020/05/20200519-1092226)
-
-[郭文贵2020年5月17日视频 20200517国内战友，不要在6月4号左右有任何冲动的行动，我们要灭共．灭贼．不要反真正的好企业和我们中国人的智慧]({{site.baseurl}}/miles/transcript/2020/05/20200517-1092203)
-
-[郭文贵2020年5月16日视频 20200516疯狂的共产党很有可能对台湾香港下毒手]({{site.baseurl}}/miles/transcript/2020/05/20200516-1092178)
-
-[郭文贵2020年5月14日视频 20200514]({{site.baseurl}}/miles/transcript/2020/05/20200514-1092081)
-
-[郭文贵2020年5月14日视频 20200514_2视频恢复 ： 绝不能让任何国家利用共产党犯罪来抢着中国人的财富．Gfashion将成为战友们走向世界的综合舞台！]({{site.baseurl}}/miles/transcript/2020/05/20200514-1092157)
-
-[郭文贵2020年5月13日视频 20200513GTV录播：下午7：30，是谁把银行买垮了，阴阳乾坤，隔空取钱。]({{site.baseurl}}/miles/transcript/2020/05/20200513-1089007)
-
-[郭文贵2020年5月11日GTV连线长岛伟哥 20200511]({{site.baseurl}}/miles/transcript/2020/05/20200511-1092113)
-
-[郭文贵2020年5月10日GTV连线文欣 20200510]({{site.baseurl}}/miles/transcript/2020/05/20200510-1092132)
-
-[郭文贵2020年5月10日连线老江等五人 20200510_2建立爆料革命受害者援助会．和保证灭共后的护卫力量，建立更强大的战友核心团队．建立喜马拉雅联储系统]({{site.baseurl}}/miles/transcript/2020/05/20200510-1092423)
 
 
 ## 頁面 55/113 [**<**]({{site.baseurl}}/miles/transcript/page54) [1]({{site.baseurl}}/miles/transcript/index) ... [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) **55** [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page56)

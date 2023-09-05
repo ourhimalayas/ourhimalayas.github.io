@@ -3,6 +3,34 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 87/113 [**<**]({{site.baseurl}}/miles/transcript/page86) [1]({{site.baseurl}}/miles/transcript/index) ... [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) **87** [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page88)
 
+[郭文贵2019年1月24日视频 20190124委内瑞拉的民主反独裁的运动对中国人民的意义与影响重大]({{site.baseurl}}/miles/transcript/2019/01/20190124-1092339)
+
+[郭文贵2019年1月23日视频 20190123华盛顿上空弥漫这共同的目标：灭共]({{site.baseurl}}/miles/transcript/2019/01/20190123-1092324)
+
+[郭文贵2019年1月22日视频 20190122_1文贵在战斗途中！正在完成战友希望我完成的任务中！一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/01/20190122-1089046)
+
+[郭文贵2019年1月21日视频 20190121共产党号召学习王阳明的心学是对圣人的巨大侮辱]({{site.baseurl}}/miles/transcript/2019/01/20190121-1092314)
+
+[郭文贵2019年1月20日视频 20190120_2二分钟短直播，点名战友]({{site.baseurl}}/miles/transcript/2019/01/20190120-1088628)
+
+[郭文贵2019年1月20日视频 20190120王岐山，孟建柱．是如何执行南普陀计划！美国人是如何看待……对待！中国新的发誓我这一系列的奇怪的事情！]({{site.baseurl}}/miles/transcript/2019/01/20190120-1092296)
+
+[郭文贵2019年1月19日视频 20190119文贵报平安视频，中共以假治国、以黑治国到了终结的时候，政事小哥事件在国内影响巨大，这是一个让美国人都恐惧的标志性事件。]({{site.baseurl}}/miles/transcript/2019/01/20190119-1092269)
+
+[郭文贵2019年1月18日第二次直播 20190118_2关于政事小哥！因为受共产党对家人的迫害威胁，不得不离开过爆料革命！这更加坚定了摧毁流氓CCp的决心！以实际行动为战友报仇！一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/01/20190118-1092248)
+
+[郭文贵2019年1月18日第一次直播 20190118_1告诉大家赚几千亿美元的秘诀]({{site.baseurl}}/miles/transcript/2019/01/20190118-1092260)
+
+[郭文贵2019年1月17日第二次直播 20190117_2尊敬的战友们好，你们健身了吗！文贵向你们报告出席华盛顿一系列的活动和几个重大的采访]({{site.baseurl}}/miles/transcript/2019/01/20190117-1092239)
+
+[郭文贵2019年1月17日第一次直播 20190117_1中美贸易谈判崩裂意味着什么????文贵在这里向你们报告一下！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/01/20190117-1094201)
+
+[郭文贵2019年1月16日视频第一部分 20190116_1报平安直播，因春晚收到了国内盗国贼各方的威胁，以及接下来将对盗国贼子女海外资产的一系列行动，慈善基金可能将成为第一个有回报的慈善基金]({{site.baseurl}}/miles/transcript/2019/01/20190116-1092227)
+
+[郭文贵2019年1月16日视频第二部分 20190116_2王健被谋杀之密有了重大进展。吴征还有博讯, 马蕊强奸案有了重大的实质性的证据证明吴征被CCP控制]({{site.baseurl}}/miles/transcript/2019/01/20190116-1092234)
+
+[郭文贵2019年1月15日视频 20190115_1两天前！我出去见朋友！CCP很多人跟踪我！他们这种做法一定会受到美国的法律的严惩]({{site.baseurl}}/miles/transcript/2019/01/20190115-1089042)
+
 [郭文贵2019年1月14日视频 20190114_1你们知道我昨天去见的是谁吗]({{site.baseurl}}/miles/transcript/2019/01/20190114-1089032)
 
 [郭文贵2019年1月14日视频 20190114_2试直播设备]({{site.baseurl}}/miles/transcript/2019/01/20190114-1089037)
@@ -24,34 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年1月9日视频 20190109_1袁建斌败诉后会赔多少钱？美国的法律会给出答案]({{site.baseurl}}/miles/transcript/2019/01/20190109-1089010)
 
 [郭文贵2019年1月8日视频 20190108春晚搞不搞，听听战友们的心声]({{site.baseurl}}/miles/transcript/2019/01/20190108-1092417)
-
-[郭文贵2019年1月7日视频 20190107_2-财新再一次造谣说陈刚和郭文贵有关系；郭媒体可以定位黑客IP地址；春晚邀请凯琳女做一个节目回答网友提问。]({{site.baseurl}}/miles/transcript/2019/01/20190107-1089008)
-
-[郭文贵2019年1月7日视频 20190107报平安直播被黑客掉未成功的视频。谈马云和被双规的成钢以及懒人郭宝胜的案子]({{site.baseurl}}/miles/transcript/2019/01/20190107-1092391)
-
-[郭文贵2019年1月6日视频 20190106关于战友们关心的法制基金的几个问题的回复！以及文贵对香港，澳门台湾法制沦陷……是被孟建柱．王岐山．孙力军等控制的结果几个观点！]({{site.baseurl}}/miles/transcript/2019/01/20190106-1092115)
-
-[郭文贵2019年1月5日视频 20190105_2-保镖告诉我，林宝坚尼为我特制的SUV已经到我的停车场了，我都快忘了这个车了]({{site.baseurl}}/miles/transcript/2019/01/20190105-1088994)
-
-[郭文贵2019年1月5日 20190105接受庄烈宏先生美东之声访问。中共敢打台湾吗？什么叫战友？2019文贵爆料的具体战略]({{site.baseurl}}/miles/transcript/2019/01/20190105-1092100)
-
-[郭文贵2019年1月4日视频 20190104_1欺民賊們在西方布下的中文媒體的配合CCP的網路大軍太可怕了]({{site.baseurl}}/miles/transcript/2019/01/20190104-1088993)
-
-[郭文贵2019年1月3日视频 20190103_1香港和台湾人民在2019年一定会对CCP全面反击，港台的光明时刻一定会到来]({{site.baseurl}}/miles/transcript/2019/01/20190103-1088989)
-
-[郭文贵2019年1月2日视频 20190102_1乔布斯与他带有神秘色彩的设计的游艇太牛了]({{site.baseurl}}/miles/transcript/2019/01/20190102-1088984)
-
-[郭文贵2019年1月2日视频 20190102_2风中的Snow]({{site.baseurl}}/miles/transcript/2019/01/20190102-1088987)
-
-[郭文贵2019年1月1日视频 20190101_2以法灭共开始倒计时]({{site.baseurl}}/miles/transcript/2019/01/20190101-1088981)
-
-[郭文贵2019年1月1日视频 20190101接受木兰访谈的卡丽熙，什么时候放91号文件，刘承杰他爹到底是谁，共产党会怎样灭亡，2019我们做什么。]({{site.baseurl}}/miles/transcript/2019/01/20190101-1092074)
-
-[郭文贵2018年12月31日视频 20181231_1明天2019年1月1日纽约时间上午10点整，北京时间晚上11点整，卡丽熙將采访郭文贵]({{site.baseurl}}/miles/transcript/2018/12/20181231-1088979)
-
-[郭文贵2018年12月30日视频 20181230_1川普总统将向CCP要求中国人必须有宗教的自由．信仰的自由！]({{site.baseurl}}/miles/transcript/2018/12/20181230-1088977)
-
-[郭文贵2018年12月29日谈马建案 20181229接受路德先生的访谈，谈马建案与2019年爆料计划和中国私人企业家的命运]({{site.baseurl}}/miles/transcript/2018/12/20181229-1092019)
 
 
 ## 頁面 87/113 [**<**]({{site.baseurl}}/miles/transcript/page86) [1]({{site.baseurl}}/miles/transcript/index) ... [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) **87** [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page88)

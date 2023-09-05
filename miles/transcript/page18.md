@@ -3,6 +3,34 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 18/113 [**<**]({{site.baseurl}}/miles/transcript/page17) [1]({{site.baseurl}}/miles/transcript/index) ... [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) **18** [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page19)
 
+[郭文贵2021年11月1日直播 20211101_2“HCOIN TO THE MOON” 喜马拉雅币上市庆典 （下）]({{site.baseurl}}/miles/transcript/2021/11/20211101-1094058)
+
+[郭文贵2021年10月31日盖特直播 20211031_1]({{site.baseurl}}/miles/transcript/2021/10/20211031-1093540)
+
+[郭文贵2021年10月30日盖特 20211030_1尊敬的战友们好，全世界都在．深呼吸的等待着两件事儿，共产党是否攻打台湾？喜币上市以后会是什么样的情况？]({{site.baseurl}}/miles/transcript/2021/10/20211030-1093538)
+
+[郭文贵2021年10月29日直播 20211029_1格芯在美国上市的重大意义和其未来价值，格芯与数字货币紧密相连；喜币周一上市会带来什么样的改变；房地产会在明年5-7月爆雷，是中共制造的最大的噩梦]({{site.baseurl}}/miles/transcript/2021/10/20211029-1093704)
+
+[郭文贵2021年10月28日盖特 20211028_1尊敬的战友们好，你们健身了吗？传播C C P病毒真相和疫苗的解药了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/10/20211028-1093528)
+
+[郭文贵2021年10月28日盖特 20211028_2尊敬的战友们好．拜托大家涡轮腹拉器的时候，每一组千万不要做超过12个，否则会伤到身体。科学健身，快乐健身．才是新中国联邦人在追求。]({{site.baseurl}}/miles/transcript/2021/10/20211028-1093529)
+
+[郭文贵2021年10月28日盖特 20211028_3尊敬的战友们好……当被欺骗统治了几十年的灵魂和生活。去面对真相的时候．是无法适应的，这是悲剧，这也是我们中国人过去七十年的悲哀，新世界的到来．将改变全地球的所有的这一切！]({{site.baseurl}}/miles/transcript/2021/10/20211028-1093534)
+
+[郭文贵2021年10月27日直播 20211027_1盖特的价值和盈利模式是什么；喜币新上市时间的历史意义；共产党的房产税与金融的关系；中共国经济，金融的大崩溃]({{site.baseurl}}/miles/transcript/2021/10/20211027-1093592)
+
+[郭文贵2021年10月27日盖特 20211027_2感谢玉米地大姐送的漂亮的鲜花]({{site.baseurl}}/miles/transcript/2021/10/20211027-1093625)
+
+[郭文贵2021年10月26日直播 20211026_1七哥健身直播沒時間的千萬別來]({{site.baseurl}}/miles/transcript/2021/10/20211026-1093499)
+
+[郭文贵2021年10月26日直播 20211026_22021年11月1号11:01分格林威治时间将发生什么？七哥告诉你他英文名字的来历]({{site.baseurl}}/miles/transcript/2021/10/20211026-1093504)
+
+[郭文贵2021年10月26日盖特 20211026_3尊敬的战后们好……为什么我们的穷人总是一直穷？为什么习近平在北京．江派的人竟然不知道？川普总统的股票为什么暴跌？]({{site.baseurl}}/miles/transcript/2021/10/20211026-1093611)
+
+[郭文贵2021年10月26日盖特 20211026_4椒麻鸡来啦……]({{site.baseurl}}/miles/transcript/2021/10/20211026-1093616)
+
+[郭文贵2021年10月26日盖特 20211026_5太好吃了????]({{site.baseurl}}/miles/transcript/2021/10/20211026-1093621)
+
 [郭文贵2021年10月24日直播 20211024_1与川普公司合并的SPAC公司DWAC背后的11家投资机构与中共的关系，这场交易是以共产党情报为背景进行的连环操作，涉嫌多项内幕交易和犯罪的惊天的计划，让川普总统处在极度危险之中；我们永远]({{site.baseurl}}/miles/transcript/2021/10/20211024-1093490)
 
 [郭文贵2021年10月24日盖特 20211024_2绝密绝密绝密．习近平在共产党的六中全会前的．五国秘密外访，说明了什么？有什么样的内外政治目的？]({{site.baseurl}}/miles/transcript/2021/10/20211024-1093608)
@@ -24,34 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年10月18日盖特直播 20211018_2直播测试]({{site.baseurl}}/miles/transcript/2021/10/20211018-1093696)
 
 [郭文贵2021年10月17日直播 20211017_1青蒿素的神奇功效；爆料孙力军，傅政华和江志诚在新加坡被抓的细节；中共的经济政治危机导致对台开战，将引发美国，日本对中共进行极限战争；经过疫苗灾难，灭共之后，人类会走向更好的]({{site.baseurl}}/miles/transcript/2021/10/20211017-1093602)
-
-[郭文贵2021年10月17日盖特 20211017_2这是去年发出的有关被王岐山和孟建柱．UBS银行和瑞士的这家AMAC公司黑掉了我们基金的飞机的视频，当时被YOUTUBE 删掉了！今天我们再回看这个视频的时候意义重大。接下来我们会在上厕所的时间]({{site.baseurl}}/miles/transcript/2021/10/20211017-1093643)
-
-[郭文贵2021年10月16日直播 20211016_1揭秘摇滚巨星郭文贵先生与新中国联邦战友们现场录音实况]({{site.baseurl}}/miles/transcript/2021/10/20211016-1093461)
-
-[郭文贵2021年10月16日盖特 20211016_2尊敬的战友们好，你们健身了吗？过去的两天又发生了很多很多的大事情，有关话题，我在这里简单说一下，明天大直播中再详细向战友们报告！]({{site.baseurl}}/miles/transcript/2021/10/20211016-1093637)
-
-[郭文贵2021年10月15日盖特 20211015_1尊敬的战友们好，你们健身了吗？传播疫苗解药，C C P病毒的真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/10/20211015-1093631)
-
-[郭文贵2021年10月15日盖特 20211015_2尊敬的战友们好……非常的抱歉，很多战友给我发的信息没办法一一回复，我只能在这里，简单给大家统一回复一下，谢谢。]({{site.baseurl}}/miles/transcript/2021/10/20211015-1093636)
-
-[郭文贵2021年10月14日盖特 20211014_1大好消息来了……]({{site.baseurl}}/miles/transcript/2021/10/20211014-1093623)
-
-[郭文贵2021年10月13日直播 20211013_1记住今天这个大日子；傅政华的被抓，全世界的律师事务所，司法界大颠覆，大唤醒；马云是光明会成员；目前世界的危局，经济大崩溃，世界的黑暗势力和中共的黑暗势力因为病毒疫苗受到扭曲]({{site.baseurl}}/miles/transcript/2021/10/20211013-1093438)
-
-[郭文贵2021年10月12日盖特 20211012_1尊敬的战友们好……共产党的经济超限战……正危害全球的所有的金融市场和国家的经济安全！]({{site.baseurl}}/miles/transcript/2021/10/20211012-1093609)
-
-[郭文贵2021年10月12日盖特 20211012_2吃饭饭喽……]({{site.baseurl}}/miles/transcript/2021/10/20211012-1093614)
-
-[郭文贵2021年10月12日盖特 20211012_3尊敬的战友们好．世界政治经济面临的巨大挑战给新中国联邦带来了前所未有的机会，我们要冷静，客观全面进行揭发．帮助世界拆除共产党在全世界埋下的各种定时炸弹……]({{site.baseurl}}/miles/transcript/2021/10/20211012-1093619)
-
-[郭文贵2021年10月11日盖特 20211011_1刚才的视频大家的反应有卡顿，我再重发一次。]({{site.baseurl}}/miles/transcript/2021/10/20211011-1093476)
-
-[郭文贵2021年10月11日盖特直播 20211011_2]({{site.baseurl}}/miles/transcript/2021/10/20211011-1093478)
-
-[郭文贵2021年10月10日直播 20211010_1文贵在双十节给台湾同胞说的话：台湾凶也，中共与美方对台湾问题早有文字性承诺勾兑;习以孙灭台，与国民党卖台贼呼应；国内经济房地产的万亿债务危机，华平基金的腐败会把西方掏空，中美]({{site.baseurl}}/miles/transcript/2021/10/20211010-1093468)
-
-[郭文贵2021年10月10日盖特 20211010_2尊敬的战友们好，我们都应该拥有这样美好的现代的文明的生活，????????????????????你们说对不对啊？]({{site.baseurl}}/miles/transcript/2021/10/20211010-1093471)
 
 
 ## 頁面 18/113 [**<**]({{site.baseurl}}/miles/transcript/page17) [1]({{site.baseurl}}/miles/transcript/index) ... [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) **18** [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page19)

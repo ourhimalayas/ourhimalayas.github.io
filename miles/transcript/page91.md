@@ -3,6 +3,34 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 91/113 [**<**]({{site.baseurl}}/miles/transcript/page90) [1]({{site.baseurl}}/miles/transcript/index) ... [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) **91** [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page92)
 
+[郭文贵2018年10月28日视频 20181028欧洲对CCP的看法正在改变！]({{site.baseurl}}/miles/transcript/2018/10/20181028-1089892)
+
+[郭文贵2018年10月27日视频 20181027_1基金经理Kyle Bass网站被共匪攻击；王健发布会场地被共匪骚扰（提出用N倍价钱来取消发布会）]({{site.baseurl}}/miles/transcript/2018/10/20181027-1088856)
+
+[郭文贵2018年10月26日视频 20181026你们健身了吗！一切都是刚开始！谈港币和人⺠币 的汇率]({{site.baseurl}}/miles/transcript/2018/10/20181026-1089601)
+
+[郭文贵2018年10月25日视频 20181025_2]({{site.baseurl}}/miles/transcript/2018/10/20181025-1088854)
+
+[郭文贵2018年10月25日视频 20181025刚刚在以色列科技创新论坛上的王岐山．马云．言讲为什么状态这么不好！以色列人如何看他们的窜访！]({{site.baseurl}}/miles/transcript/2018/10/20181025-1089211)
+
+[郭文贵2018年10月24日视频 20181024_2太卡1]({{site.baseurl}}/miles/transcript/2018/10/20181024-1088849)
+
+[郭文贵2018年10月24日视频 20181024_3]({{site.baseurl}}/miles/transcript/2018/10/20181024-1088852)
+
+[郭文贵2018年10月24日视频 20181024王歧山与马云窜访忽悠以色列????????的现场直播！马云为什么愁眉紧锁！王岐山为自己家族准备的第三条路！]({{site.baseurl}}/miles/transcript/2018/10/20181024-1088888)
+
+[郭文贵2018年10月23日视频 20181023_1Snow今天美容了 也做過了體檢 非常健康]({{site.baseurl}}/miles/transcript/2018/10/20181023-1088840)
+
+[郭文贵2018年10月23日视频 20181023_2昨晚澳門的一個朋友突然出現在我家 嚇死我了]({{site.baseurl}}/miles/transcript/2018/10/20181023-1088842)
+
+[郭文贵2018年10月23日视频 20181023_3給大家講一個猥瑣的驢子夏的笑話]({{site.baseurl}}/miles/transcript/2018/10/20181023-1088845)
+
+[郭文贵2018年10月23日视频 20181023_4這幾天阿裡巴巴及騰訊的股票 港幣人民幣匯率 期指的變化怎麼回事]({{site.baseurl}}/miles/transcript/2018/10/20181023-1088847)
+
+[郭文贵2018年10月22日视频 20181022_1加林槍射擊CCP]({{site.baseurl}}/miles/transcript/2018/10/20181022-1088836)
+
+[郭文贵2018年10月22日视频 20181022_2打中CCP鏢靶兩次 贏得第一]({{site.baseurl}}/miles/transcript/2018/10/20181022-1088837)
+
 [郭文贵2018年10月21日 20181021_2澳門鄭曉松的被殺是因為孟宏偉 這是又一次的黑吃黑 2]({{site.baseurl}}/miles/transcript/2018/10/20181021-1087981)
 
 [郭文贵2018年10月21日 20181021_3澳門鄭曉松的被殺是因為孟宏偉 這是又一次的黑吃黑 3]({{site.baseurl}}/miles/transcript/2018/10/20181021-1087990)
@@ -24,34 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年10月15日视频 20181015_1孟宏偉事件之後 好多人開始被抓]({{site.baseurl}}/miles/transcript/2018/10/20181015-1088874)
 
 [郭文贵2018年10月14日视频 20181014_1]({{site.baseurl}}/miles/transcript/2018/10/20181014-1088868)
-
-[郭文贵2018年10月14日视频 20181014_2]({{site.baseurl}}/miles/transcript/2018/10/20181014-1088872)
-
-[郭文贵2018年10月13日视频 20181013_1]({{site.baseurl}}/miles/transcript/2018/10/20181013-1088862)
-
-[郭文贵2018年10月13日视频 20181013_2]({{site.baseurl}}/miles/transcript/2018/10/20181013-1088867)
-
-[郭文贵2018年10月12日视频 20181012_2共产党．王岐山．孟建柱．傳政华．孙力军．的专案组．与大连法院以黑治郭．罚北京政泉控股600亿．＋180亿未收！大约13亿美元！这是一个爆料革命的重大成就！]({{site.baseurl}}/miles/transcript/2018/10/20181012-1088859)
-
-[郭文贵2018年10月12日视频 20181012_3]({{site.baseurl}}/miles/transcript/2018/10/20181012-1088860)
-
-[郭文贵2018年10月12日视频 20181012直播1700家中资公司 150家中资银行 等待正义惩罚 中国高官洗钱．藏钱！人民币．港币．A股．港股将崩溃！ 向大家公布美国财政部海外资产控制办公室合规制栽措施！！]({{site.baseurl}}/miles/transcript/2018/10/20181012-1093247)
-
-[郭文贵2018年10月11日视频 20181011_1未来的三周将是文贵艰难的日子！盗国贼开始一系的疯狂抓捕审判我的员工及家人！拍卖公司资产！]({{site.baseurl}}/miles/transcript/2018/10/20181011-1088857)
-
-[郭文贵2018年10月10日视频 20181010_2这个来自黎巴嫩的马黑地是AMAC飞机装修公司的主席！他与UBS银行孟宏伟．海航一起共同策划了这起骇人听闻的诈骗抢劫AMAC，CEO Muhiddin案！]({{site.baseurl}}/miles/transcript/2018/10/20181010-1087965)
-
-[郭文贵2018年10月10日视频 20181010江．朱．王．等盗国贼们．正在疯狂的向海外洗钱！党内对国有化私人企业！产生巨大分歧！都在等上面出大事儿！]({{site.baseurl}}/miles/transcript/2018/10/20181010-1093194)
-
-[郭文贵2018年10月9日视频 20181009_2ccp如果攻击台湾美国会不会出兵为什么说港币和人民币会垮掉．保护台湾香港极为重要！]({{site.baseurl}}/miles/transcript/2018/10/20181009-1087954)
-
-[郭文贵2018年10月9日instagram直播 20181009CCP如果攻击台湾美国会不会出兵为什么说港币和人民币会垮掉．保护台湾香港极为重要！]({{site.baseurl}}/miles/transcript/2018/10/20181009-1093349)
-
-[郭文贵2018年10月8日视频 20181008_1与黑水公司朋友射击]({{site.baseurl}}/miles/transcript/2018/10/20181008-1088633)
-
-[郭文贵2018年10月8日视频 20181008_2与黑水公司朋友射击]({{site.baseurl}}/miles/transcript/2018/10/20181008-1088634)
-
-[郭文贵2018年10月6日视频 20181006_2]({{site.baseurl}}/miles/transcript/2018/10/20181006-1088838)
 
 
 ## 頁面 91/113 [**<**]({{site.baseurl}}/miles/transcript/page90) [1]({{site.baseurl}}/miles/transcript/index) ... [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) **91** [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) ... [113]({{site.baseurl}}/miles/transcript/page113) [**>**]({{site.baseurl}}/miles/transcript/page92)
